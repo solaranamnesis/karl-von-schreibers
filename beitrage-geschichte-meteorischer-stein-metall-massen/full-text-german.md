@@ -14,149 +14,19 @@ Horat.
 
 # Vorrede.
 
-Die seltene Gelegenheit, sich von der Realität und den nähern Umständen eines eben so
-wunderbaren als lange und vielfach bestrittenen Naturereignisses --- eines so genannten Stein-
-regens persönlich überzeugen zu können, both sich mir, eben so unerwartet als höchst er-
-wünscht, im Jahre 1808 bey dem Steinfalle um Stannern in Mähren dar. Wenn
-gleich nicht als Augenzeuge bey dem Vorfalle selbst zugegen, machten es mir doch die günsti-
-gen Umstände einer geringen Entfernung des Schauplatzes von Wien, und einer sehr früh-
-zeitigen und verläßlichen Kuude davon, besonders aber die höhern Ortes erhaltene, in solchen
-Fällen höchst nöthige Vollmacht und die kräftige Unterstützung von Seite der Behörden, mög-
-lich, eine allen Wünschen und Forderungen entsprechende Untersuchung an Ort und Stelle,
-und wenige Tage unmittelbar nach dem Vorfalle selbst, vorzunehmen. Es konnte demnach
-um so weniger fehlen, daß ein in so vielfacher Bezichung höchst anziehender Gegenstand der
-Physik meine ganze Aufmerksamkeit, die bisher immer nur schwach und bloß durch von Zeit zu
-Zeit bekannt gewordene, mehr oder weniger befriedigende Nachrichten von, in der Ferne vor-
-gefallenen, ähnlichen Begebenheiten angeregt wurde, auf sich zog, als derselbe vor Kurzem
-eben lebhaft und nachdrücklich wieder zur Sprache gebracht und das Interesse dafür durch die
-mannigfaltigen, von vielen angesehenen Physikern darüber vorgebrachten, eben so seltsamen als
-widersprechenden Meinungen und Hypothesen, so allgemein und mächtig in Anspruch genom-
-men worden war.
-Diese kräftige Anregung und vollends die erfolgreiche Benutzung jener Gelegenheit, wel-
-che so mannigfaltigen Stoff und so zahlreiche Materialien zu eigenen Beobachtungen, Erfah-
-rungen und Reflexionen darboth, hatten nicht nur eine fortgesetzte, ernstliche Beschäftigung
-mit diesem Gegenstande und eine Reihe von Untersuchungen, Arbeiten und Versuchen zur Fol-
-ge; sondern veranlaßten auch den Entschluß, Alles bis auf diese Zeit an Beobachtungen und
-Erfahrungen, an Erklärungen und Meinungen hierüber bekannt gewordene, zu sammeln, zu-
-sammen zu stellen und einer Vergleichung und kritischen Beurtheilung zu unterziehen, und al-
-les aufzubiethen, von den etwa noch vorhandenen Producten früherer, und den künftig vor-
-kommenden, zeitweiliger Ereignisse der Art, so viele als möglich aufzubringen und die kaiserl.
-Sammlung hieran so vollständig als möglich zu machen.
-a 2
+Die seltene Gelegenheit, sich von der Realität und den nähern Umständen eines eben so wunderbaren als lange und vielfach bestrittenen Naturereignisses --- eines so genannten Steinregens persönlich überzeugen zu können, both sich mir, eben so unerwartet als höchst erwünscht, im Jahre 1808 bei dem Steinfalle um Stannern in Mähren dar. Wenn gleich nicht als Augenzeuge bei dem Vorfalle selbst zugegen, machten es mir doch die günstigen Umstände einer geringen Entfernung des Schauplatzes von Wien, und einer sehr frühzeitigen und verläßlichen Kuude davon, besonders aber die höhern Ortes erhaltene, in solchen Fällen höchst nöthige Vollmacht und die kräftige Unterstützung von Seite der Behörden, möglich, eine allen Wünschen und Forderungen entsprechende Untersuchung an Ort und Stelle, und wenige Tage unmittelbar nach dem Vorfalle selbst, vorzunehmen. Es konnte demnach um so weniger fehlen, daß ein in so vielfacher Bezichung höchst anziehender Gegenstand der Physik meine ganze Aufmerksamkeit, die bisher immer nur schwach und bloß durch von Zeit zu Zeit bekannt gewordene, mehr oder weniger befriedigende Nachrichten von, in der Ferne vorgefallenen, ähnlichen Begebenheiten angeregt wurde, auf sich zog, als derselbe vor Kurzem eben lebhaft und nachdrücklich wieder zur Sprache gebracht und das Interesse dafür durch die mannigfaltigen, von vielen angesehenen Physikern darüber vorgebrachten, eben so seltsamen als widersprechenden Meinungen und Hypothesen, so allgemein und mächtig in Anspruch genommen worden war.
 
+Diese kräftige Anregung und vollends die erfolgreiche Benutzung jener Gelegenheit, welche so mannigfaltigen Stoff und so zahlreiche Materialien zu eigenen Beobachtungen, Erfahrungen und Reflexionen darboth, hatten nicht nur eine fortgesetzte, ernstliche Beschäftigung mit diesem Gegenstande und eine Reihe von Untersuchungen, Arbeiten und Versuchen zur Folge; sondern veranlaßten auch den Entschluß, Alles bis auf diese Zeit an Beobachtungen und Erfahrungen, an Erklärungen und Meinungen hierüber bekannt gewordene, zu sammeln, zusammen zu stellen und einer Vergleichung und kritischen Beurtheilung zu unterziehen, und alles aufzubiethen, von den etwa noch vorhandenen Producten früherer, und den künftig vorkommenden, zeitweiliger Ereignisse der Art, so viele als möglich aufzubringen und die kaiserl. Sammlung hieran so vollständig als möglich zu machen.
 
-### 0011
+Diese weit aussehenden Pläne und Vorsätze und jene, Zeit und Ruhe heischenden, mannigfaltigen Unternehmungen, wurden leider nur zu früh und gewaltsam, durch die bald nach dieser Periode eingetretenen ungünstigen Zeitverhältnisse, die den literarischen Verkehr erschwerten und mir ganz andere Beschäftigungen aufdrangen, unterbrochen, und zuletzt, durch die lange Fortdauer und Folgen derselben, zum Theil ganz in Vergessenheit gebracht. Inzwischen war doch bereits nicht nur eine erschöpfende Benutzung jener Gelegenheit erzielt, die umständlichste und befriedigendste Untersuchung jenes Ereignisses zu Stande gebracht, und selbst das Wesentlichste der hierbei erhaltenen Resultate bekannt gemacht, sondern auch eine Fülle neuer Ansichten und Aufklärungen gewonnen und eine Menge belehrender Versuche und erfolgreicher Untersuchungen als Vorarbeiten angestellt, welche zu interessanten Beobachtungen und Erfahrungen führten, die aber, nach einmahl so gewaltsam abgerissenem Faden, zu dessen Wiederauffassung sich in langer Zwischenzeit weder Muße noch Veranlassung finden wollte, nur zum Theil und außer Zusammenhang, Bruchstückweise und auf indirecten Wegen, zur öffentlichen Kenntniß gebracht werden konnten.
 
-IV
-Diese weit aussehenden Pläne und Vorsätze und jene, Zeit und Ruhe heischenden, mannig-
-faltigen Unternehmungen, wurden leider nur zu früh und gewaltsam, durch die bald nach die-
-ser Periode eingetretenen ungünstigen Zeitverhältnisse, die den literarischen Verkehr erschwer-
-ten und mir ganz andere Beschäftigungen aufdrangen, unterbrochen, und zuletzt, durch die
-lange Fortdauer und Folgen derselben, zum Theil ganz in Vergessenheit gebracht. Inzwischen
-war doch bereits nicht nur eine erschöpfende Benutzung jener Gelegenheit erzielt, die umständ-
-lichste und befriedigendste Untersuchung jenes Ereignisses zu Stande gebracht, und selbst das
-Wesentlichste der hierbey erhaltenen Resultate bekannt gemacht, sondern auch eine Fülle neuer
-Ansichten und Aufklärungen gewonnen und eine Menge belehrender Versuche und erfolgreicher
-Untersuchungen als Vorarbeiten angestellt, welche zu interessanten Beobachtungen und Erfah-
-rungen führten, die aber, nach einmahl so gewaltsam abgerissenem Faden, zu dessen Wieder-
-auffassung sich in langer Zwischenzeit weder Muße noch Veranlassung finden wollte, nur zum
-Theil und außer Zusammenhang, Bruchstückweise und auf indirecten Wegen, zur öffentlichen
-Kenntniß gebracht werden konnten.
-Glücklicheren Erfolg, als jene ungünstigen Zeitumstände erwarten ließen, hatte mein Be-
-streben in Auftreibung und Erhaltung der materiellen Belege früherer und in der Zwischenzeit
-vorgefallener Ereignisse; denn im Laufe von 10 Jahren war es mir doch gelungen, von 29
-derselben, die noch vorhanden und irgend wo aufbewahrt oder eben zur Kenntniß gekommen wa-
-ren (1), charakteristische und zur Aufstellung geeignete Stücke zu erhalten. Die kaiserl. Samm-
-lung erwuchs somit zur ansehnlichsten und vollständigsten von der Art kostbarer und merkwürdiger
-Natur-Producte, indem dieselbe nun-- mit den bereits früher schon vorhanden gewesenen (2)-
-(1) Es mochten deren damahls, und ungefähr von der Mitte des 15ten Jahrhunderts her, nebst sechs Eisenmassen, bey vierzig
-dertey Steinmassen gewesen sein, von welchen sich, notorisch, ein oder das andere Bruchstück als sprechender Beleg, nach
-gen und Ort verschiedener, solcher Ereignisse, ursprünglich im Besitze irgend eines bekannten Privat-Liebhabers besand,
-deres, seinen indioiduellen Ansichten gemäß, der Mertwurdigteit des mehr oder weniger beglaubigten und fur ein Wnn-
-der angesehenen Factums wegen, oder als ein Document der Leichtgläubigkeit der Menschen, as ein cari ieasea a
-aufzubewahren für gut fand; von welchen aber in der Zwischenzeit leider viele, ja die Mehrzahl, wie es mit Privat-Besi-
-tzungen, zumahl solcher Art, zu gehen pflegt, vollends in Verlust gerathen sind. und so kam es denn auch, das von bey.
-nahe hundert und zwanzig bedeutenden, zu ihrer Zeit ziemliches Aufsehen erregenden und hinlänglich beurtundeten Stein-
-fällen, die demnach von gleichzeitigen Schrifistellern, Historikern und Chronikschreibern der Me- und Nachwelt bekannt
-gemacht wurden, und die seit dem Anfange unserer Zeitrechnung bis zum Jahre 1806 sich ereignet hatten, nun kaum mehr
-neunzehn durch derley authentische Belege sich bekräftigen lassen, und zwar außer jenem von Ensisheim, von 1492, wovon
-wir die lange Erhaltung des Beleges der kräftigen Fürsorge Maximilians, der ihn zu einem Kirchenschatz machte, zu
-verdanken haben, und dem höchst zufällig (in Laugier's Händen in Paris) in einem kleinen Fragmente noch erhaltenen,
-von dem 1668 bey Verona Statt gehabten Steinfalle -- keiner von einem früheren Datum als aus der zweiten Hälfte
-des 18en Jahrhunderts; und die in der kaiserlichen Sammlung seit ihrem Niederfalle aufbewahrte Eisenmasse von Agram,
-1751, und der Stein von Tabor, 1753 (außer welchem nur noch wenige Fragmente von diesem, doch sehr bedeutend ge-
-wesenen Steinfalle in anderweitigen Besitz zu sein scheinen), sind nebst jenen beyden, so viel bekannt, bereits die ältesten
-noch vorhandenen Belege der Art.
-(2) Schon vor fünfzehn Jahren, als ich die Direction der k. k. Hof-Naturalien-Cabinette antrat, fanden sich deren bereits
-sieben - und manche davon schon seit lange - zwar gerade nicht als Belege der immer noch bezweifelten Ereignisse,
-die sich, mehr oder weniger befriedigenden, damahls hier, so wie überhaupt noch ziemlich allgemein, wenig beglaubigten
-Nachrichten zn Folge, zu früheren perioden in verschiedenen Ländern zugetragen hatten, und für deren Producte sie aus-
-gegeben waren, sondern vielmehr nur als seltsame Fossilien eines räthselhaften ursprunges und Herkommens, unter den
-Schätzen des Mineralreiches daselbst aufbewahrt. Nahmentlich waren e usterstnae von jenen 1753 bey Tabor in Böh-
-men, 1768 bey Maurkirchen in Bayern, 1785 bey Eichstädt in Franken und 1803 um L'Aigle in Frankreich gefallenen
-Steinen, und nebst der 1751 bey Agram in Kroatien niedergefallenen Metall-Masse, ein Bruchstück von der durch Pal-
-las aus Sibirien bekannt gewordenen und von einer dieser sehr ähnlichen, angeblich aus Norwegen herstammenden Eisen-
+Glücklicheren Erfolg, als jene ungünstigen Zeitumstände erwarten ließen, hatte mein Bestreben in Auftreibung und Erhaltung der materiellen Belege früherer und in der Zwischenzeit vorgefallener Ereignisse; denn im Laufe von 10 Jahren war es mir doch gelungen, von 29 derselben, die noch vorhanden und irgend wo aufbewahrt oder eben zur Kenntniß gekommen waren,* charakteristische und zur Aufstellung geeignete Stücke zu erhalten. Die kaiserl. Sammlung erwuchs somit zur ansehnlichsten und vollständigsten von der Art kostbarer und merkwürdiger Natur-Producte, indem dieselbe nun --- mit den bereits früher schon vorhanden gewesenen* --- 36* aufzuweisen hat, die in verschiedenen Ländern und zu verschiedenen Perioden, nach ganz verläßlichen Nachrichten entweder sichtbar niedergefallen oder zwar bloß zufällig aufgefunden, aber, nach aller Wahrscheinlichkeit und Analogie, allgemein auch als solche anerkannt sind; und zwar in so bedeutenden Massen, daß deren Gesammtgewicht beinahe drei Zentner erreicht.
 
+*) Es mochten deren damahls, und ungefähr von der Mitte des 15ten Jahrhunderts her, nebst sechs Eisenmassen, bei vierzig derlei Steinmassen gewesen sein, von welchen sich, notorisch, ein oder das andere Bruchstück als sprechender Beleg, nach gen und Ort verschiedener, solcher Ereignisse, ursprünglich im Besitze irgend eines bekannten Privat-Liebhabers besand, deres, seinen indioiduellen Ansichten gemäß, der Mertwurdigteit des mehr oder weniger beglaubigten und für ein Wunder angesehenen Factums wegen, oder als ein Document der Leichtgläubigkeit der Menschen, as ein Curiositäts-Stück aufzubewahren für gut fand; von welchen aber in der Zwischenzeit leider viele, ja die Mehrzahl, wie es mit Privat-Besitzungen, zumahl solcher Art, zu gehen pflegt, vollends in Verlust gerathen sind. und so kam es denn auch, das von beinahe hundert und zwanzig bedeutenden, zu ihrer Zeit ziemliches Aufsehen erregenden und hinlänglich beurtundeten Steinfällen, die demnach von gleichzeitigen Schrifistellern, Historikern und Chronikschreibern der Mit- und Nachwelt bekannt gemacht wurden, und die seit dem Anfange unserer Zeitrechnung bis zum Jahre 1806 sich ereignet hatten, nun kaum mehr neunzehn durch derlei authentische Belege sich bekräftigen lassen, und zwar außer jenem von Ensisheim, von 1492, wovon wir die lange Erhaltung des Beleges der kräftigen Fürsorge Maximilians, der ihn zu einem Kirchenschatz machte, zu verdanken haben, und dem höchst zufällig (in Laugiers Händen in Paris) in einem kleinen Fragmente noch erhaltenen, von dem 1668 bei Verona Statt gehabten Steinfalle --- keiner von einem früheren Datum als aus der zweiten Hälfte des 18ten Jahrhunderts; und die in der kaiserlichen Sammlung seit ihrem Niederfalle aufbewahrte Eisenmasse von Agram, 1751, und der Stein von Tabor, 1753 (außer welchem nur noch wenige Fragmente von diesem, doch sehr bedeutend gewesenen Steinfalle in anderweitigen Besitz zu sein scheinen), sind nebst jenen beiden, so viel bekannt, bereits die ältesten noch vorhandenen Belege der Art.
 
-### 0012
+*) Schon vor fünfzehn Jahren, als ich die Direction der k. k. Hof-Naturalien-Cabinette antrat, fanden sich deren bereits sieben --- und manche davon schon seit lange --- zwar gerade nicht als Belege der immer noch bezweifelten Ereignisse, die sich, mehr oder weniger befriedigenden, damahls hier, so wie überhaupt noch ziemlich allgemein, wenig beglaubigten Nachrichten zn Folge, zu früheren perioden in verschiedenen Ländern zugetragen hatten, und für deren Producte sie ausgegeben waren, sondern vielmehr nur als seltsame Fossilien eines räthselhaften ursprunges und Herkommens, unter den Schätzen des Mineralreiches daselbst aufbewahrt. Nahmentlich waren e usterstnae von jenen 1753 bei Tabor in Böhmen, 1768 bei Maurkirchen in Bayern, 1785 bei Eichstädt in Franken und 1803 um L'Aigle in Frankreich gefallenen Steinen, und nebst der 1751 bei Agram in Kroatien niedergefallenen Metall-Masse, ein Bruchstück von der durch Pallas aus Sibirien bekannt gewordenen und von einer dieser sehr ähnlichen, angeblich aus Norwegen herstammenden Eisenmasse. Und unstreitig war dieser Vorrath damahls schon, als wohl kaum jemand an das Zusammensammeln dieser rathselhaften Natur-Producte noch dachte, der reichhaltigste und in Hinsicht der Größe und Vollkommenheit der Stücke bereits der kostbarste in seiner Art, wie er denn auch, und zwar schon viel früher --- 1798 -- Hrn. D. Chladni, der damahls nur die aiirische Masse und den bei Maurkirchen gefallenen Stein kannte, Gelegenheit verschaffte, sich in seinen bereits bekannt gemachten Muthmaßungen über die Natur und den Ursprung dieser Massen, durch die Wahrnehmung ihrer überenstimmenden Abweichung von auen terrestrischen Fossilien und der auffallenden Aehnlichteit derselben unter sich, zu bestärken, und einige Jahre später --- 1801 --- des Hrn. v. Buchs Aufmerksamkeit erregte, und, auf dessen Mittheilung des Gesehenen, einer ähnlichen, entscheidenden und zu jener Zeit noch sehr gewagten, auch lange nach der Hand noch lebhast bestrittenen Aeußerung des Hrn. Pictet, in einer Versammlung des National Instiutes zu Paris, zur Beträftgung diente; so wie auch ich demselben die Kenntniß zu danken hatte, die mich ein ganz unerwartet vorgelegtes Bruchstück von jenen um Stannern gefalleneu Steinen, auf der Stelle als identisch und solglich gleichen Ursprunges mit jenen Massen erkennen machte, und die mir Muth und Zuversicht gab, diese vortheilhafte Gelegenheit zur vousten Selbstüberzeugung und zur möglichsten Ueberzeugung Anderer zu benutzen und ohne Furcht mich zu compromittiren, die Schritte zu machen, welche nöthig waren, um eine ämtliche und förmliche Untersuchung des Factums, so schnell wie möglich, einzuleiten. Die sorgfältige Aufbewahrung und Aufstellung dieser, theils zufällig (der Eisenmassen aus Sibirien und Norwegen und des Stein-Fragments von Eichstadt) oder bei irgend einer Gelegenheit (der Metall-Masse von Agram und des Steines von Tabor) erhaltenen, theils selbst absichtlich und relatin un sobr obe reise beigeschafften (des Stein-Fragments von Maurkirchen und des Steines von L'Aigle) zweideutigen Fossilien, zeugen übrigens von der Aufmerksamkeit und Werthschatzung, welche die Wiener Naturforscher diesen Natur-Producten zu jener Zeit schon zollten, indeß so manche von jenen oben erwähnten vierzig ähnlichen, materiellen Belegen solcher Ereignisse, von welchen, notorisch, theils ein Fragment, meistens aber ein ganzer Stein, theils selbst die ganze niedergefallene Masse und zwar gewöhnlich mit authentischen Nachrichten von glaubwürdigen Männern, oft selbst mit formlich abgesaßten Urkunden, einem wissenschaftlichen Vereine zur Beurtheilung, oder Cabinetten und öffentlichen Anstalten zur Aufbewahrung eingesendet worden waren, in Verlust geriethen; so daß nicht nur an diesen vermeintlich sichern Bestimmungsplätzen sich gegenwärtig keine Spur mehr von denselben findet, sondern selbst nur von drei derselben kleine Fragmente in Privat-Besiß nachweisbar noch vorhanden sind. So kam einer son den bei Roa in Spanien 1438 gefallenen Steinen, in das königl. Museum zu Madrid; einer von jenen aus der Gegend von Schleusingen 1552, in das herzogl. Museum zu Rudolstade; der 39 Pfund schwere, 1581 in Thüringen gefallene Stein (nebst der im Archive zu Dresden noch aufbewahrten Urkunde) und der 1/2 Zent. schwere, 1647 bei Zwickau gefallene Stein, in die Kunstkammer nach Dresden; einer von jenen 1654 auf der Insel Fünen gesallenen, in das königl. Naturalien-Cabinett zu Kopenhagen; der in demselben Jahrhunderte in Mailand gefallene Stein mit dem Settalianischen Cabinette, in welchem derselbe urspränglich aufbewahrt gewesen, in die Ambrosianische Bibliother daseln, der im Canton Bern 1698 gefallene, in die dortige Stadt-Bibliothek; der Stein von Terranova in Calabrien 1755, in die tonigliche Bibliothet zu eapel; jener von Sigena in Aragonien 1773, in das königl. Museum zu Madrid (ein kleines Ftagment davon befindet sich im konigl. Museum zu Pario; und der 6 1/2 Pfund schwere, 1775 bei Rodach gefallene Stein, in das herzogl Naturalien-Cabinett zu Coburg. So wurden mehrere von den vielen und großen, 1668 im Veronesischen gefallenen Steinen, der damahligen Akademie zu Verona vorgelegt, und gegenwärtig scheint, wie bereits erwähnt, nur ein kleines Fragment mehr davon verhanden zu sein, und so wurden Bruchstücke von den bei Nicorps in der Normandie 1750 nnd von jenen bei Luce 1768 in Frankreich gefallenen Steinen, der Pariser Akademie eingeschickt, und nur von letztern finden sich derzeit noch einige kleine Fragmente im Besitze von Privaten.
 
-V
-36 (1) aufzuweisen hat, die in verschiedenen Ländern und zu verschiedenen Perioden, nach ganz
-verläßlichen Nachrichten entweder sichtbar niedergefallen oder zwar bloß zufällig aufgefunden,
-aber, nach aller Wahrscheinlichkeit und Analogie, allgemein auch als solche anerkannt sind;
-und zwar in so bedeutenden Massen, daß deren Gesammtgewicht beynahe drei Zentner erreicht.
-Viele von diesen neu acquirirten, frühzeitig erhaltenen und jene, früher schon im kaiserl.
-Cabinette vorhanden gewesenen, so wie manche einzelne in hiesigen Privat-Sammlungen befind-
-liche und mehrere von entfernten Besitzern gefälligst mir zur Ansicht mitgetheilte, ausgezeich-
-masse. Und unstreitig war dieser Vorrath damahls schon, als wohl kaum jemand an das Zusammensammeln dieser rath-
-selhaften Natur-Producte noch dachte, der reichhaltigste und in Hinsicht der Größe und Vollkommenheit der Stücke bereits
-der kostbarste in seiner Art, wie er denn auch, und zwar schon viel früher - 1798 -- Hrn. D. Chladni, der damahls
-nur die aiirische Masse und den bey Maurkirchen gefallenen Stein kannte, Gelegenheit verschaffte, sich in seinen bereits
-bekannt gemachten Muthmaßungen über die Natur und den Ursprung dieser Massen, durch die Wahrnehmung ihrer über-
-enstimmenden Abweichung von auen terrestrischen Fossilien und der auffallenden Aehnlichteit derselben unter sich, zu be-
-stärken, und einige Jahre später -- 1801 -- des Hrn. v. Buch's Aufmerksamkeit erregte, und, auf dessen Mittheilung
-des Gesehenen, einer ähnlichen, entscheidenden und zu jener Zeit noch sehr gewagten, auch lange nach der Hand noch
-lebhast bestrittenen Aeußerung des Hrn. Pietet, in einer Versammlung des National Instiutes zu Paris, zur Beträft-
-gung diente; so wie auch ich demselben die Kenntniß zu danken hatte, die mich ein ganz unerwartet vorgelegtes Bruch.
-stück von jenen um Stannern gefalleneu Steinen, auf der Stelle als identisch und solglich gleichen Ursprunges mit jenen
-assen erkennen machte, und die mir Muth und Zuversicht gab, diese vortheilhafte Gelegenheit zur vousten Selbsi-
-überzeugung und zur möglichsten Ueberzeugung Anderer zu benutzen und ohne Furcht mich zu compromittiren, die Schritte
-zu machen, welche nöthig waren, um eine ämtliche und förmliche Untersuchung des Factums, so schnell wie möglich, ein-
-zuleiten. Die sorgfältige Aufbewahrung und Aufstellung dieser, theils zufällig (der Eisenmassen aus Sibirien und Norwe-
-gen und des Stein-Fragments von Eichstadt) oder bey irgend einer Gelegenheit (der Metaul-Masse von Agram und des
-Steines von Tabor) erhaltenen, theils selbst absichtlich und relatin un sobr obe reise beygeschafften (des Stein-Frag
-nns aa aeeh.e . ias .s ein, isneihe, oeydeutigen Fossilien, zengen übrigens bon der annstnertsanteir uno
-Eerehschahung, weiche die Wiener Naturforscher diesen Natur-Producten zu jener Zeit schon zollten, indeß so manche von
-jenen oben erwähnten vierzig ähnlichen, materiellen Belegen solcher Ereignisse, von welchen, notorisch, theils ein Frag-
-ment, meistens aber ein ganzer Stein, theils selbst die ganze niedergefallene Masse und zwar gewöhnlich mit authentischen
-Nachrichten von glaubwürdigen Männern, oft selbst mit formlich abgesaßten Urkunden, einem wissenschaftlichen Vereine
-zur Beurtheilung, oder Cabinetten und öffentlichen Anstalten zur Aufbewahrung eingesendet worden waren, in Verlust ge-
-riethen; so daß nicht nur an diesen vermeintlich sichern Bestimmungsplätzen sich gegenwärtig keine Spur mehr von densel-
-ben findet, sondern selbst nur von drei derselben kleine Fragmente in Privat-Besiß nachweisbar noch vorhanden sind. So
-tam einer son den bey Roa in Spanien 1438 gefallenen Steinen, in das königl. Museum zu Madrid; einer von jenen aus
-der Gegend von Schleusingen 1552, in das herzogl. Museum zu Rudolstade; der 39 Pfund schwere, 158 in Thüringen
-gefallene Stein (nebst der im Archive zu Dresden noch aufbewahrten Urkunde) und der Zent. schwere, 1647 bey Zwickau
-gefallene Stein, in die Kunstkammer nach Dresden; einer von jenen 1654 auf der Insel Fünen gesallenen, in das königl. atu-
-ralien-Cabinett zu Kopenhagen; der in demselben Jahrhunderte in Mailand gefallene Stein mit dem Settalianischen Cabinette,
-in welchem derselbe urspränglich aufbewahrt gewesen, in die Ambrosianische Bibliother daseln, der im Canton Bern 1698
-gefallene, in die dortige Stadt-Bibliothek; der Stein von Terranova in Calabrien 1755, in die tonigliche Bibliothet zu
-eapel; jener von Sigena in Aragonien 1773, in das königl. Museum zu Madrid (ein kleines Ftagment davon besindet
-sich im konigl. Museum zu Pario; und der 6; Pfund schwere, 1775 bey Rodach gefallene Stein, n das herzogl Natu-
-ralien-Cabinett zu Coburg. So wurden mehrere von den vielen und großen, 1668 im Veronesischen gefallenen Steinen,
-der damahligen Akademie zu Verona vorgelegt, und gegenwärtig scheint, wie bereits erwähnt, nur ein kleines Fragment
-mehr davon verhanden zu sein, und so wurden Bruchstücke von den bey Nicorps in der Normandie 1750 nnd von jenen
-bey Lues 1768 in Frankreich gefallenen Steinen, der Pariser Akademie eingeschickt, und nur von letztern finden sich der-
-zeit noch einige kleine Fragmente im Besitze von Privaten.
-(1) Nähmlich 27 Stein- und 9 Metall-Massen. Von ersteren möchten derzeit, 1820, im Ganzen etwa 40 - notorisch und
-nachwoiibar in Handen berannter Besier indes, wohl tanm mehe als 3. - als materieue Be von Ereignissen der
-siiesisl ilisislns i is-nsarnit i.d iilct din endr.r
-sind - von legteren ensa , gleichen, ogleich nicht factisch erwiesenen ursprunges, als Stüicke oder in Fragmenten, vor
-handen und noch irgendwo aufbewahrt sein. Von ersteren besaß das Pariser Museum 1815, nur 13; das brittische Mu
-seum in London 1e,1, und von den vorzüglichsten Privat-Sammlern (zu welchen insbesondere auch Heuland und
-Sowerby in London gehoren, deren Samngegand mie inzuoischen zur Zei nicht speeiell genng betannt is) Klap
-roth 1810, 10; Lavater in Zürich 181, 10 Blumenbach 1812, 11 De Drée in Paris 1818, 26; Chladni
-1819, 27.
-h
+*) Nähmlich 27 Stein- und 9 Metall-Massen. Von ersteren möchten derzeit, 1820, im Ganzen etwa 40 --- notorisch und nachweisbar in Händen bekannter Besitzer indes, wohl kaum mehr als 34 --- als materielle Belege von Ereignissen der Art --- deren doch dermahl beinahe 150 seit unserer Zeitrechnung zur nahern Kenntniss kamen, und hinlanglich beurkundet sind --- von letzteren etwa 12, gleichen, obgleich nicht factisch erwiesenen Ursprunges, als Stüicke oder in Fragmenten, vorhanden und noch irgendwo aufbewahrt sein. Von ersteren besaß das Pariser Museum 1815, nur 13; das brittische Museum in London 1818, 11; und von den vorzüglichsten Privat-Sammlern (zu welchen insbesondere auch Heuland und Sowerby in London gehoren, deren Sammlungstand mie inzwischen zur Zei nicht speciell genug bekannt ist) Klaproth 1810, 10; Lavater in Zürich 1811, 10; Blumenbach 1812, 11; De Drée in Paris 1818, 26; Chladni 1819, 27.
 
 
 ### 0013
