@@ -2,7 +2,7 @@
  
 ## Von D. Karl von Schreibers,
  
-### der ...
+#### der österreichichen Erblande Ritter und Landstande in Nieder-Oesterreich, k. k. Rathe und Director der Hof-Naturalien-Cabinette, Mitgliede der medicinischen Facultät und der k. k. Landwirthschafts-Gesellschaft in Wien; der königl. Akademie der Wissenschaften zu München; der königl. Gesellschaft der Wissenschaften zu Göttingen; der ehemahls kaiserl. Leopoldinisch-Carolinischen Akademie der Naturforscher zu Bonn; der königl. Akademie nützlicher Wissenschaften zu Erfurt; der Societät für National-Industrie und der philomatsichen Gesellschaft zu Paris; der Gesellschaft für Kunste und Wissenschaften zu Lille; der kaiserl. Gesellschaft der Naturforscher zu Moscow; der Gesellschaft naturforschender Freunde zu Berlin, und der naturforschenden Gesellschaften zu Jena, Leipzig, Hanau, Marburg; der mineralogischen Gesellschaften zu Jena, Petersburg, Dresden; der Werner'schen Societät für Naturkunde zu Edimburg; der physisch-medicinischen zu Erlangen und der pharmaceutischen zu St. Petersburg; die niederrheinischen Gesellschaft für Natur- und Heilkunde zu Bonn; der Societät für Forst- und Jagdkunde zu Dreissigacker, u. s. w. Mitgliede, und der mineralogischen Societät zu Jena ordenlichen Assessor.
  
 ### Wien. 1820.
  
