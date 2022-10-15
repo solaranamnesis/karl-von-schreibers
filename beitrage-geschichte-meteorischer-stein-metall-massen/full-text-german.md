@@ -28,162 +28,40 @@ Glücklicheren Erfolg, als jene ungünstigen Zeitumstände erwarten ließen, hat
 
 *) Nähmlich 27 Stein- und 9 Metall-Massen. Von ersteren möchten derzeit, 1820, im Ganzen etwa 40 --- notorisch und nachweisbar in Händen bekannter Besitzer indes, wohl kaum mehr als 34 --- als materielle Belege von Ereignissen der Art --- deren doch dermahl beinahe 150 seit unserer Zeitrechnung zur nahern Kenntniss kamen, und hinlanglich beurkundet sind --- von letzteren etwa 12, gleichen, obgleich nicht factisch erwiesenen Ursprunges, als Stüicke oder in Fragmenten, vorhanden und noch irgendwo aufbewahrt sein. Von ersteren besaß das Pariser Museum 1815, nur 13; das brittische Museum in London 1818, 11; und von den vorzüglichsten Privat-Sammlern (zu welchen insbesondere auch Heuland und Sowerby in London gehoren, deren Sammlungstand mie inzwischen zur Zei nicht speciell genug bekannt ist) Klaproth 1810, 10; Lavater in Zürich 1811, 10; Blumenbach 1812, 11; De Drée in Paris 1818, 26; Chladni 1819, 27.
 
+Viele von diesen neu acquirirten, frühzeitig erhaltenen und jene, früher schon im kaiserl. Cabinette vorhanden gewesenen, so wie manche einzelne in hiesigen Privat-Sammlungen befindliche und mehrere von entfernten Besitzern gefälligst mir zur Ansicht mitgetheilte, ausgezeichnete Stücke, insbesondere aber die reiche Ausbeute von dem Steinfalle um Stannern und die vielen, besonders ausgezeichneten, frischen und vollkommenen Exemplare von daher, gaben gleich Anfangs zur Anfertigung von Abbildungen Veranlassung. Eine genaue und vorzüglich in oryktognostischer Beziehung vorgenommene Untersuchung und Vergleichung dieser räthselhaften Fossilien, wie sie bei diesem Vorrathe möglich war, machte nähmlich auf so Manches aufmerksam, was eben so wesentlich zu deren Erkenntniß als merkwürdig an sich und dabei einer Versinnlichung bedürftig und einer solchen auch fähig schien, daß naturgetreue Darstellungen um so zweckmäßiger und erwünschter erachtet wurden, als die Objecte selbst, ihrer Seltenheit und Kostbarkeit wegen, und gewisser Maßen bloß als Einzelnheiten existirend, nur von Wenigen besessen, von Vielen nicht einmahl je gesehen werden können.
 
-### 0013
+Mehr als siebzig derlei Original-Abbildungen waren bereits schon zu Anfang des Jahres 1809 von der Hand eines geschickten Künstlers zu Stande gebracht, die, trotz der oft erprobten Schwierigkeit bei Darstellung anorganischer Natur-Producte, allgemeinen Beyfall fanden und den Wunsch erregten, daß eine preiswürdige Vervielfältigung derselben möglich sein möchte; allein die im gewöhnlichen Wege auf Kupfer veranstalteten Proben zeigten nur zu bald die Schwierigkeiten der Ausführung und die Kostspieligkeit einer solchen Unternehmung; so daß der Zweck nur unvollkommen und einseitig zu erreichen gewesen wäre. Die Fortschritte, welche in dieser Zwischenzeit im Steindrucke gemacht wurden, die Vortheile, welche dieser gewährt und der gute Erfolg, mit welchem man denselben bereits verschiedentlich zur Darstellung naturhistorischer Gegenstände anwendete, bestimmten mich, auch dieses Mittel zur Vervielfältigung versuchen zu machen, und da der Versuch, wo nicht meinen Wünschen, doch den Erwartungen entsprach, viele Sachverständige befriedigte und das Wesentlichste erzielen zu lassen verhieß; so fand ich mich um so bereitwilliger, der erneuerten Aufforderung mehrerer Wissenschaftsfreunde, und nahmentlich des Herrn D. Chladni, bei Gelegenheit der eben hier veranstalteten Herausgabe seines neuesten Werkes über diesen Gegenstand, zu entsprechen, und wenigstens eine Auswahl aus jener Sammlung von Abbildungen auf diesem Wege vervielfältigen zu lassen und bekannt zu machen, als meine Verhältnisse und Berufsgeschäfte bereits lange schon alle Hoffnung mir benommen hatten, den frühern Plan zu einer umfassenderen Bearbeitung des Gegenstandes, je realisiren und selbe demnach ihrer ursprünglichen Bestimmung gemäß benutzen zu können, dagegen eine so günstige Gelegenheit, wie die Erscheinung jenes Werkes war --- die eben sowohl zu meiner Beruhigung, als zum unbezweifelbaren Gewinn der guten Sache, jener Realisirung zuvor kam und sie nun vollends ganz entbehrlich machte - mir die Versicherung gab, sie einer vortheilhafteren Bestimmung widmen und, in solch empfehlender Begleitung, für selbe eine willkommnere Aufnahme gewärtigen zu können.
 
-VI
-nete Stücke, insbesondere aber die reiche Ausbeute von dem Steinfalle um Stannern und
-die vielen, besonders ausgezeichneten, frischen und vollkommenen Exemplare von daher, gaben
-gleich Anfangs zur Anfertigung von Abbildungen Veranlassung. Eine genaue und vorzüglich
-in oryktognostischer Beziehung vorgenommene Untersuchung und Vergleichung dieser räthselhaf-
-ten Fossilien, wie sie bey diesem Vorrathe möglich war, machte nähmlich auf so Manches
-aufmerksam, was eben so wesentlich zu deren Erkenntniß als merkwürdig an sich und dabey ei-
-ner Versinnlichung bedürftig und einer solchen auch fähig schien, daß naturgetreue Darstellun-
-gen um so zweckmäßiger und erwünschter erachtet wurden, als die Objecte selbst, ihrer Sel-
-tenheit und Kostbarkeit wegen, und gewisser Maßen bloß als Einzelnheiten existirend, nur von
-Wenigen besessen, von Vielen nicht einmahl je gesehen werden können.
-Mehr als siebzig derley Original-Abbildungen waren bereits schon zu Anfang des Jahres
-1809 von der Hand eines geschickten Künstlers zu Stande gebracht, die, trotz der oft erprobten
-Schwierigkeit bey Darstellung anorganischer Natur-Producte, allgemeinen Beyfall fanden
-und den Wunsch erregten, daß eine preiswürdige Vervielfältigung derselben möglich sein
-möchte; allein die im gewöhnlichen Wege auf Kupfer veranstalteten Proben zeigten nur zu bald
-die Schwierigkeiten der Ausführung und die Kostspieligkeit einer solchen Unternehmung; so
-daß der Zweck nur unvollkommen und einseitig zu erreichen gewesen wäre. Die Fortschritte,
-welche in dieser Zwischenzeit im Steindrucke gemacht wurden, die Vortheile, welche dieser ge-
-währt und der gute Erfolg, mit welchem man denselben bereits verschiedentlich zur Darstellung
-naturhistorischer Gegenstände anwendete, bestimmten mich, auch dieses Mittel zur Vervielfälti-
-gung versuchen zu machen, und da der Versuch, wo nicht meinen Wünschen, doch den Er-
-wartungen entsprach, viele Sachverständige befriedigte und das Wesentlichste erzielen zu las-
-sen verhieß; so fand ich mich um so bereitwilliger, der erneuerten Aufforderung mehrerer Wis-
-senschaftsfreunde, und nahmentlich des Herrn D. Chladni, bey Gelegenheit der eben hier
-veranstalteten Herausgabe seines neuesten Werkes über diesen Gegenstand, zu entsprechen, und
-wenigstens eine Auswahl aus jener Sammlung von Abbildungen auf diesem Wege vervielfälti-
-gen zu lassen und bekannt zu machen, als meine Verhältnisse und Berufsgeschäfte bereits lange
-schon alle Hoffnung mir benommen hatten, den frühern Plan zu einer umfassenderen Bearbei-
-tung des Gegenstandes, je realisiren und selbe demnach ihrer ursprünglichen Bestimmung ge-
-mäß benutzen zu können, dagegen eine so günstige Gelegenheit, wie die Erscheinung jenes
-Werkes war - die eben sowohl zu meiner Beruhigung, als zum unbezweifelbaren Gewinn
-der guten Sache, jener Realisirung zuvor kam und sie nun vollends ganz entbehrlich machte
-- mir die Versicherung gab, sie einer vortheilhafteren Bestimmung widmen und, in solch em-
-pfehlender Begleitung, für selbe eine willkommnere Aufnahme gewärtigen zu können.
-Während einer Reihe von tumultuarischen und geschäftsvollen Jahren durch mannigfal-
-tige, zum Theil sehr heterogene Berufs- und Wissenschafts-Anforderungen, ganz von diesem
-Gegenstande abgelenkt, mehrerer schriftlicher Aufsätze verlustiget, des chaotischen Vorrathes
-zahlloser Notaten kaum Meister, und all des Vergangenen im Einzelnen nur schwach mich be-
-sinnend war es anfänglich meine Absicht nur, diese Abbildungen durch kurze Beschreibun-
-gen zu erläutern, und dieß un so mehr, als einerseits die gründliche und so vielseitig voll-
+Während einer Reihe von tumultuarischen und geschäftsvollen Jahren durch mannigfaltige, zum Theil sehr heterogene Berufs- und Wissenschafts-Anforderungen, ganz von diesem Gegenstande abgelenkt, mehrerer schriftlicher Aufsätze verlustiget, des chaotischen Vorrathes zahlloser Notaten kaum Meister, und all des Vergangenen im Einzelnen nur schwach mich besinnend war es anfänglich meine Absicht nur, diese Abbildungen durch kurze Beschreibungen zu erläutern, und dieß un so mehr, als einerseits die gründliche und so vielseitig vollständige Bearbeitung des Gegenstandes in jenem Werke jeden weitern Commentar entbehrlich, andererseits der Drang der Zeit, um der nun einmahl gemachten Verheißung zu entsprechen, so wie der Mangel an erforderlicher Muße, Geschäftsfreyheit und Geistesruhe, um jene vorhandenen Gedächtnißbehelfe benutzen und die volle Erinnerung wieder gewinnen zu können, der Zustandebringung eines solchen sehr entgegen waren.
 
+Da inzwischen selbst diese beschränkte Behandlung des Gegensiandes nicht nur ein aufmerksames Studium jenes Werkes und eine Zuratheziehung mehrerer anerer, sondern insbesondere auch, der häufigen in dieser Zwischenzeit neu erhaltenen, erst noch zu bearbeitenden Materialien wegen, eine erneuerte Durchsicht und Prüfung eigener früherer Ausarbeitungen, eine weitere Verfolgung derselben und selbst eine Fortsetzung und Wiederhohlung von abgebrochenen und unbefriedigend gebliebenen einstmahligen Versuchen und Untersuchungen nothwendig machte; so wurden bald wieder alle Berücksichtigungspuncte, welche die Vielseitigkeit des Gegenstandes in physischer und philosophischer Hinsicht darbiethet und die, jetzt noch wie vor, den Physikern so reichhaltigen Stoff zu eigenen Muthmaßungen und Ansichten, und so vielfachen Anlaß zu Debatten und Controversen geben --- und wohl noch lange geben möchten --- mittel- oder unmittelbar angeregt, und, sammt den einst im Verfolge jener umfassendern, früheren Bearbeitung des Gegenstandes erhaltenen Resultaten, Bruchstückweise wenigstens, ziemlich lebhaft wieder ins Gedächtniß zurück gerufen.
 
-### 0014
+Und die mit Erweckung des Erinnerungsvermögens wieder erwachte alte Vorliebe für den Gegenstand und ein bei jener vergleichenden Recapitulation und Nachhohlung des im Laufe eines vollen Deceniums, zumahl auf den soliden Wegen der Erfahrung, Beobachtung und Untersuchung, Geschehenen, in etwas geschmeicheltes Selbstgefühl, reitzten mich um so mehr, manche Resultate früherer Forschungen und Versuche, und einige dadurch motivirte Reflexionen und Folgerungen bei dieser Gelegenheit unter einem bekannt zu machen, als ich, nach eigenem Gefühle im Verfolg der Ausarbeitung, besorgen zu müssen glaubte, daß einerseits die Trockenheit einer so einseitigen Behandlung des, gerade von der speculativen und vernünftelnden Seite am meisten anziehenden, Gegenstandes, rein descriptiv, wie sie anfänglich beabsichtigt war, zumahl durch die, bei solchen Objecten doch unerläßliche physiographische Kleinigkeitskrämerei, den Leser anekeln, andererseits Manches, hie und da mit Nachdruck Angedeutete, unverständlich oder unerheblich, wenigstens deutungs- und beziehungslos erscheinen möchte.
 
-VII
-ständige Bearbeitung des Gegenstandes in jenem Werke jeden weitern Commentar entbehrlich,
-andererseits der Drang der Zeit, um der nun einmahl gemachten Verheißung zu entsprechen,
-so wie der Mangel an erforderlicher Muße, Geschäftsfreyheit und Geistesruhe, um jene vor-
-handenen Gedächtnißbehelfe benutzen und die volle Erinnerung wieder gewinnen zu können,
-der Zustandebringung eines solchen sehr entgegen waren.
-Da inzwischen selbst diese beschränkte Behandlung des Gegensiandes nicht nur ein aufmerk-
-sames Studium jenes Werkes und eine Zuratheziehung mehrerer anerer, sondern insbeson-
-dere auch, der häufigen in dieser Zwischenzeit neu erhaltenen, erst noch zu bearbeitenden Ma-
-terialien wegen, eine erneuerte Durchsicht und Prüfung eigener früherer Ausarbeitungen, eine
-weitere Verfolgung derselben und selbst eine Fortsetzung und Wiederhohlung von abgebroche-
-nen und unbefriedigend gebliebenen einstmahligen Versuchen und Untersuchungen nothwendig
-machte; so wurden bald wieder alle Berücksichtigungspuncte, welche die Vielseitigkeit des Ge-
-genstandes in physischer und philosophischer Hinsicht darbiethet und die, jetzt noch wie vor, den
-Physikern so reichhaltigen Stoff zu eigenen Muthmaßungen und Ansichten, und so vielfachen
-Anlaß zu Debatten und Controversen geben -- und wohl noch lange geben möchten -- mit-
-tel- oder unmittelbar angeregt, und, sammt den einst im Verfolge jener umfassendern, frühe-
-ren Bearbeitung des Gegenstandes erhaltenen Resultaten, Bruchstückweise wenigstens, ziemlich
-lebhaft wieder ins Gedächtniß zurück gerufen.
-Und die mit Erweckung des Erinnerungsvermögens wieder erwachte alte Vorliebe für den
-Gegenstand und ein bey jener vergleichenden Recapitulation und Nachhohlung des im Laufe eines
-vollen Deceniums, zumahl auf den soliden Wegen der Erfahrung, Beobachtung und Untersu-
-chung, Geschehenen, in etwas geschmeicheltes Selbstgefühl, reitzten mich um so mehr, manche
-Resultate früherer Forschungen und Versuche, und einige dadurch motivirte Reflexionen und
-Folgerungen bey dieser Gelegenheit unter einem bekannt zu machen, als ich, nach eigenem Ge-
-fühle im Verfolg der Ausarbeitung, besorgen zu müssen glaubte, daß einerseits die Trocken-
-heit einer so einseitigen Behandlung des, gerade von der speculativen und vernünftelnden Seite
-am meisten anziehenden, Gegenstandes, rein descriptiv, wie sie anfänglich beabsichtigt war, zu-
-mahl durch die, bey solchen Objecten doch unerläßliche physiographische Kleinigkeitskrämerey,
-den Leser anekeln, andererseits Manches, hie und da mit Nachdruck Angedeutete, unverständ-
-lich oder unerheblich, wenigstens deutungs- und beziehungslos erscheinen möchte.
-Die Vielseitigkeit des Gegenstandes und die häufigen Berührungs- und Beziehungspuncte,
-welche das Materielle der Objecte in obigen Rücksichten darboth, motivirten nun eine bedeu-
-tende Menge solcher Einstreuungs-Artikel, die, dem einmahl angenommenen Plane der Be-
-arbeitung und ihrer individuellen Bestimmung gemäß -- als Erläuterung oder Deutung ir-
-gend eines in der Physiographie berührten Punctes zu dienen, oder um, auf Veranlassung ei-
-nes solchen, irgend eine, das Object oder den Gegenstand im Allgemeinen betreffende, physische,
-chemische, philosophische oder historische That- und Erfahrungssache zur Kenntniß, oder end-
-lich irgend eine vorgefaßte Meinung oder gangbare Hypothese zur Berichtigung, oder eine
-neue Muthmaßung und Ansicht in Anregung zu bringen -- als Noten zum Text angebracht
-wurden.
-b2
+Die Vielseitigkeit des Gegenstandes und die häufigen Berührungs- und Beziehungspuncte, welche das Materielle der Objecte in obigen Rücksichten darboth, motivirten nun eine bedeutende Menge solcher Einstreuungs-Artikel, die, dem einmahl angenommenen Plane der Bearbeitung und ihrer individuellen Bestimmung gemäß --- als Erläuterung oder Deutung irgend eines in der Physiographie berührten Punctes zu dienen, oder um, auf Veranlassung eines solchen, irgend eine, das Object oder den Gegenstand im Allgemeinen betreffende, physische, chemische, philosophische oder historische That- und Erfahrungssache zur Kenntniß, oder endlich irgend eine vorgefaßte Meinung oder gangbare Hypothese zur Berichtigung, oder eine neue Muthmaßung und Ansicht in Anregung zu bringen --- als Noten zum Text angebracht wurden.
 
+Obgleich diese Zugabe solcher Gestalt weder den Plan noch den eigentlichen Zweck der Behandlung des Gegenstandes abänderte, sondern nur eine Veränderung des Titels und in der Art der Ankündigung veranlaßte: so ist damit doch, da dieselbe den Hauptgehalt bedeutend überwiegt, das Volumen des Werkes beträchtlich über meine anfängliche Absicht, und weit über die ursprüngliche Berechnung des Verlegers herangewachsen, und ich fände mich über die Folgen davon --- die Verzögerung des Erscheinungs-Termines und die Erhöhung des Preises --- verantwortlich, wenn ich mich nicht für erstere, durch meine Verhältnisse und die Anforderungen der Aufgabe unter oben geschilderten Umständen, entschuldiget, und gegen letztere überhaupt, durch jede Aufopferung von meiner Seite, vorhinein schon verwahrt zu haben, glauben könnte. Dagegen muß ich über den Werth des Gehaltes, der hierzu Veranlassung gab, so wie über jenen des Ganzen, das Urtheil competenter Richter gewärtigen, hoffe aber hierbei auf jene Nachsicht rechnen zu dürfen, auf welche die Natur des Gegenstandes und die vielseitigen und schwierigen Anforderungen desselben, dem regen Eifer seiner kühnen Verfechter bei so sehr beschränkten Kräften, den vollsten Anspruch geben:
 
-### 0015
+Quod si deficiant vires, audacia certe  
+Laus erit; in magnis et voluisse sat est.  
+Propert.
 
-VIII
-Obgleich diese Zugabe solcher Gestalt weder den Plan noch den eigentlichen Zweck der Be-
-handlung des Gegenstandes abänderte, sondern nur eine Veränderung des Titels und in der
-Art der Ankündigung veranlaßte: so ist damit doch, da dieselbe den Hauptgehalt bedeutend
-überwiegt, das Volumen des Werkes beträchtlich über meine anfängliche Absicht, und weit
-über die ursprüngliche Berechnung des Verlegers herangewachsen, und ich fände mich über
-die Folgen davon -- die Verzögerung des Erscheinungs-Termines und die Erhöhung des
-Preises - verantwortlich, wenn ich mich nicht für erstere, durch meine Verhältnisse und
-die Anforderungen der Aufgabe unter oben geschilderten Umständen, entschuldiget, und gegen
-letztere überhaupt, durch jede Aufopferung von meiner Seite, vorhinein schon verwahrt zu
-haben, glauben könnte. Dagegen muß ich über den Werth des Gehaltes, der hierzu Veran-
-lassung gab, so wie über jenen des Ganzen, das Urtheil competenter Richter gewärtigen, hoffe
-aber hierbey auf jene Nachsicht rechnen zu dürfen, auf welche die Natur des Gegenstandes
-und die vielseitigen und schwierigen Anforderungen desselben, dem regen Eifer seiner kühnen
-Verfechter bey so sehr beschränkten Kräften, den vollsten Anspruch geben:
-Quod si deficiant vires, audacia certe
-Laus crit; in magnis et voluisse sat est.
-l'norn1.
 Wien, im Julius 1820.
 
-
-### 0016
-
 Erste Tafel.
+
 Die Gediegeneisen-Masse
-von 71 Pfund Wiener Commerzial-Gewicht (1),
-welche am 26. May 1751 gegen 6 Uhr Abends bey dem Dorfe Hraschina in der Agramer Gespannschaft (etwa drei Meilen
-N. O. von Agram) in Kroatien, unter den gewöhnlichen meteorischen Erscheinungen und im Angesichte mehrerer Augenzeugen
-aus der Luft gefallen, und drei Klafter tief in einen kurz zuvor gepflügten Feldgrund eingedrungen war.
-E, urde diese Masse (2) ihrer Merkwürdigkeit wegen, und als Beleg des wunderbaren Naturereignisses, von dem
-bischöflichen Consistorium zu Agram, welches, aus eigenem Antriebe, durch Abgeordnete das Factum sogleich (am 2. Iu-
-lius desselben Jahres) an Ort und Stelle ämtlich und förmlich untersuchen ließ (3), sammt einer schrituchen urtunde,
-(1) Bekanntlich ist nebst dieser nur noch eine zweite, kleinere Masse von 16 Pfund als Product des vorausgegangenen Feuer-
-Meteors, der beobachteten enerkugel, nieserfauen, un seibss ee .e eiennennnn "n
-iene- gesehen, sondern ach eieiehe ini n sle ns aes Sheire nrfernung von dersen, augeeuunden und au- de-
-Versenkung gehoben wurde; über deren Aufbewahrung oder Verwendung aber ursprünglich keine Nachricht gegeben ward, und
-von deren ochvorhandensein auch bis jetzt keine weitere Kenntniß erlangt werden konnte.
-(2) Es ist dieselbe um so interessanter und schätzbarer, als sie von den ohne dieß sehr wenigen ähnlichen Eisen-Massen, deren Nieder-
-falen hisorisch und faetisch erwiesen ia doi- die, ihrer Beschasenbeie nach, zwar zweifelhaften, und wie s scheint, gan in
-erust geraihenen sn itseel in ungarn 1559, und von Torgau 1561, die zwar noch - in Gotha - vorhandene, aber
-sseie es else'i.. 3 . .i lini d slt isci cli.
-s. Te, ime, perst.e.nen- dee mies-i s iesce. .ncnsiscias- nhie, S" eor- inss-
-sn i,amn-, . I oölsche Kaiser Dschehan-gir ganz verschmieden ließ), die einzige noch vorhandene zu sein
-scheint; o wie sie die einzige von dieser Art ist, welche physisch und chemisch untersucht wurde, und durch den Befund ihres
-Gehaltes und ihrer physischen Eigenschaften, als Prototyp auf einen gleichen meteorischen Ursprung jener ähnlichen Eisen-Mas-
-sen, nach Analogie zu schließen berechtigte, welche zufalg zu verschiedenen Zeiten und an verschiedenen, sehr entfernten drten
-aufgefunden worden, bekannt und noch vorhanden sind, aber bey welchen es, ihre Herkunft zu erweisen, an historischen und
-faetischen Belegen fehlte (wie dieß bey den, in dieser Beziehung problematischen Eisen-Massen aus Sud-und Nord Amerika,
-Brasiien, Afeika, Sibirien, Böhmen, ungarn u. s. der gau ih). Auch war sie von den derben Gediegeneisen-Masen die
-erse, und aberhaupt mit von den ersten Meteorolithen (ie den isen aus Sibirien, dem Eichstadter uns Sieneser Metesr-
-3ic ssie Snl h, .,n it dei mint roöecnlen uscilesechtne-n esads ö n deunshsan anaaics
-untersucht wurden, und zwar vonKlaproth (der die Resultate seiner untersuchungen zuerst in einer Vorlesung in der esnil.
-sile silissssis, s.si, i n e eeseissntsess liieiiie. sls i-dssss
-Inäl. s i äiin t rssletle it eies inet- --
-mse gäsißs .e ar airs n nordenioa. e- ohne Beeinieachti-
-gung der Form und Ansicht der Masse geschehen konnte, ein größeres Stück von etwa 20 Loth abgesägt, um zu technischen
-ersuchen zu dienen, die Hr. Director von Wiomanstatten auf meine Beranlassung vornehmenwoute, ud welche zmerewnr-
-digen esultaten, und insbesondere zur höchst interessanten Entdeckung des keystauinischen Gefuges, weches diesen Masen, wo
-nicht ausschließlich, doch vorzugsweise eigenthamuich und für dieseeen caratterstisch zu sein scheint, führten. Die durch As-
-sging ienss Scüe-aan der aae erhachich daeinee
-i is d- endeckns n ecsien, n se i ieren.-es igrißie eces nlden iei- sssin-
-und Harlem mitgetheie.
+
+von 71 Pfund Wiener Commerzial-Gewicht,*
+
+welche am 26. Mai 1751 gegen 6 Uhr Abends bei dem Dorfe Hraschina in der Agramer Gespannschaft (etwa drei Meilen N. O. von Agram) in Kroatien, unter den gewöhnlichen meteorischen Erscheinungen und im Angesichte mehrerer Augenzeugen aus der Luft gefallen, und drei Klafter tief in einen kurz zuvor gepflügten Feldgrund eingedrungen war.
+
+Es wurde diese Masse* ihrer Merkwürdigkeit wegen, und als Beleg des wunderbaren Naturereignisses, von dem bischöflichen Consistorium zu Agram, welches, aus eigenem Antriebe, durch Abgeordnete das Factum sogleich (am 2. Julius desselben Jahres) an Ort und Stelle ämtlich und förmlich untersuchen ließ,* sammt einer schrituchen Urkunde,
+
+*) Bekanntlich ist nebst dieser nur noch eine zweite, kleinere Masse von 16 Pfund als Product des vorausgegangenen Feuer-Meteors, der beobachteten Feuerkugel, niedergefallen, welche nicht nur im Niederfallen, und selbst bei der Lostrennung von jener gesehen, sondern auch gleichezeitig mit jener, und auf 2000 Schritt Entfernung von derselben, aufgefunden und aus der Versenkung gehoben wurde; über deren Aufbewahrung oder Verwendung aber ursprünglich keine Nachricht gegeben ward, und von deren Nochvorhandensein auch bis jetzt keine weitere Kenntniß erlangt werden konnte.
+
+*) Es ist dieselbe um so interessanter und schätzbarer, als sie von den ohne dieß sehr wenigen ähnlichen Eisen-Massen, deren Niederfalen historisch und factisch erwiesen ist (wie die, ihrer Beschaffenheit nach, zwar zweifelhaften, und wie es scheint, ganz in Verlust gerathenen Miscolz in Ungarn 1559, und von Torgau 1561; die zwar noch --- in Gotha --- vorhandene, aber dem Fundorte nach zweifelhafte --- aus Sachsen --- von 1540 oder 1550 ? und nebst einigen, die seit unserer Zeitrechnung im Oriente --- China, Japan, Persien --- gefallen sein mögen; jene, am zuverlässigsten bekannte, 1621 zu Lahore in Indien gefallene, welche aber der mogolische Kaiser Dschehan-gir ganz verschmieden ließ), die einzige noch vorhandene zu sein scheint; so wie sie die einzige von dieser Art ist, welche physisch und chemisch untersucht wurde, und durch den Befund ihres Gehaltes und ihrer physischen Eigenschaften, als Prototyp auf einen gleichen meteorischen Ursprung jener ähnlichen Eisen-Massen, nach Analogie zu schließen berechtigte, welche zufällig zu verschiedenen Zeiten und an verschiedenen, sehr entfernten Orten aufgefunden worden, bekannt und noch vorhanden sind, aber bei welchen es, ihre Herkunft zu erweisen, an historischen und factischen Belegen fehlte (wie dieß bei den, in dieser Beziehung problematischen Eisen-Massen aus Süd- und Nord-Amerika, Brasiien, Afrika, Sibirien, Böhmen, Ungarn u. s. w. der Fall ist). Auch war sie von den derben Gediegeneisen-Massen die erste, und überhaupt mit von den ersten Meteorolithen (mit dem Eisen aus Sibirien, dem Eichstädter und Sieneser Meteor-Steine), welche auf Veranlassung der kaum bekannt geworden Untersuchungen Howards (1802) in Deutschland analytisch untersucht wurden, und zwar von Klaproth (der die Resultate seiner Untersuchungen zuerst in einer Vorlesung in der königl. Akademie der Wissenschaften zu Berlin, und dann im neuen allgemeinen Journal der Chemie, B. 1, zu Anfang des Jahres 1803 bekannt machte), welchem zu diesem Ende ein kleines Stück von dieser Masse (gleichzeitig mit einem Stücke vom Eichstädter Meteor-Steine) schon im Jahre 1802 von hier aus mitgetheilt worden war. Im Jahre 1808 wurde, so weit es ohne Beeinträchtigung der Form und Ansicht der Masse geschehen konnte, ein größeres Stück von etwa 20 Loth abgesägt, um zu technischen Versuchen zu dienen, die Hr. Director von Widmanstätten auf meine Veranlassung vornehmen wollte, und welche zu merkwürdigen Resultaten, und insbesondere zur höchst interessanten Entdeckung des kristallinischen Gefüges, welches diesen Massen, wo nicht ausschließlich, doch vorzugsweise eigenthümlich und für dieselben charakteristisch zu sein scheint, führten. Die durch Abfägung jenes Stückes an der Masse erhaltene Fläche wurde mit Salpetersäure geätzt, um jenes Gefüge oberflächlich darzustellen und die Entdeckung zu bewähren; von dem Ueberreste des abgefägten Stuckes wurden kleine Abschnitte nach London, Paris und Harlem mitgetheilt.
+
 (3) Es war diese eine der frühesten Begebenheiten der Art (die erste, mit Ausnahme jener von Thüringen 1581 und von Bern
 1698, welche ebenfalls von den Local-Behörden legal untersucht, und durch eine ausgefertigte Urkunde documentirt wurden,
 won sch jene von der ereren Beeeeenhen, nach Eyiasnrsesscherung, oc ur zei- n echine u- deoden aurftewehr-
