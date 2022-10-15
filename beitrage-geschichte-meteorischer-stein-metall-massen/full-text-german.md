@@ -48,7 +48,7 @@ Propert.
 
 Wien, im Julius 1820.
 
-Erste Tafel.
+# Erste Tafel.
 
 Die Gediegeneisen-Masse
 
