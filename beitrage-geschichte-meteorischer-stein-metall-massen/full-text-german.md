@@ -62,330 +62,45 @@ Es wurde diese Masse* ihrer Merkwürdigkeit wegen, und als Beleg des wunderbaren
 
 *) Es ist dieselbe um so interessanter und schätzbarer, als sie von den ohne dieß sehr wenigen ähnlichen Eisen-Massen, deren Niederfalen historisch und factisch erwiesen ist (wie die, ihrer Beschaffenheit nach, zwar zweifelhaften, und wie es scheint, ganz in Verlust gerathenen Miscolz in Ungarn 1559, und von Torgau 1561; die zwar noch --- in Gotha --- vorhandene, aber dem Fundorte nach zweifelhafte --- aus Sachsen --- von 1540 oder 1550 ? und nebst einigen, die seit unserer Zeitrechnung im Oriente --- China, Japan, Persien --- gefallen sein mögen; jene, am zuverlässigsten bekannte, 1621 zu Lahore in Indien gefallene, welche aber der mogolische Kaiser Dschehan-gir ganz verschmieden ließ), die einzige noch vorhandene zu sein scheint; so wie sie die einzige von dieser Art ist, welche physisch und chemisch untersucht wurde, und durch den Befund ihres Gehaltes und ihrer physischen Eigenschaften, als Prototyp auf einen gleichen meteorischen Ursprung jener ähnlichen Eisen-Massen, nach Analogie zu schließen berechtigte, welche zufällig zu verschiedenen Zeiten und an verschiedenen, sehr entfernten Orten aufgefunden worden, bekannt und noch vorhanden sind, aber bei welchen es, ihre Herkunft zu erweisen, an historischen und factischen Belegen fehlte (wie dieß bei den, in dieser Beziehung problematischen Eisen-Massen aus Süd- und Nord-Amerika, Brasiien, Afrika, Sibirien, Böhmen, Ungarn u. s. w. der Fall ist). Auch war sie von den derben Gediegeneisen-Massen die erste, und überhaupt mit von den ersten Meteorolithen (mit dem Eisen aus Sibirien, dem Eichstädter und Sieneser Meteor-Steine), welche auf Veranlassung der kaum bekannt geworden Untersuchungen Howards (1802) in Deutschland analytisch untersucht wurden, und zwar von Klaproth (der die Resultate seiner Untersuchungen zuerst in einer Vorlesung in der königl. Akademie der Wissenschaften zu Berlin, und dann im neuen allgemeinen Journal der Chemie, B. 1, zu Anfang des Jahres 1803 bekannt machte), welchem zu diesem Ende ein kleines Stück von dieser Masse (gleichzeitig mit einem Stücke vom Eichstädter Meteor-Steine) schon im Jahre 1802 von hier aus mitgetheilt worden war. Im Jahre 1808 wurde, so weit es ohne Beeinträchtigung der Form und Ansicht der Masse geschehen konnte, ein größeres Stück von etwa 20 Loth abgesägt, um zu technischen Versuchen zu dienen, die Hr. Director von Widmanstätten auf meine Veranlassung vornehmen wollte, und welche zu merkwürdigen Resultaten, und insbesondere zur höchst interessanten Entdeckung des kristallinischen Gefüges, welches diesen Massen, wo nicht ausschließlich, doch vorzugsweise eigenthümlich und für dieselben charakteristisch zu sein scheint, führten. Die durch Abfägung jenes Stückes an der Masse erhaltene Fläche wurde mit Salpetersäure geätzt, um jenes Gefüge oberflächlich darzustellen und die Entdeckung zu bewähren; von dem Ueberreste des abgefägten Stuckes wurden kleine Abschnitte nach London, Paris und Harlem mitgetheilt.
 
-(3) Es war diese eine der frühesten Begebenheiten der Art (die erste, mit Ausnahme jener von Thüringen 1581 und von Bern
-1698, welche ebenfalls von den Local-Behörden legal untersucht, und durch eine ausgefertigte Urkunde documentirt wurden,
-won sch jene von der ereren Beeeeenhen, nach Eyiasnrsesscherung, oc ur zei- n echine u- deoden aurftewehr-
-seisi, rihe ener aminichsn sersihn, s ee esslsses l ni ms ene isrnts urinie-
-der Nachwelt aufbewahrt, und die erae, von welcher diese selsn, wenn gleich gerade nicht mit der Absicht, das Factum be-
-slaubigen zu machen, zur Publieität gebracht wurde (Stutz, Bergbaukunde B. 2, 1790); und es wäre in der That unbe
-greiflich, ie eine unfefaenenn n eine, deutung-- i eziehung-los- Darseuung von einer so achebaren Behörde so we-
-nig Aufmertsamteit erregen, so wenig auf die ueberzengun, ieren tonnte, wenn nicht zu vermuthen stände, daß sie durch
-i- e iwss eäie osts s ääs s t eint in s. n0eti tainen hien o-,
-wie bey einer andern Beranlasung gechehen seu, und inn oiainat bekant gemacht u werden, als es die ausdrückliche A-
-sicht der Aussteller und Einsender dieser, mit allen Förmlichkeiten ausgestatteten, urkunde war, nicht nur die Mitwelt von
-A
+*) Es war diese eine der frühesten Begebenheiten der Art (die erste, mit Ausnahme jener von Thüringen 1581 und von Bern 1698, welche ebenfalls von den Local-Behörden legal untersucht, und durch eine ausgefertigte Urkunde documentirt wurden, wovon sich jene von der ersteren Begebenheit, nach Chladnis Versicherung, noch zur Zeit im Archive zu Dresden aufbewahrt befindet), welche einer amtlichen Untersuchung von einer Behorde werth geachtet und durch eine ausgefertigte formliche Urkunde der Nachwelt aufbewahrt, und die erste, von welcher diese selbst, wenn gleich gerade nicht mit der Absicht, das Factum beglaubigen zu machen, zur Publicität gebracht wurde (Stutz, Bergbaukunde B. 2, 1790); und es wäre in der That unbegreiflich, wie eine so unbefangene und reine, deutungs- und beziehungslose Darstellung von einer so achtbaren Behörde so wenig Aufmerksamkeit erregen, so wenig auf die Ueberzeugung wirken konnte, wenn nicht zu vermuthen stände, daß sie durch jene Publicirung nur wenigen eigentlichen Physikern zur Kenntniss kam. Sie verdient um so mehr an einem schicklicheren Orte, wie bei einer andern Veranlassung geschehen soll, und im Original bekannt gemacht zu werden, als es die ausdrückliche Absicht der Aussteller und Einsender dieser, mit allen Förmlichkeiten ausgestatteten, Urkunde war, nicht nur die Mitwelt von der Realität des Factums zu überzeugen, sondern auch diese Ueberzeugung durch ein authentisches Document auf die Nachwelt zu bringen.
 
+Es hat dieselbe eine platt gedrückte, etwas verschobene, dreiseitige Gestalt, und zeigt demnach zwei Flächen und drei Ränder. Die eine dieser Flächen ist, schief von den Rändern aufsteigend, mäßig gewölbt, nach oben sich verebnend, und durch mehr oder weniger unterbrochene, gebogene und wellenförmige, rippenartige, abgerundete Erhabenheiten, und durch größere und kleinere, seichtere und tiefere, meistens rundliche oder ovale Vertiefungen und Eindrücke, welche von jenen begränzt werden, sehr uneben; die andere entgegen gesetzte Fläche ist dagegen beinahe flach und eben, und zeigt nebst einigen kleinern und tiefern Eindrücken gegen die Nänder hin, nur drei große, sehr seichte und breit verlaufende Vertiefungen, welche, idem sie durch flache Zwischenräume in einander übergehen, und gewisser Maßen zusammen hängen, diese Fläche im Ganzen etwas ausgehöhlt erscheinen machen.
 
-### 0017
+Die Nänder, unter welchen diese beiden Flächen zusammen stoßen, sind von der convexen Fläche her schief nach Außen abgerundet, und nicht nur durch die rippenartigen Erhabenheiten, welche sich von daher über dieselben bis an die entgegen gesetzte Fläche fortsetzen, und durch ähnliche Eindrücke, sehr uneben, sondern auch, zumahl gegen die Mitte, sehr stark ausgeschweift und gewisser Maßen unterbrochen, so daß man ihre Richtung nur schwer bestimmen kann. Zieht man inzwischen nach den hervorragendsten Puncten eines jeden Randes eine, demselben parallel laufende, gerade Linie, und schließt man das solcher Gestalt erhaltene Dreyeck durch Verlängerung dieser Linien über die abgerundeten Ecken hinaus, bis sie sich berühren; so fallen die Linien, welche den beiden Seitenrändern oder den beiden längern Schenkeln der dreieckigen Form der Masse entsprechen, auf die Grundlinie, welche --- die Masse in dieser Richtung betrachtet -- dem untern Rande entspricht, unter einem Winkel von beiläufig 80° auf. Die dritte oder obere, dem untern Rande gegen über stehende Ecke der dreiseitigen Masse, fällt außer das Mittel derselben, und --- die Masse von der convexen Fläche betrachtet -- stark gegen den rechten Seitenrand hin, indem der linke Seitenrand bogenförmig sich gegen jenen hinüber zieht, und sich mit demselben in eine gegen ihn gerichtete, etwas stumpfe Spitze vereinigt. Die ganze Masse verflächt sich mehr gegen die linke Seite hin, zumahl nach oben an der Krümmung des Seitenrandes, der hier am dünnsten, an einer Stelle beinahe schneidend, und da von der entgegen gesetzten Fläche etwas übergebogen ist; dagegen erhebt sich die rechte Seite hier mit dem Außenrande und der Spitze, indem sie von der entgegen gesetzten Fläche gleichsam herüber gedrückt erscheint, so daß dort, abgesehen von den an dieser Stelle befindlichen ziemlich großen und tiefen Eindrücken, welche den äußersten Nand auch ziemlich dünn machen, eine starke Abweichung von der horizontalen Ebene dieser Fläche bewirkt wird, und die Spitze des Dreyecks, oder vielmehr beinahe die ganze obere Hälfte der Masse, solcher Gestalt etwas verdreht erscheint. An dieser Fläche dagegen laufen die Ränder, abgesehen von den genannten Abweichungen und von den zufälligen Eindrücken, größten Theils horizontal mit der Ebene derselben; nur gegen die eine untere Ecke, welche der Richtung der verdrehten Spitze entspricht, ist der Seitenrand schief abgerundet, und ebenfalls gegen die convere Fläche gedrückt, so daß es scheinen möchte, als wenn die Masse, in noch weichem Zustande! auf dieser ganzen Seite, im Auffallen einen größern Widerstand gefunden hätte.*
 
-2
-welche das Untersuchungs-Protokoll enthielt, noch in demselben Jahre an den kaiserl. Hof eingesendet, wo sie in der
-k. k. Schatzkammer zu Wien aufbewahrt, und in der Folge, bey Uebertragung der naturwissenschaftlichen Gegenstände
-aus derselben, an das k. k. Hof-Naturalienkabinett abgegeben wurde.
-Es hat dieselbe eine platt gedrückte, etwas verschobene, dreiseitige Gestalt, und zeigt demnach zwei Flächen und drei
-Ränder. Die eine dieser Flächen ist, schief von den Rändern aufsteigend, mäßig gewölbt, nach oben sich verebnend, und
-durch mehr oder weniger unterbrochene, gebogene und wellenförmige, rippenartige, abgerundete Erhabenheiten, und
-durch größere und kleinere, seichtere und tiefere, meistens rundliche oder ovale Vertiefungen und Eindrücke, welche von
-jenen begränzt werden, sehr uneben; die andere entgegen gesetzte Fläche ist dagegen beynahe flach und eben, und zeigt
-nebst einigen kleinern und tiefern Eindrücken gegen die Nänder hin, nur drei große, sehr seichte und breit verlaufende
-Vertiefungen, welche, idem sie durch flache Zwischenräume in einander übergehen, und gewisser Maßen zusammen hän-
-gen, diese Fläche im Ganzen etwas ausgehöhlt erscheinen machen.
-Die Nänder, unter welchen diese beyden Flächen zusammen stoßen, sind von der convexen Fläche her schief nach
-Außen abgerundet, und nicht nur durch die rippenartigen Erhabenheiten, welche sich von daher über dieselben bis an die
-entgegen gesetzte Fläche fortsetzen, und durch ähnliche Eindrücke, sehr uneben, sondern auch, zumahl gegen die Mitte,
-sehr stark ausgeschweift und gewisser Maßen unterbrochen, so daß man ihre Richtung nur schwer bestimmen kann. Zieht
-man inzwischen nach den hervorragendsten Puncten eines jeden Randes eine, demselben parallel laufende, gerade Linie,
-und schließt man das solcher Gestalt erhaltene Dreyeck durch Verlängerung dieser Linien über die abgerundeten Ecken hin-
-aus, bis sie sich berühren; so fallen die Linien, welche den beyden Seitenrändern oder den beyden längern Schenkeln der
-dreieckigen Form der Masse entsprechen, auf die Grundlinie, welche --- die Masse in dieser Richtung betrachtet -- dem
-untern Rande entspricht, unter einem Winkel von beyläufig 80 auf. Die dritte oder obere, dem untern Rande gegen
-über stehende Ecke der dreiseitigen Masse, fällt außer das Mittel derselben, und --- die Masse von der convexen Fläche
-betrachtet -- stark gegen den rechten Seitenrand hin, indem der linke Seitenrand bogenförmig sich gegen jenen hinüber
-zieht, und sich mit demselben in eine gegen ihn gerichtete, etwas stumpfe Spitze vereinigt. Die ganze Masse verflächt
-sich mehr gegen die linke Seite hin, zumahl nach oben an der Krümmung des Seitenrandes, der hier am dünnsten,
-an einer Stelle beynahe schneidend, und da von der entgegen gesetzten Fläche etwas übergebogen ist; dagegen erhebt sich
-die rechte Seite hier mit dem Außenrande und der Spitze, indem sie von der entgegen gesetzten Fläche gleichsam herüber
-gedrückt erscheint, so daß dort, abgesehen von den an dieser Stelle befindlichen ziemlich großen und tiefen Eindrücken,
-welche den äußersten Nand auch ziemlich dünn machen, eine starke Abweichung von der horizontalen Ebene dieser Fläche
-bewirkt wird, und die Spitze des Dreyecks, oder vielmehr beynahe die ganze obere Hälfte der Masse, solcher Gestalt et-
-was verdreht erscheint. An dieser Fläche dagegen laufen die Ränder, abgesehen von den genannten Abweichungen und
-von den zufälligen Eindrücken, größten Theils horizontal mit der Ebene derselben; nur gegen die eine untere Ecke, wel-
-che der Richtung der verdrehten Spitze entspricht, ist der Seitenrand schief abgerundet, und ebenfalls gegen die convere
-Fläche gedrückt, so daß es scheinen möchte, als wenn die Masse, in noch weichem Zustande! auf dieser ganzen Seite,
-im Auffallen einen größern Widerstand gefunden hätte (1).
-Die größte Länge der Masse, von den hervorragendsten Puncten des rechten Seitenrandes, von der obern Ecke
-der Realität des Factums zu überzeugen, sondern auch diese Ueberzeugung durch ein authentisches Document auf die Nachwelt
-zu bringen.
-(1) Es findet sich leider in der Urkunde nicht bemerkt, in welcher Lage diese Masse in ihrer Versenkung gefunden wurde, sondern es
-wird nur erwähnt, daß die Spalte (nicht Grube) in der Erde drei Klafter tief und eine Elle weit gewesen sey, nach welchen
-Ausdrücken zun eamne, as wire see iie einen der ann eingedrungen und aufgefallen, wi-
-i assis in ssesilte ss a.s s.,. s , s seecs s.si nes-, ss . en-
-rende Bewegung, zumahl flächenwärts, nach Form und Beschafenheit derselben nicht wohl angenommen werden kann. Um
-so merkwürdiger ist die auffallende Verschiedenheit der Oberflache der beyden Flächen. Es wird zwar in der urkunde bemerkt,
-iin en ires tis..l as s t. isssna net, darenme tennes-
-. d 7 s7n
-i-ensncdnl-ut n.-, . . . li sieicti dssi t
-"ere sne--lnlsss ä. itn-
-onnoceee tan- Serr on es-ndeii i er s is ee-
-eer in ecohnelnenen ode a ianen sils in e i,, ie si lssmeh-
-worden wäre.
+Die größte Länge der Masse, von den hervorragendsten Puncten des rechten Seitenrandes, von der obern Ecke oder Spitze bis zur hervorragendsten Erhabenheit am untern Rande dieser Seite gemessen, beträgt 15 1/2 Zoll; am linken Rande nur 13 Zoll.
 
+*) Es findet sich leider in der Urkunde nicht bemerkt, in welcher Lage diese Masse in ihrer Versenkung gefunden wurde, sondern es wird nur erwähnt, daß die Spalte (nicht Grube) in der Erde drei Klafter tief und eine Elle weit gewesen sei, nach welchen Ausdrücken zu muthmassen käme, as wäre sie mit einen der Ränder eingedrungen und auf keine der Flächen aufgefallen, wie diess auch nach dem Schwerpuncte der Masse, der auf deren untern Rand fällt, der Fall gewesen sein musste, da eine rotirende Bewegung, zumahl flächenwärts, nach Form und Beschaffenheit derselben nicht wohl angenommen werden kann. Um so merkwürdiger ist die auffallende Verschiedenheit der Oberflache der beiden Flächen. Es wird zwar in der Urkunde bemerkt, dass in den Vertiefungen der convexen Fläche (also gerade der entgegen gesetzten) etwas Erde eingedrückt war; daraus kann aber noch nicht gefolgert werden, dass gerade die Masse auf diese Fläche auffiel, indem beide Flächen wohl in ziemlich gleich stark drückenden Contact mit der Erde kamen, wenn die Masse mit einem Rande vorwärts in dieselbe eindrang; dass sich aber nur an der einen Fläche Erde eingedrückt fand, mag von der starken Unebenbheit ihrer Oberfläche hergerührt haben. Dass sich übrigens gegenwärtig keine Spur von Erde an der ganzen Masse mehr findet, mag wohl mit als Beweis dienen können, dass die Masse nicht im geschmolzenen oder gar flüssigen Zustande zur Erde gekommen sei, in welchem Falle die Erde wohl etwas mehr fixirt worde wäre.
 
-### 0018
+Die größte Breite, von den hervorragendsten Erhabenheiten an beiden Seitenrändern, etwa 3 Zoll ober dem untern Rande, beträgt 12; im Mittel der Masse ist sie 8; am obern Ende, etwa 3 Zoll unter der Spitze, von ähnlilichen Puncten gemessen, 6 1/2 Zoll.
 
-3
-oder Spitze bis zur hervorragendsten Erhabenheit am untern Rande dieser Seite gemessen, beträgt 15 4Zoll; am linken
-Nande nur 13 Zoll.
-Die größte Breite, von den hervorragendsten Erhabenheiten an beyden Seitenrändern, etwa 3 Zoll ober dem un-
-tern Rande, beträgt 12; im Mittel der Masse ist sie 8; am obern Ende, etwa 3 Zoll unter der Spitze, von ähnli-
-lichen Puncten gemessen, 64 Zoll.
-Die größte Dicke, von den erhabensten Stellen an beyden Flächen zusammen gemessen, beträgt 3 Zoll; an
-Stellen, wo zufällig von beyden Flächen Vertiefungen zusammen fallen, über einander zu liegen kommen, beträgt sie
-kaum 2, hie und da selbst kaum 1 Zoll; wo dieß nicht der Fall ist, kann man sie im Durchschnitt auf 3 Zoll anneh-
-men. An den äußersten Rändern ist die Masse hie und da sehr dünn, kaum , selbst nur Zoll dick; an einer Stelle
-beynahe sogar schneidend scharf.
-Die Vertiefungen und Eindrücke, welche sich auf der convexen Fläche zeigen, haben zwar viele Aehnlichkeit mit
-jenen, welche sich auf der Oberfläche der meisten Meteor-Steine finden, sind aber hier ungleich größer, tiefer, häufiger
-und zusammen hangender, so daß die rippenartigen Erhabenheiten, welche sie begränzen, gewisser Maßen ein unregel-
-mäßiges und verworrenes Netz bilden, und der Oberfläche ein zellenförmiges Ansehen geben. Manche dieser Vertiefun-
-gen haben im Mittelpuncte 5 bis 7, und wenn man das Niveau von den zunächst liegenden höchsten Erhabenheiten
-nehmen will, 9 bis 15 Linien Tiefe bey einer Ausdehnung von 14 bis 2 Zoll im Durchmesser. In diesen größern
-Vertiefungen, welche meistens einen mehr oder weniger rundlichen, aber mehrfach ausgeschweiften Umriß, und bald eine
-Grube, bald eine Erhabenheit zum unregelmäßigen Mittelpuncte haben, liegen die seichteren, bis 2, 3 Linien tiefen,
-daum- oder fingerartigen Eindrücke von verschiedener Größe, zu 3, 4 bis 5 unregelmäßig, bisweilen aber auch kreis-
-förmig beysammen; inzwischen kommen solche Eindrücke auch einzeln oder isolirt außer den Vertiefungen vor. Die rip-
-penartigen Erhabenheiten, welche durch diese Vertiefungen und Eindrücke gebildet werden, entsprechen der Stärke, Höhe
-und Dicke nach, der Tiefe derselben und ihrer wechselseitigen Entfernung von einander; und ihrer Ausdehnung und Rich-
-tung nach, nach welchen sie bald länger, bald kürzer, bald wellenförmig, bald unter verschiedenen Winkeln gebogen
-erscheinen, der Lage und Form derselben, und ihrer wechselseitigen Verbindung unter sich. Demnach haben die Erha-
-benheiten zwischen aneinander gränzenden Hauptvertiefungen oft mehrere Linien Höhe, und eine nicht minder beträchtliche
-Dicke, zumahl an ihrer Basis, und nicht selten ein paar Zoll Länge, in so fern ihr zusammen gedrückter, abgerunde-
-ter Rücken nicht durch isolirte Eindrücke unterbrochen, breit gedrückt und gewisser Maßen gedoppelt wird; die Erhaben-
-heiten dagegen, welche die seichteren, in den größeren Vertiefungen liegenden, Eindrücke begränzen, sind nur sehr
-schwach, oft kaum merklich, und verflächen sich mit ihrer Basis nicht selten, ohne einen bedeutenden Rücken oder eine
-Kante gebildet zu haben. Es finden sich jedoch einige Erhabenheiten auf dieser Fläche, welche nicht, wenigstens nicht
-unmittelbar, durch Eindrücke entstanden zu sein scheinen, da sie solche nicht geradezu begränzen, und zapfen- oder zi-
-tzenförmig vorragen; und andere, welche zum Theil zwar durch Vertiefungen veranlaßt worden zu sein scheinen, indem
-sie zwischen solchen liegen, auch rippenartig, wie die meisten, gestaltet, aber höher und stärker sind, als sie, vermöge
-der Ausdehnung und Tiefe jener, gerade zu sein hätten (1).
-(1) Wenn gleich im strengen Sinne der Kunstsprache diese Beschaffenheit der Oberfläche keineswegs zellig, ästig und zackig genannt
-werden kann, so ist sie doch, wenigstens dem Ansehen nach, im Ganzen einer solchen sich sehr annähernd, und obgleich sie
-aich i- souche hier nie ai bi- Desiache sescheäntt ist, und ihr noch ein wesentlicher umstand, nahnnch di der
-Zelen durch eine anscheinend freemndarnge Susstanm, ermangel, so ist doh ggraad urch sie ein- Aehnncheen i z..
-sibirischen Eisen-Masse und eine Annäherung an dieselbe unverkennbar. Und so wie auf der andern Seite eine ähnliche, und,
-wie mir deucht, ganz unbestreitbare Annäherung der eigentlichen Meteor-Steine an dieselbe, ja, wie ich zu behaupten wage,
-durch die stark eisenhaltigen (wie jene von Eichstadt, Timochin, Tabor, bey welchen das Gediegeneisen nicht bloß in zerstreu-
-ten Körnern eingesprengt, sondern schon in mehr oder weniger zusammen hängenden Zacken, und nur von noch vorwaltender
-"oigehüut erscheine ein wahrer uebergang in dieselbe (umahl, wenn man die dichtern, mehr erdigen Partien,
-die sch a anchem größern Stücke von der sirischen Masse fnden, oder die ungleich weniger ästigen und zelligen, vorgeblich
-aus Sachsen uns orwegen herstammenden, der sibirischen übrigens höchst ähnlichen Eisen-Massen als Zwischenglieder berrach-
-ten n, ane tese., so fes elche nnr noch an ein vaar 3wischenguiedern (welche sich wohl noch sinden möchten, und
-wozu sich z. B. gieich die Brasilianer Eisen-Masse eignen dürfte, welche, obgleich im Ganzen dicht und derb, nach den neue-
-sten Reisebericheen der Bayer'schen Naturforscher, die selbe an Ort und Steue sahen, vou Gruben, Löcher und oberflächlicher
-indrncke n, . i, gect mie engerstie äan-- Sdlcren efaue sein sonen, n diesen auch bier sinnuich nachweisen u
-nen - haelch grosere erschirdnselr n ansern Ansehen sowehi, as in Aasregate- und ohasions-sun-.
-A2
+Die größte Dicke, von den erhabensten Stellen an beiden Flächen zusammen gemessen, beträgt 3 3/4 Zoll; an Stellen, wo zufällig von beiden Flächen Vertiefungen zusammen fallen, über einander zu liegen kommen, beträgt sie kaum 2, hie und da selbst kaum 1 Zoll; wo dieß nicht der Fall ist, kann man sie im Durchschnitt auf 3 Zoll annehmen. An den äußersten Rändern ist die Masse hie und da sehr dünn, kaum 1/2, selbst nur 1/4 Zoll dick; an einer Stelle beinahe sogar schneidend scharf.
 
+Die Vertiefungen und Eindrücke, welche sich auf der convexen Fläche zeigen, haben zwar viele Aehnlichkeit mit jenen, welche sich auf der Oberfläche der meisten Meteor-Steine finden, sind aber hier ungleich größer, tiefer, häufiger und zusammen hangender, so daß die rippenartigen Erhabenheiten, welche sie begränzen, gewisser Maßen ein unregelmäßiges und verworrenes Netz bilden, und der Oberfläche ein zellenförmiges Ansehen geben. Manche dieser Vertiefungen haben im Mittelpuncte 5 bis 7, und wenn man das Niveau von den zunächst liegenden höchsten Erhabenheiten nehmen will, 9 bis 15 Linien Tiefe bei einer Ausdehnung von 1 1/2 bis 2 1/2 Zoll im Durchmesser. In diesen größern Vertiefungen, welche meistens einen mehr oder weniger rundlichen, aber mehrfach ausgeschweiften Umriß, und bald eine Grube, bald eine Erhabenheit zum unregelmäßigen Mittelpuncte haben, liegen die seichteren, 1/2 bis 2, 3 Linien tiefen, daum- oder fingerartigen Eindrücke von verschiedener Größe, zu 3, 4 bis 5 unregelmäßig, bisweilen aber auch kreisförmig beisammen; inzwischen kommen solche Eindrücke auch einzeln oder isolirt außer den Vertiefungen vor. Die rippenartigen Erhabenheiten, welche durch diese Vertiefungen und Eindrücke gebildet werden, entsprechen der Stärke, Höhe und Dicke nach, der Tiefe derselben und ihrer wechselseitigen Entfernung von einander; und ihrer Ausdehnung und Richtung nach, nach welchen sie bald länger, bald kürzer, bald wellenförmig, bald unter verschiedenen Winkeln gebogen erscheinen, der Lage und Form derselben, und ihrer wechselseitigen Verbindung unter sich. Demnach haben die Erhabenheiten zwischen aneinander gränzenden Hauptvertiefungen oft mehrere Linien Höhe, und eine nicht minder beträchtliche Dicke, zumahl an ihrer Basis, und nicht selten ein paar Zoll Länge, in so fern ihr zusammen gedrückter, abgerundeter Rücken nicht durch isolirte Eindrücke unterbrochen, breit gedrückt und gewisser Maßen gedoppelt wird; die Erhabenheiten dagegen, welche die seichteren, in den größeren Vertiefungen liegenden, Eindrücke begränzen, sind nur sehr schwach, oft kaum merklich, und verflächen sich mit ihrer Basis nicht selten, ohne einen bedeutenden Rücken oder eine Kante gebildet zu haben. Es finden sich jedoch einige Erhabenheiten auf dieser Fläche, welche nicht, wenigstens nicht unmittelbar, durch Eindrücke entstanden zu sein scheinen, da sie solche nicht geradezu begränzen, und zapfen- oder zitzenförmig vorragen; und andere, welche zum Theil zwar durch Vertiefungen veranlaßt worden zu sein scheinen, indem sie zwischen solchen liegen, auch rippenartig, wie die meisten, gestaltet, aber höher und stärker sind, als sie, vermöge der Ausdehnung und Tiefe jener, gerade zu sein hätten.*
 
-### 0019
+*) Wenn gleich im strengen Sinne der Kunstsprache diese Beschaffenheit der Oberfläche keineswegs zellig, ästig und zackig genannt werden kann, so ist sie doch, wenigstens dem Ansehen nach, im Ganzen einer solchen sich sehr annähernd, und obgleich sie auch als solche hier nur auf die Oberfläche beschränkt ist, und ihr noch ein wesentlicher Umstand, nähmlich die Ausfüllung der Zellen durch eine anscheinend fremdartige Substanz, ermangelt; so ist doch gerade durch sie eine Aehnlichkeit dieser mit der sibirischen Eisen-Masse und eine Annäherung an dieselbe unverkennbar. Und so wie auf der andern Seite eine ähnliche, und, wie mir deucht, ganz unbestreitbare Annäherung der eigentlichen Meteor-Steine an dieselbe, ja, wie ich zu behaupten wage, durch die stark eisenhaltigen (wie jene von Eichstadt, Timochin, Tabor, bei welchen das Gediegeneisen nicht bloß in zerstreuten Körnern eingesprengt, sondern schon in mehr oder weniger zusammen hängenden Zacken, und nur von noch vorwaltender erdiger Masse eingehullt erscheint) ein wahrer Uebergang in dieselbe (zumahl, wenn man die dichtern, mehr erdigen Partien, die sich an manchem größern Stücke von der sibirischen Masse finden, oder die ungleich weniger ästigen und zelligen, vorgeblich aus Sachsen und Norwegen herstammenden, der sibirischen übrigens höchst ähnlichen Eisen-Massen als Zwischenglieder betrachten will) Statt findet; so fehlt es vielleicht nur noch an ein paar Zwischengliedern (welche sich wohl noch finden möchten, und wozu sich z. B. gieich die Brasilianer Eisen-Masse eignen dürfte, welche, obgleich im Ganzen dicht und derb, nach den neuesten Reisebericheen der Bayer'schen Naturforscher, die selbe an Ort und Steue sahen, vou Gruben, Löcher und oberflächlicher Eindrucke ist, die zum Theil mit eingekeilten Quarz?-Stucken erfullt sein sollen), um diesen auch hier sinnlich nachweisen zu konnen. Es findet eine ungleich grossere Verschiedenheit im aussern Ansehen sowohl, als im Aggregats- und Cohasions-Zustande ja selbst im qualitativen und quantitativen Verhältnisse der Gemeng- und Bestandtheile zwischen manchen Meteor-Steinen Statt, als zwischen jenen Massen. Ein in der mineralogischen Diagnostik geubtes Auge dürfte zwischen einem etwas grobkörnigen, eisenschüssigen Sandsteine, und einem etwas dichten, porphyrartigen Bimssteine wohl kaum mehr Verschiedenheit auffinden können, als z. B. zwischen den Meteor-Steinen von Eichstädt und von Stannern. Und doch läßt sich zwischen diesen letztern durch eine Reihe von Zwischengliedern, welche die allmähliche Abänderung des Aggregats- und Cohäsions-Zustandes, und die graduelle Zustandsveränderung mancher einzelnen Gemengtheile und deren allmähliches Hervortreten versinnlichen, ein augenccheinncher uesergang nachwoeiten, weches zun Thei bei Eeeiaruna der siebenten Tafel geschehen wird, und bei einer künftigen Veranlassung umständlicher geschehen soll.  
+Keine Verwandtschaft von Gattungen terrestrischer Fossilien versinnlicht wohl den Begriff einer Sippschaft (wie ich mich sehr bald uberzeugte, und daher dieses Ausdruckes schon bei Gelegenheit meiner Beschreibung der mährischen Aerolithen in Gilberts Annalen 1808 bediente, als ich zuerst auf die viel zu wenig beachtete Verschiedenheit der Meteor-Stein uberhaupt, und auf die doch zwischen ihnen bestehende Verwandtschaft vorläufig aufmerksam machte), selbst ganz rein oryktognostisch genommen, deutlicher, und bei weitem keine zeigt so ausgedehnte Gränzen und so heterogen scheinende Extreme bei so allmählichen Uebergangen, als die Meteor-Massen, und bei keiner Verwandtschaftsstufe terrestrischer Fossilien ist die Construirung einer so genannten Suite, in Werners Sinne, zu ihrer vollständigen Erkenntniß nothwendiger und an sich interessanter und lehrreicher.  
+Die Betrachtung der Meteor-Massen von dieser Seite, nähmlich von Seite ihrer so wesentlichen Verschiedenheit von einander, welche bisher, wie nun auch Chladni bemerkt, so wenig berücksichtigt wurde, obgleich noch weit auffallendere Beispiele, als das oben angeführte (z. B. die unter sich sowohl als von allen übrigen noch weit mehr als jene, und in vielfachen Beziehungen abweichenden Meteor-Steine von Alais, Chantonnay, Erxleben, Langres), Aufmerksamkeit hätten erregen sollen, --- und nach dieser ihrer Versippung unter einander: möchte wohl, wo nicht über den Ort, doch über die Art ihrer ursprünglichen Entstehung und Bildung, und über manche, noch lange nicht befriedigend erklärte Erscheinungen bei ihrem Niederfalle, einiges Licht geben, und vielleicht selbst manche unserer geognostischen und oryktognostischen Ansichten berichtigen.
 
-4
-Die Vertiefungen und Erhabenheiten, welche an der entgegen gesetzten ebenen Fläche gegen den Rand zu liegen,
-zumahl an der linken Seite (die Masse von dieser Fläche betrachtet) der obern Hälfte, gleichen ziemlich jenen der vori-
-gen Fläche, nur sind erstere seichter, minder ausgeschweift in ihrem Umrisse, und haben wenigere und breitere Ein-
-drücke, oder gleichen vielmehr selbst bloß aneinander stoßenden größeren Eindrücken, und die zwischen ihnen liegenden
-Erhabenheiten sind auch nur wenig erhaben und rippenartig, und verflächen sich mehr nach Art jener, welche einzelne
-seichte Eindrücke zu begränzen pflegen. Die drei großen ausgezeichneten Vertiefungen aber, welche in und gegen die
-Mitte, zumahl der untern Hälfte, dieser Fläche liegen, unterscheiden sich sehr von allen übrigen, und zwar nicht nur
-durch ihre Größe, indem die größte über 4 Zoll im Durchmesser mißt, und durch ihre geringe Tiefe, indem eben diese
-Vertiefung an der tiefsten Stelle kaum 6 Linien unter die horizontale Ebene der Fläche reicht, sondern vorzüglich da-
-durch, daß sie keinen runden, sondern einen unregelmäßigen, obgleich wenig ausgeschweiften Umriß, und sehr seichte,
-kaum merkliche, aber große und breit verlaufende, gleichsam in einander fließende Eindrücke haben, und daß sie, ein-
-zelne Stellen ausgenommen, wo sie an tiefere Randeindrücke gränzen, von keinen rippenartigen Erhabenheiten begränzt
-sind, sondern schief aufsteigend, allmählich in die ziemlich horizontalen Ebenen, die zwischen und an ihnen liegen, und
-die an den meisten Stellen selbst etwas weniges ausgehöhlt sind, übergehen (1).
-ja selbst im qualitativen und quantitativen Verhältnisse der Gemeng- und Bestandtheile zwischen manchen Meteor-Steinen
-Statt, als zwischen jenen Massen. Ein in der mineralogischen Diagnostik geubtes Auge dürfte zwischen einem etwas grobkörni
-gen, eisenschüssigen Sandsteine, und einem etwas dichten, porphyrartigen Bimssteine wohl kaum mehr Verschiedenheit auffin-
-den können, als z. B. zwischen den Meteor-Steinen von Eichstädt und von Stannern. Und doch läßt sich zwischen diesen letz-
-tern durch eine Reihe von Zwischengliedern, welche die allmähliche Abänderung des Aggregats- und Cohäsions-Zustandes,
-und die graduelle Zustandsveränderung mancher einzelnen Gemengtheile und deren allmähliches Hervortreten versinnlichen, ein
-augenccheinncher uesergang nachwoeiten, weches zun Thei bey Eeeiaruna der siebenten Tafel geschehen wird, und bey einer
-künftigen Veranlassung umständlicher geschehen sou.
-Keine Verwandtschaft von Gattungen terrestrischer Fossilien versinnlicht wohl den Begriff einer Sippschaft (wie ich mich sehr
-bal berzeugte, und daher dieses Ausdruckes schon dey Gelegenheit meiner Beschreibuna der mährischen Aerolithen in Gil-
-berts Annalen 1808 bediente, als ich zuerst auf die viel zu wenig beachtete Werschiedenvii der elese Steine aberhauvt,
-und auf die doch zwischen ihnen bestehende Verwandtschaft vorläufig aufmerksam machte), selbst ganz rein oryktognostisch ge-
-nommen, deutlicher, und bey weitem keine zeigt so ausgedehnte Gränzen und so heterogen scheinende Extreme bey so allmähli-
-n üslsäsens, i. dee metesr masien, nd ses trier eemäandrchafisinte eereäieicher Feslen inr die construirune
-einer so genannten Suite, in Werner's Sinne, zu ihrer vollständigen Erkenntniß nothwendiger und an sich interessanter
-und lehrreicher.
-Die Betrachtung der Meteor-Massen von dieser Seite, nähmlich von Seite ihrer so wesentlichen Verschiedenheit von ein-
-ander, welche bisher, wie nun auch Chladni bemerkt, so wenig berücksichtigt wurde, obgleich noch weit auffallendere Bey-
-spiele, als das oben angeführte (. B. die unter sich sowohl als von allen übrigen noch weit mehr als jene, und in vielfachen
-Beziehungen abweichenden Meteor-Steine von Alais, Chantonnay, Erxleben, Langres), Aufmerksamkeit hätten erregen sol-
-len, --- und nach dieser ihrer Versippung unter einander: möchte wohl, wo nicht über den Ort, doch über die Art ihrer ur-
-sprünglichen Entstehung und Bildung, und über manche, noch lange nicht befriedigend erklärte Erscheinungen bey ihrem Nie-
-erfaue, einiges eicht geben, und "elleicht selbst manche unserer geognostischen und oryktognostischen Ansichten berichtigen.
-(1) Die auffallende Verschiedenheit dieser Fläche von der entgegen gesetzten, welche offenbar zeigt, daß auch solche Massen wäh-
-rend ihees iederfauens noch eine esentuiche -- sey es auch nur eine oberflächliche -- Veränderung erleiden, wovon bey den
-ense eeinten, wenn se ach nsch se eieine Bncheiie- der zernlasten Feuerkugel sind, die un und un sie umgebend-
-Rinde den Beweis liefert, wäre hier schlechterdings nicht zu erklären, zumahl sie nur einen Theil, wenn gleich den größern,
-derselben betrifft, wenn man nicht annähme, was auch höchst wahrscheinlich ist, daß diese Fläche, oder vielmehr bloß jener
-Theil derselben, erst später gebildet worden, und zwar durch Lostrennung jenes zweiten zugleich herabgefallenen kleineren Stü-
-ckes, während dem Niederfallen, entstanden sey. Da jedoch dieses Stück nur 16 Pfund, demnach kaum den vierten Theil
-dieser vorhandenen Masse, gewogen haben soll, jener Theil dieser Fläche derselben aber, welchen sie nach obigem bedeckt haben
-müßte, eine Ausdehnung von 10 bis 12 Zoll an Länge und 4 bis 7 Zoll an Breite hat; so müßte jenes Stück sehr flach, und
-kaum einen Zou dick gewesen sein. Es heißt nun zwar in der Urkunde, dasselbe sey viel kleiner als die eingesendete Haupt-
-masse gewesen, doch wird auch darin erwähnt, daß dasselbe eine bey 2 Ellen weite, also eine selbst noch größere Spalte als
-jene, in die Erde gemacht habe, folglich wenigstens nach einer Richtung eine beträchtliche Ausdehnung gehabt haben müsse;
-auch erhellet aus der Urkunde, daß dasselbe zerstückelt worden sey, indem die Untersuchungs-Commission nur einen Theil da
-von erhielt: das Stück muß demnach wirklich sehr dünn gewesen sein, sonst wäre eine Zerstückelung oder auch nur Theilung
-desselben, bey der bekannten außerordentlichen Zähigkeit solcher Massen, nicht leicht möglich gewesen. Daß aber außer diesem
-Stücke noch mehrere sich losgetrennt haben und unbeobachtet niedergefallen sein sollten, ist wohl nicht wahrscheinlich, da so
-viele Augenzeugen auf dem Piane waren, die Feuerkugel im Zerplatzen, und die beyden Stücke, in welche sie sich theilte, im
-Niederfallen gesehen, und das eine Stück selbst auf 26eo Schrite entfernung (und eine noch größere Entfernung vom Punete
-des Niederfalls der Hauptmasse, folglich eine noch mehr parabolische Richtung in Falle eines Seackes ist, bey der geringen
-Höhe, auf der die Feuerkugel, weniastens im Momente des Zerplatzens, aestanden zu haben scheint, nnd sey der allenfalle
+Die Vertiefungen und Erhabenheiten, welche an der entgegen gesetzten ebenen Fläche gegen den Rand zu liegen, zumahl an der linken Seite (die Masse von dieser Fläche betrachtet) der obern Hälfte, gleichen ziemlich jenen der vorigen Fläche, nur sind erstere seichter, minder ausgeschweift in ihrem Umrisse, und haben wenigere und breitere Eindrücke, oder gleichen vielmehr selbst bloß aneinander stoßenden größeren Eindrücken, und die zwischen ihnen liegenden Erhabenheiten sind auch nur wenig erhaben und rippenartig, und verflächen sich mehr nach Art jener, welche einzelne seichte Eindrücke zu begränzen pflegen. Die drei großen ausgezeichneten Vertiefungen aber, welche in und gegen die Mitte, zumahl der untern Hälfte, dieser Fläche liegen, unterscheiden sich sehr von allen übrigen, und zwar nicht nur durch ihre Größe, indem die größte über 4 Zoll im Durchmesser mißt, und durch ihre geringe Tiefe, indem eben diese Vertiefung an der tiefsten Stelle kaum 6 Linien unter die horizontale Ebene der Fläche reicht, sondern vorzüglich dadurch, daß sie keinen runden, sondern einen unregelmäßigen, obgleich wenig ausgeschweiften Umriß, und sehr seichte, kaum merkliche, aber große und breit verlaufende, gleichsam in einander fließende Eindrücke haben, und daß sie, einzelne Stellen ausgenommen, wo sie an tiefere Randeindrücke gränzen, von keinen rippenartigen Erhabenheiten begränzt sind, sondern schief aufsteigend, allmählich in die ziemlich horizontalen Ebenen, die zwischen und an ihnen liegen, und die an den meisten Stellen selbst etwas weniges ausgehöhlt sind, übergehen.*
 
+*) Die auffallende Verschiedenheit dieser Fläche von der entgegen gesetzten, welche offenbar zeigt, daß auch solche Massen während ihees iederfauens noch eine esentuiche --- sei es auch nur eine oberflächliche --- Veränderung erleiden, wovon bei den Meteor-Steinen, wenn sie auch noch so kleine Bruchstücke der zerplatzten Feuerkugel sind, die un und un sie umgebende Rinde den Beweis liefert, wäre hier schlechterdings nicht zu erklären, zumahl sie nur einen Theil, wenn gleich den größern, derselben betrifft, wenn man nicht annähme, was auch höchst wahrscheinlich ist, daß diese Fläche, oder vielmehr bloß jener Theil derselben, erst später gebildet worden, und zwar durch Lostrennung jenes zweiten zugleich herabgefallenen kleineren Stückes, während dem Niederfallen, entstanden sei. Da jedoch dieses Stück nur 16 Pfund, demnach kaum den vierten Theil dieser vorhandenen Masse, gewogen haben soll, jener Theil dieser Fläche derselben aber, welchen sie nach obigem bedeckt haben müßte, eine Ausdehnung von 10 bis 12 Zoll an Länge und 4 bis 7 Zoll an Breite hat; so müßte jenes Stück sehr flach, und kaum einen Zou dick gewesen sein. Es heißt nun zwar in der Urkunde, dasselbe sei viel kleiner als die eingesendete Hauptmasse gewesen, doch wird auch darin erwähnt, daß dasselbe eine bei 2 Ellen weite, also eine selbst noch größere Spalte als jene, in die Erde gemacht habe, folglich wenigstens nach einer Richtung eine beträchtliche Ausdehnung gehabt haben müsse; auch erhellet aus der Urkunde, daß dasselbe zerstückelt worden sei, indem die Untersuchungs-Commission nur einen Theil da von erhielt: das Stück muß demnach wirklich sehr dünn gewesen sein, sonst wäre eine Zerstückelung oder auch nur Theilung desselben, bei der bekannten außerordentlichen Zähigkeit solcher Massen, nicht leicht möglich gewesen. Daß aber außer diesem Stücke noch mehrere sich losgetrennt haben und unbeobachtet niedergefallen sein sollten, ist wohl nicht wahrscheinlich, da so viele Augenzeugen auf dem Piane waren, die Feuerkugel im Zerplatzen, und die beiden Stücke, in welche sie sich theilte, im Niederfallen gesehen, und das eine Stück selbst auf 2000 Schrite entfernung (und eine noch größere Entfernung vom Puncte des Niederfalls der Hauptmasse, folglich eine noch mehr parabolische Richtung in Falle eines Seackes ist, bei der geringen Höhe, auf der die Feuerkugel, weniastens im Momente des Zerplatzens, aestanden zu haben scheint, nnd sei der allenfalls voraussetzbaren Projections-Kraft gegen die Centripedal-Kraft eines Körpers von solchem specifischen Gewichte, nicht wohl denkbar) sogleich aufgefunden wurde. Daß aber vollends die Hauptmasse im Momente des Auffallens auf festen Grund ihren Umfang verandert, sich abgeplattet, und demnach in die Breite und Lange ausgedehnt haben sollte, so dass jenes Stuck vor seiner ursprünglichen Lostrennung einen weit kieineren Fleck zu bedecken gehabt hätte, und folglich beträchtlich kleiner gewesen sein dürfte; diesem, an und fur sich, widerspricht niche nur bei gegenwärtigem individuellen Falle die ganze Beschaffenheit der Masse in allen Beziehungen, sondern es streitet überhaupt eine Menge von Gründen gegen die, einer solchen Annahme zur Basis dienende, Voraussetzung, und, wie es scheint, ziemlich allgemein angenommene Meinung, als kämen die Meteor-Massen jeder Art, Metalle wie Steine, in einem solchen Grade von Weichheit, ja selbst von Flüssigkeit zur Erde, wenn gleich andererseits niche in Abrede gestellt werden kann, dass, wenigtens bei letzteren, die Gemengeteile, und vielleicht selbst die entfernteren Bestandteile, sich vor und in den Momente des Niederfallens in einem ganz andern Cohäsions-Zustande befinden müssen, als die Steine im Ganzen kurze Zeit nachher erkennen lassen.  
+Um obige Muthmassung vollkommen zu bewähren, müsste das in Frage stehende Stück eben so contrastirende, und den Flächen unserer Hauptmasse respectiv entsprechende Oberflächen zeigen; und es wäre demnach sehr zu wünschen, das wenigstens ein Theil davon noch anfgefunden werden möchte, zu welchen Ende neuerdings Nachforschungen eingeleiret worden sind.
 
-### 0020
+Auf der convexen Fläche zeigen sich nebst ein paar zarten, engen, wahrhaften Nissen oder Sprüngen, welche sich über Erhabenheiten und Vertiefungen eine bedeutende Strecke von mehreren Zollen fortsetzen, theils gerade, theils gebogen und gezackt verlaufen, und, so weit es sich durch ein hinein gestecktes Blatt Papier messen läßt, wenigstens einige Linien tief sind, --- merkwürdige Einschnitte, die das Ansehen haben, als wären sie absichtlich durch ein meißel- oder hakenartiges Werkzeug hervor gebracht worden, aber keineswegs daher rühren können, da sie viel zu häufig und regelmäßig vorkommen, keinen der Schärfe eines schneidenden Instrumentes, sondern vielmehr einen der Beschafsenheit der Oberfläche der Eindrücke entsprechenden Grund, und abgerundete, der Beschaffenheit der Oberfläche der Erhabenheiten entsprechende, klaffende Ränder erkennen lassen. Es zeigen sich diese Einschnitte vorzüglich queer über dem Rücken, seltener nach der Länge der rippenartigen Erhabenheiten, nur wenige finden sich in der Tiefe der seichtern Eindrücke, und setzen sich über diese, wenn sie von Erhabenheiten kommen, auch nicht weit und seichter fort. Nur wenige haben die Länge von 1 bis 2 Zollen, die meisten nur von 3 bis 6 Linien, bei einer ziemlich gleichförmigen Tiefe von etwa 2/12 bis 3/12 Linie, und einer ähnlichen Weite, die nach der Tiefe, und meistens nach den beiden Enden hin, etwas abnimmt. Wenn man mit einem feinen spitzigen Instrumente die Tiefe verfolgt, so gelangt man nach Hinwegschaffung des den Naum ausfüllenden, gelben ochrigen Pulvers, oft erst in einer Tiefe von einer halben, ja beinahe ganzen Linie, auf den Grund, der entweder von dem Rindenhäutchen der Oberfläche bedeckt ist, das sich in jedem Falle an den Wänden bis hinab zieht, oder bisweilen Farbe und Glanz des Metalles zeigt. Sie laufen meistens schnurgerade, nur äußerst wenige sind nach den Krümmungen der Erhabenheiten etwas gebogen, und stehen meist einzeln, weit von einander entfernt, inzwischen doch auch bisweilen paarweise genähert, sich parallel oder in einen Winkel zusammen stoßend. Höchst merkwürdig ist, daß diese Einschnitte, so abgebrochen in ihrem Verlaufe und so zerstreut auf der Oberfläche der Masse sie auch erscheine, doch beinahe ohne Ausnahme in drei bestimmten, leicht erkennbaren Richtungen streichen, und einen Parallellismus und eine Winkeldurchkreuzung zeigen, welche, in so weit sie bestimmt und verglichen werden können, dem krystallinischen Gefüge der Masse, von dem in der Folge die Nede sein wird, zu entsprechen, oder wenigstens mit demselben in einigem Zusammenhange zu stehen scheinen.
 
-5
-Auf der convexen Fläche zeigen sich nebst ein paar zarten, engen, wahrhaften Nissen oder Sprüngen, welche sich
-über Erhabenheiten und Vertiefungen eine bedeutende Strecke von mehreren Zollen fortsetzen, theils gerade, theils ge-
-bogen und gezackt verlaufen, und, so weit es sich durch ein hinein gestecktes Blatt Papier messen läßt, wenigstens einige
-Linien tief sind, --- merkwürdige Einschnitte, die das Ansehen haben, als wären sie absichtlich durch ein meißel- oder
-hakenartiges Werkzeug hervor gebracht worden, aber keineswegs daher rühren können, da sie viel zu häufig und regel-
-mäßig vorkommen, keinen der Schärfe eines schneidenden Instrumentes, sondern vielmehr einen der Beschafsenheit der
-Oberfläche der Eindrücke entsprechenden Grund, und abgerundete, der Beschaffenheit der Oberfläche der Erhabenheiten
-entsprechende, klaffende Ränder erkennen lassen. Es zeigen sich diese Einschnitte vorzüglich queer über dem Rücken, sel-
-tener nach der Länge der rippenartigen Erhabenheiten, nur wenige finden sich in der Tiefe der seichtern Eindrücke, und
-setzen sich über diese, wenn sie von Erhabenheiten kommen, auch nicht weit und seichter fort. Nur wenige haben die
-Länge von 1 bis 2 Zollen, die meisten nur von 3 bis 6 Linien, bey einer ziemlich gleichförmigen Tiefe von etwa , bis
-Linie, und einer ähnlichen Weite, die nach der Tiefe, und meistens nach den beyden Enden hin, etwas abnimmt.
-Wenn man mit einem feinen spitzigen Instrumente die Tiefe verfolgt, so gelangt man nach Hinwegschaffung des den
-Naum ausfüllenden, gelben ochrigen Pulvers, oft erst in einer Tiefe von einer halben, ja beynahe ganzen Linie, auf den
-Grund, der entweder von dem Rindenhäutchen der Oberfläche bedeckt ist, das sich in jedem Falle an den Wänden bis
-hinab zieht, oder bisweilen Farbe und Glanz des Metalles zeigt. Sie laufen meistens schnurgerade, nur äußerst wenige
-sind nach den Krümmungen der Erhabenheiten etwas gebogen, und stehen meist einzeln, weit von einander entfernt, in-
-zwischen doch auch bisweilen paarweise genähert, sich parallel oder in einen Winkel zusammen stoßend. Höchst merk-
-würdig ist, daß diese Einschnitte, so abgebrochen in ihrem Verlaufe und so zerstreut auf der Oberfläche der Masse sie
-auch erscheine, doch beynahe ohne Ausnahme in drei bestimmten, leicht erkennbaren Richtungen streichen, und einen Pa-
-rallellismus und eine Winkeldurchkreuzung zeigen, welche, in so weit sie bestimmt und verglichen werden können, dem
-krystallinischen Gefüge der Masse, von dem in der Folge die Nede sein wird, zu entsprechen, oder wenigstens mit dem-
-selben in einigem Zusammenhange zu stehen scheinen.
-Die Masse hat im Ganzen eine schwärzlich-braune Farbe, welche kaum im geringsten die metallische Natur dersel-
-ben verräth. Alle Vertiefungen und Eindrücke, sowohl die auf der convexen als auch die gegen den Rand der ebenen
-Fläche und auf allen Rändern liegenden, so wie auch die Einschnitte auf der convexen Fläche, sind matt, und ihre
-Farbe zieht sich aus dem schwärzlich-braunen ins graue, erd- und rostbräunlich-gelbe, hie und da ins roströthlich-gelbe;
-die großen Vertiefungen aber mit ihren Eindrücken, und die zwischen und an ihnen liegenden flachen, nur etwas aus-
-gehöhlten Stellen auf der ebenen Fläche, haben eine sehr matte, rostbraune Farbe. Alle Erhabenheiten dagegen, wel-
-che diese Vertiefungen und Eindrücke an beyden Flächen und an allen Nändern begränzen, die klaffenden Ränder der
-Einschnitte an der convcxen Fläche, dann der äußerste Rand, mit welchem die großen Vertiefungen auf der ebenen Fläche
-in die angränzenden flächern Stellen übergehen, endlich der ganze linke Seitenrand dieser Fläche mit der obern Spitze,
-welcher gleichsam gegen die convexe Fläche hinüber gedrückt erscheint, haben eine fettige, etwas wachsähnliche, glän-
-zende, bräunlich-schwarze Farbe, welche an den äußersten Kanten, zumahl auf dem Rücken der rippen- und zapfenartigen
-Erhabenheiten, hie und da in eine rein metallisch eisengraue gleichsam übergeht. Der Art Stellen von rein metallischem
-Ansehen und Glanze, deren Farbe aus dem eisengrauen bald mehr ins Zink-, bald mehr ins Silberweiße sich zieht,
-voraussetzbaren Projections-Kraft gegen die Centripedal-Kraft eines Körpers von solchem specifischen Gewichte, nicht wohl
-denkbar) sogleich aufgefunden wurde. Daß aber vollends die Hauptmasse im Momente des Auffallens auf festen Grund ihren
-el seäneent, is daesen r, istc ina d. il s äie,e isesese sise,, s e .
-seiner ursprünglichen Lostrennung einen weit kieineren Fleck zu bedecken gehabt hätte, und folglich beträchtlich kleiner gewesen
-sein dürte, diesem, an und fur sich, widerspricht niche nur bey gegenwärtigem individuellen Falle die gan,e Beschafenheit
-äl sneen, .ä . enst ss dinten geen de, i- iiche Anain-
-zur Bani ienende, Voraussesung, und, wie es scheint, zmonich allgemein angenommene Meinung, as kämen die Meteor-
-is t nt eell s .7, se isliltnt . ns
-andererseits niche in Abrede gestellt werden kann, das, enigtens bey letzteren, die Gemengeheite, und vielleicht selbst die
-entfernteren Benandeheie, sich vor und in den Moment. de d ilederfalens in einem ganz andern Cohäsions-Zustande besin-
-den müsen, i di d,zne im Gazen urze gei- nachher eetennen lasen.
-un obine Muehnngstn, outomnen ,e tßaeyen, age, r drag- sechende Stack eben so contrastirende, und den
-Flächen unserer Hasnnaee espeeris enrerecheins es äre demnach sehr zn wünschen, das wenigstens
-ein Theil davon noch anfgefunden werden mschte, zu welchen ise neuerdings Nachforschungen eingeleiret worden sind.
-B
+Die Masse hat im Ganzen eine schwärzlich-braune Farbe, welche kaum im geringsten die metallische Natur derselben verräth. Alle Vertiefungen und Eindrücke, sowohl die auf der convexen als auch die gegen den Rand der ebenen Fläche und auf allen Rändern liegenden, so wie auch die Einschnitte auf der convexen Fläche, sind matt, und ihre Farbe zieht sich aus dem schwärzlich-braunen ins graue, erd- und rostbräunlich-gelbe, hie und da ins roströthlich-gelbe; die großen Vertiefungen aber mit ihren Eindrücken, und die zwischen und an ihnen liegenden flachen, nur etwas ausgehöhlten Stellen auf der ebenen Fläche, haben eine sehr matte, rostbraune Farbe. Alle Erhabenheiten dagegen, welche diese Vertiefungen und Eindrücke an beiden Flächen und an allen Nändern begränzen, die klaffenden Ränder der Einschnitte an der convcxen Fläche, dann der äußerste Rand, mit welchem die großen Vertiefungen auf der ebenen Fläche in die angränzenden flächern Stellen übergehen, endlich der ganze linke Seitenrand dieser Fläche mit der obern Spitze, welcher gleichsam gegen die convexe Fläche hinüber gedrückt erscheint, haben eine fettige, etwas wachsähnliche, glänzende, bräunlich-schwarze Farbe, welche an den äußersten Kanten, zumahl auf dem Rücken der rippen- und zapfenartigen Erhabenheiten, hie und da in eine rein metallisch eisengraue gleichsam übergeht. Der Art Stellen von rein metallischem Ansehen und Glanze, deren Farbe aus dem eisengrauen bald mehr ins Zink-, bald mehr ins Silberweiße sich zieht, finden sich von verschiedener Größe und Ausdehnung, doch meistens nur sehr klein, hin und wieder auch selbst in den Eindrücken der converen Fläche, am meisten aber und von ausgezeichnet silberweißer Farbe am übergebogenen untern Seitenrande der ebenen Fläche, der übrigens mit äußerst dünner, glatter, schwarzbrauner Rinde bedeckt ist. Die ganze Oberfläche der Masse, jene der großen Vertiefungen und der angränzenden flachen Stellen der ebenen Fläche ausgenommen, erscheint dem bloßen Auge beinahe glatt, bei näherer Betrachtung mit einer Loupe aber erscheint sie, und zwar in allen Vertiefungen und Eindrücken, äußerst fein gekörnt, chagrinartig rauh; an allen, dunklern und glänzendern, Erhabenheiten und Stellen dagegen mehr glatt und nur zart aderig, metallische Ramificationen bildend, die sich ziemlich weitschichtig, und meistens von dem Rücken der Erhabenheiten über die Verflächung zu beiden Seiten gegen die Eindrücke, welche sie begränzen, hin verlaufen; an den rein metallischen, glänzenden Stellen erscheint sie aber vollkommen glatt und spiegelich. Betrachtet man diese letztern Stellen genauer, so ersieht man bald, daß sie von einer äußerst zarten Decke oder Ninde entblößt sind, welche wie ein dünnes Oberhäutchen die ganze Masse umkleidet, sich über alle Vertiefungen und Erhabenheiten ziemlich gleichförmig ausdehnt, und jenes geaderte oder chagrinartig rauhe Ansehen der übrigen Oberfläche hervor bringt, und die hier an diesen Stellen, wie ihre Ausrandung zeigt, welche einen offenbaren gewaltsamen Bruch, bisweilen aber auch eine natürliche Begränzung erkennen läßt, entweder zufällig oder absichtlich abgerieben oder abgeschlagen, bisweilen aber auch in ihrer ursprünglichen Bildung unterbrochen worden ist.*
 
+*) Unverkennbar ist die Aehnlichkeit dieser Rinde, und überhaupt der Beschaffenheit der Oberfläche in dieser Beziehung, mit jener Meteor-Steine, zumahl aus der Suite der stark eisenhaltigen, wie z. B. der Steine von Eichstadt, Timochin, Tabor, Barbotan, L'Aigle zc., und in gewisser Beziehung der von Chantonnay, Erxleben und Ensisheim.
 
-### 0021
+So wenig auffallend jene verschiedenartige Beschaffenheit der Oberfläche, und insbesondere ihre Rauhigkeit, und die Eristenz dieser zarten Rinde, an der convexen Fläche sowohl, als auch an den, in den übrigen Beziehungen derselben entsprechenden und gleichartigen Stellen der entgegen gesetzten ebenen Fläche erscheinen, um so auffallender und in die Augen springender zeigen sie sich hier auf jenem Theile dieser Fläche, der auch in den übrigen Rücksichten so wesentlich von der Beschaffenheit der ganzen übrigen Oberfläche abweicht, und hier erscheint alles gleichsam nach einem vergrößerten Maßstabe.
 
-6
-finden sich von verschiedener Größe und Ausdehnung, doch meistens nur sehr klein, hin und wieder auch selbst in den
-Eindrücken der converen Fläche, am meisten aber und von ausgezeichnet silberweißer Farbe am übergebogenen untern
-Seitenrande der ebenen Fläche, der übrigens mit äußerst dünner, glatter, schwarzbrauner Rinde bedeckt ist. Die ganze
-Oberfläche der Masse, jene der großen Vertiefungen und der angränzenden flachen Stellen der ebenen Fläche ausgenom-
-men, erscheint dem bloßen Auge beynahe glatt, bey näherer Betrachtung mit einer Loupe aber erscheint sie, und zwar
-in allen Vertiefungen und Eindrücken, äußerst fein gekörnt, chagrinartig rauh; an allen, dunklern und glänzendern,
-Erhabenheiten und Stellen dagegen mehr glatt und nur zart aderig, metallische Ramificationen bildend, die sich ziemlich
-weitschichtig, und meistens von dem Rücken der Erhabenheiten über die Verflächung zu beyden Seiten gegen die Ein-
-drücke, welche sie begränzen, hin verlaufen; an den rein metallischen, glänzenden Stellen erscheint sie aber vollkom-
-men glatt und spiegelich. Betrachtet man diese letztern Stellen genauer, so ersieht man bald, daß sie von einer äußerst
-zarten Decke oder Ninde entblößt sind, welche wie ein dünnes Oberhäutchen die ganze Masse umkleidet, sich über alle
-Vertiefungen und Erhabenheiten ziemlich gleichförmig ausdehnt, und jenes geaderte oder chagrinartig rauhe Ansehen
-der übrigen Oberfläche hervor bringt, und die hier an diesen Stellen, wie ihre Ausrandung zeigt, welche einen offenba-
-ren gewaltsamen Bruch, bisweilen aber auch eine natürliche Begränzung erkennen läßt, entweder zufällig oder absichtlich
-abgerieben oder abgeschlagen, bisweilen aber auch in ihrer ursprünglichen Bildung unterbrochen worden ist (1).
-So wenig auffallend jene verschiedenartige Beschaffenheit der Oberfläche, und insbesondere ihre Rauhigkeit, und
-die Eristenz dieser zarten Rinde, an der convexen Fläche sowohl, als auch an den, in den übrigen Beziehungen dersel-
-ben entsprechenden und gleichartigen Stellen der entgegen gesetzten ebenen Fläche erscheinen, um so auffallender und in
-die Augen springender zeigen sie sich hier auf jenem Theile dieser Fläche, der auch in den übrigen Rücksichten so we-
-sentlich von der Beschaffenheit der ganzen übrigen Oberfläche abweicht, und hier erscheint alles gleichsam nach einem ver-
-größerten Maßstabe.
-Die körnig-rauhe Oberfläche der drei großen, und selbst einiger an dieselben gränzender kleinerer Vertiefungen
-zum Theil, so wie auch der zwischen jenen und an und um dieselben liegenden ebeneren Stellen, spricht sich hier dem
-unbewaffneten Auge, so wie dem Gefühle, sehr deutlich aus, und eben so auffallend erscheinen die glatten, rein me-
-tallischen, eisengrauen, nur durch neu entstandenen Eisenrost hie und da matt angeflogenen Flecken von beträchtlichem
-Umfange, die sich vorzüglich auf den ebeneren Stellen finden, und welche die ursprüngliche Bedeckung durch eine ähnliche
-körnig-rauhe (hier ganz unverkennbare, meist zufällig, und wohl noch mehr absichtlich abgeschlagene, oder vielmehr ab-
-geschälte) Rinde um so deutlicher erkennen machen, da sie an allen diesen Stellen durchgehends von ansehnlicher Dicke
-ist, die selten weniger als eine halbe Linie, gewöhnlich 4 Linien beträgt.
-Schon mit freyem Auge kann man hier erkennen, daß die Rauhigkeit dieser Rinde durch kleine und äußerst kleine
-rundliche Erhabenheiten oder Wärzchen hervor gebracht wird, welche unordentlich dicht an einander gehäuft, bisweilen in
-kurze Schnüre einzeln an einander gereihet, oder hie und da zu feinen Adern, und, wie wohl selten, zu größern Tropfen
-oder Flecken von verschiedener Form zusammen geflossen sind. Mit der Loupe betrachtet, erscheinen diese Erhabenheiten
-als einzelne, gleichsam aus der Masse ausgeschwitzte, aufsitzende Tröpfchen mit convexer, etwas rauher, gewisser Ma-
-ßen geträufter Oberfläche, von schwarzer Farbe und pechartigem Glanze, die an einander gereiheten oder mehr oder we-
-niger zu Adern zusammen geflossenen aber etwas abgeplattet, und die Zwischenräume sind mit einem erd- oder ocher-
-bräunlichen Cement ausgefüllt, welches, da diese sowohl an sich als zusammen genommen mehr Raum ausfüllen als
-jene Tröpfchen, eine solche rauhe Oberfläche im Ganzen rostbraun erscheinen machen.
-Ein mittelst eines Meißels losgetrenntes Blättchen solcher Rinde, das sich, wenn die Continuität einmahl unterbro-
-chen ist, an solchen Stellen sehr leicht von der glatten, selbst spiegelichen Oberfläche der Masse abschälen läßt, zeigt an den
-Bruchstellen gar keine schlackige oder poröse Beschaffenheit, sondern vielmehr, und zwar an den Bruchrändern, eine zart- und
-ziemlich geradfaserige Textur nach der Dicke des Blattes. Die Fasern scheinen durch ein ähnliches ocherartiges, bräunlich
-und röthlich-gelbes Cement verbunden, oder vielmehr selbst (durch Einwirkung der Luft, welche zwischen die Rauhig-
-keiten der Oberfläche eingedrungen sein konnte) in eine solche ocherartige Substanz verwandelt worden zu sein, und ge-
-(1) Unverkennbar ist die Aehnlichkeit dieser Rinde, und überhaupt der Beschaffenheit der Oberfläche in dieser Beziehung, mit je-
-der Meteor-Sreine, znahl aus der gart eisenhaltigen, wie z . der Steine von Eichstadt, Timochin, Tabor,
-Barbotan, L'Aigle zc., und in gewisser Beziehung der von Chantonnay, Erxleben und Ensisheim.
+Die körnig-rauhe Oberfläche der drei großen, und selbst einiger an dieselben gränzender kleinerer Vertiefungen zum Theil, so wie auch der zwischen jenen und an und um dieselben liegenden ebeneren Stellen, spricht sich hier dem unbewaffneten Auge, so wie dem Gefühle, sehr deutlich aus, und eben so auffallend erscheinen die glatten, rein metallischen, eisengrauen, nur durch neu entstandenen Eisenrost hie und da matt angeflogenen Flecken von beträchtlichem Umfange, die sich vorzüglich auf den ebeneren Stellen finden, und welche die ursprüngliche Bedeckung durch eine ähnliche körnig-rauhe (hier ganz unverkennbare, meist zufällig, und wohl noch mehr absichtlich abgeschlagene, oder vielmehr abgeschälte) Rinde um so deutlicher erkennen machen, da sie an allen diesen Stellen durchgehends von ansehnlicher Dicke ist, die selten weniger als eine halbe Linie, gewöhnlich 3/4 Linien beträgt.
 
+Schon mit freyem Auge kann man hier erkennen, daß die Rauhigkeit dieser Rinde durch kleine und äußerst kleine rundliche Erhabenheiten oder Wärzchen hervor gebracht wird, welche unordentlich dicht an einander gehäuft, bisweilen in kurze Schnüre einzeln an einander gereihet, oder hie und da zu feinen Adern, und, wie wohl selten, zu größern Tropfen oder Flecken von verschiedener Form zusammen geflossen sind. Mit der Loupe betrachtet, erscheinen diese Erhabenheiten als einzelne, gleichsam aus der Masse ausgeschwitzte, aufsitzende Tröpfchen mit convexer, etwas rauher, gewisser Maßen geträufter Oberfläche, von schwarzer Farbe und pechartigem Glanze, die an einander gereiheten oder mehr oder weniger zu Adern zusammen geflossenen aber etwas abgeplattet, und die Zwischenräume sind mit einem erd- oder ocherbräunlichen Cement ausgefüllt, welches, da diese sowohl an sich als zusammen genommen mehr Raum ausfüllen als jene Tröpfchen, eine solche rauhe Oberfläche im Ganzen rostbraun erscheinen machen.
 
-### 0022
+Ein mittelst eines Meißels losgetrenntes Blättchen solcher Rinde, das sich, wenn die Continuität einmahl unterbrochen ist, an solchen Stellen sehr leicht von der glatten, selbst spiegelichen Oberfläche der Masse abschälen läßt, zeigt an den Bruchstellen gar keine schlackige oder poröse Beschaffenheit, sondern vielmehr, und zwar an den Bruchrändern, eine zart- und ziemlich geradfaserige Textur nach der Dicke des Blattes. Die Fasern scheinen durch ein ähnliches ocherartiges, bräunlich und röthlich-gelbes Cement verbunden, oder vielmehr selbst (durch Einwirkung der Luft, welche zwischen die Rauhigkeiten der Oberfläche eingedrungen sein konnte) in eine solche ocherartige Substanz verwandelt worden zu sein, und gehen, in zarte Bündel zusammen gehäuft, kolbenförmig und meistens etwas nach einer Richtung gebogen, in jene schwarze Tröpfchen an der Oberfläche über. Ein von den Randerhebungen jener rauhen Vertiefungen und Stellen, und von dem Rücken der sie begränzenden Erhabenheiten (wo, wie bereits oben erwähnt worden, die Ninde immer dünner, obgleich hier nie so papier- oder vielmehr schneidig dünn, wie an jenen der convexen Fläche, schwärzer, etwas glänzend und beinahe glatt, auch dichter und fester erscheint) auf gleiche Art abgenommenes Rindenblättchen (was jedoch wegen der geringen Dicke und des stärkeren Zusammenhanges mit der Oberfläche hier schwerer und nur in kleinen Fragmenten bewirkt werden kann), zeigt an den Bruchrändern eine ähnliche, aber etwas zartere und mehr eine körnig-faserige Textur, und eine beinahe zinkweiße Farbe mit starkem, rein metallischem Glanze (wahrscheinlich weil hier wegen Dichtheit der Rinde an der Oberfläche die Luft nicht einwirken konnte), und die Fasern gehen unmittelbar in die eigentliche schwarze Rinde, die hier keine Wärzchen mehr erkennen läßt, indem diese bereits in ein Häutchen zusammengeflossen zu sein scheinen, über. An einigen Stellen, zumahl an solchen, wo die rauhe Rinde der Vertiefungen in die glatte der Erhebungen übergeht, und hier noch eine beträchtliche Dicke hat, erscheint sie an ihren Bruchrändern gewisser Maßen stratificirt, und zwar in drei, obgleich nur sehr schwach angedeuteten, ziemlich gleich dicken, horizontalen Schichten, wovon die oberste die eigentliche Rinde, und die unterste das Blatt, welches unmittelbar auf der Masse auflag, bildet, und welche beide in die mittlere, etwas dickere, ohne merkliche Unterbrechung der Richtung der Fasern, übergehen, nur durch eine äußerst zarte horizontale Linie von derselben getrennt scheinen, und sich bloß durch etwas schwächern metallischen Glanz und etwas veränderte Farbe von ihr unterscheiden, indem erstere mit schwarzen Rindetheilchen, die andere mehr oder weniger mit gelben oder braunen Ochertheilchen gemengt ist. Hie und da, sowohl an dem einen als dem andern Rindenblättchen, erscheinen die Fasern an den Bruchrändern bisweilen Speis- oder Messinggelb angelaufen, und diese Stellen zeigen gleichsam den Uebergang vom metallischen Zustande derselben in den ochrigen, nach dem verschiedenen Grade der Einwirkung der Luft; wie sie sich denn auch meistens dort finden, wo die rauhe Rinde in die glatte übergeht, folglich der Luft ein geringerer Zutritt gestattet wurde. Die Fläche, mit welcher diese Rindenblättchen überhaupt auf der Oberfläche der Masse aufsitzen, ist ganz dicht und ziemlich glatt, nur etwas unregelmäßig streifig, von mattem, metallischem Ansehen, und eisengrau, mit einem schwachen oberflächlichen Farbenanfluge von Blau, Roth und Messinggelb, wie Eisen, das längere Zeit an der Luft gelegen hat. Nur da, wo ein solches Blättchen sehr dünn eine erhabene Stelle bedeckte, und sehr dicht und fest aufsaß, erschien jene Fläche mehr oder weniger Zinkweiß und metallisch glänzend.*
 
-1
-hen, in zarte Bündel zusammen gehäuft, kolbenförmig und meistens etwas nach einer Richtung gebogen, in jene schwarze
-Tröpfchen an der Oberfläche über. Ein von den Randerhebungen jener rauhen Vertiefungen und Stellen, und von dem
-Rücken der sie begränzenden Erhabenheiten (wo, wie bereits oben erwähnt worden, die Ninde immer dünner, obgleich
-hier nie so papier- oder vielmehr schneidig dünn, wie an jenen der convexen Fläche, schwärzer, etwas glänzend und bey-
-nahe glatt, auch dichter und fester erscheint) auf gleiche Art abgenommenes Rindenblättchen (was jedoch wegen der ge-
-ringen Dicke und des stärkeren Zusammenhanges mit der Oberfläche hier schwerer und nur in kleinen Fragmenten be-
-wirkt werden kann), zeigt an den Bruchrändern eine ähnliche, aber etwas zartere und mehr eine körnig-faserige Textur,
-und eine beynahe zinkweiße Farbe mit starkem, rein metallischem Glanze (wahrscheinlich weil hier wegen Dichtheit der
-Rinde an der Oberfläche die Luft nicht einwirken konnte), und die Fasern gehen unmittelbar in die eigentliche schwarze
-Rinde, die hier keine Wärzchen mehr erkennen läßt, indem diese bereits in ein Häutchen zusammengeflossen zu sein schei-
-nen, über. An einigen Stellen, zumahl an solchen, wo die rauhe Rinde der Vertiefungen in die glatte der Erhebun-
-gen übergeht, und hier noch eine beträchtliche Dicke hat, erscheint sie an ihren Bruchrändern gewisser Maßen stratificirt,
-und zwar in drei, obgleich nur sehr schwach angedeuteten, ziemlich gleich dicken, horizontalen Schichten, wovon die
-oberste die eigentliche Rinde, und die unterste das Blatt, welches unmittelbar auf der Masse auflag, bildet, und welche
-beyde in die mittlere, etwas dickere, ohne merkliche Unterbrechung der Richtung der Fasern, übergehen, nur durch eine
-äußerst zarte horizontale Linie von derselben getrennt scheinen, und sich bloß durch etwas schwächern metallischen Glanz
-und etwas veränderte Farbe von ihr unterscheiden, indem erstere mit schwarzen Rindetheilchen, die andere mehr oder we-
-niger mit gelben oder braunen Ochertheilchen gemengt ist. Hie und da, sowohl an dem einen als dem andern Rindenblätt-
-chen, erscheinen die Fasern an den Bruchrändern bisweilen Speis- oder Messinggelb angelaufen, und diese Stellen
-zeigen gleichsam den Uebergang vom metallischen Zustande derselben in den ochrigen, nach dem verschiedenen Grade der
-Einwirkung der Luft; wie sie sich denn auch meistens dort finden, wo die rauhe Rinde in die glatte übergeht, folglich
-der Luft ein geringerer Zutritt gestattet wurde. Die Fläche, mit welcher diese Rindenblättchen überhaupt auf der Ober-
-fläche der Masse aufsitzen, ist ganz dicht und ziemlich glatt, nur etwas unregelmäßig streifig, von mattem, metallischem
-Ansehen, und eisengrau, mit einem schwachen oberflächlichen Farbenanfluge von Blau, Roth und Messinggelb, wie Ei-
-sen, das längere Zeit an der Luft gelegen hat. Nur da, wo ein solches Blättchen sehr dünn eine erhabene Stelle be-
-deckte, und sehr dicht und fest aufsaß, erschien jene Fläche mehr oder weniger Zinkweiß und metallisch glänzend (1).
 (1) So sehr das ganze äußere Ansehen dieser, so wie aller ähnlichen Massen meteorischen Ursprunges (selbst der Meteor-Steine),
 und i-besondere das erystalinische Gefaige des Eisens, au- den ar sene en, de da eha enchalten, nderiegtae einene
 sorrnnnch snnigen Zuslans dersieioen ooraus so widersorerh h n s esesen, neslsene. e sir den mnere.
