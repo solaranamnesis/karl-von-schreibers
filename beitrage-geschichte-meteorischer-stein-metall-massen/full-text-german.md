@@ -176,186 +176,64 @@ Auch die obern Endkanten stimmen an beiden Steinen darin überein, daß die von 
 
 Das Winkelmaß der meisten Kanten, in so weit dasselbe einiger Maßen bestimmbar ist, fällt zwischen 80 u. 115°.*
 
+*) Herr Graf v. Fries allhier besitzt zwei Steine von diesem Ereignisse, wovon der eine, beinahe vollkommen ganze und über 3 Pfund schwere, in seiner Form auffallend mit dem hier beschriebenen übereinstimmt, selbst in dem Umstande, daß zwei Seitensächen mit einer Ecke verlängert sind; der andere aber von 24 Loth am Gewichte, obgleich unvollkommen, sich doch auch jener Form sehr nähert.
+
 Die Rinde ist genau und in jeder Beziehung dieselbe, wie bei dem Steine von Tabor, nur im Ganzen etwas glatter, mehr klein und platt narbig als aderig, und etwas lichter braun, mit mehr bräunlichen und gelblichen Ocherflecken, aber fast ohne Spur von Gediegeneisen. Ihre Dicke ist im Ganzen fast noch etwas geringer; an Härte und Wirkung auf den Magnet kommt sie aber genau mit jener am Taborer-Steine überein.
 
 An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der oberen Endfläche, und an der größeren Ecke der Grundfläche, zeigt sich unvollkommene Rinde; aber nur an der letzteren Stelle scheint sie die Folge eines Verlustes an Masse, durch spätere Lostrennung eines Stückes, zu sein.
 
 Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, demnach sind dabei auch gleiche Rücksichten genommen, und derselbe auf seiner --- angenommenen --- Grundfläche liegend, von der einen breitern, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriß, die andere breite concave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht zu bringen.
 
-### Eichstädt.
+## Eichstädt.
 
-Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damahligen Directors-Adjuncten des k. k. Mineralien-Cabinettes, Abbe Stütz, mitgetheilt wurde, der es daselbst niederlegte.*
+Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damahligen Directors-Adjuncten des k. k. Mineralien-Cabinettes, Abbé Stütz, mitgetheilt wurde, der es daselbst niederlegte.*
+
+*) Es wurde dieses Stuck, wegen des offenbaren Gehaltes an Gediegeneisen, als des merkwürdigsten Gemengtheiles desselben, und mit ihm, aus gieichem Bestimmungsgrunde, der Stein von Tabor (so wie in der Folge der Stein von L'Aigle, und das Bruchstuck vom Mauerkirchner Meteor-Steine), der Agramer Eisen-Masse, und den vorhandenen Stücken vom sibirischen Eisen, beigesellt, und de ganze Suite, bei der eben um jene Zeit vorgenommenen neuen systematischen Einrichtung des Cabinettes, mit der Suite der Magneteisen-Steine vereinigt, in einen Schrank eingereihet.  
+Die Erhaltung dieses Stückes gab zu einem Aufsatze Veranlassung, welchen Abbé Stütz noch in demselben Jahre, 1789, in Form eines Breifes, in das eben angefangene periodische Werk eines von Born und Trebra gestifteten montanistischen Vereines (Bergbaukunde 2. Band, Leipzig 1790) einrucken liess, und welcher nicht nur die fruheste umstandlichere Nachricht von diesem Ereignisse, sondern auch die durch dasselbe angeregte und motivirte Bekanntmachung der höchst merkwürdigen Urkunde uber die Agramer Eisen-Masse, und zugleich auch eine Muthmaßung über den wahrscheinlichen Ursprung solcher angeblich aus der Luft gefallenen Massen enthält, die den damahligen Ansichten und dem allgemein herrschenden Unglauben --- wenigstens an eine ursprunglich uberirdische Entstehung derselben --- entsprechend, und in dieser Voraussetzung gerade bei diesen zwei dem Verfasser näher bekannt gewordenen Vorfallen (Agram nähmlich und Eichstädt, als wo nur einzelne Massen fielen) wirklich am annehmbarsten war. Eine Muthmaßung, die übrigens schon 20 Jahre früher von den Pariser Akademikern, mit Lavoisier an ihrer Spitze ausging, und 12 Jahre später noch (1802) von einem bekannten französischen Physiker (Patrin) bei Gelegenheit der Howard'schen Resultate und Folgerungen, und gegen dieselben, vertheidiget wurde.  
+Bruchstucke von diesem Eichstadter Steine gehoren ubrigens zu den seltensten und am wenigsten bekannten von allen Meteorolithen neuerer Zeit, indem die Total-Masse so unbedeutend war, und die Begebenheit selbst erst spat allgemeiner bekannt wurde. (Nähmlich lange nach Stütz, 1805 erst, gab Prof. Pickel zu Eichstädt Nachricht davon in v. Molls Annalen.) Ein großes Stuck davon befindet sich am Berg-Collegium in München, ein kleines besitzt Herr v. Moll daselbst, und kleine Fragmente finden sich meines Wissens in den durch Vollständigkeit in dieser Partie ausgezeichneten Sammlungen des Marquis De Drée in Paris, und des jüngst verstorbenen L. R. Lavaters in Zürich. Klaproth opferte ein erhaltenes Bruchstück der Analyse, und Chladni suchte vergebens ein Fragment für seine Sammlung aufzutreiben.
 
 Obgleich dieses Bruchstück, dem Gewichte nach, nur den 26sten Theil des ganzen Steines beträgt, so läßt sich doch aus den noch daran vorhandenen natürlichen, mit Rinde bedeckten Flächen welche ohne Zweifel Seitenflächen waren --- und aus deren Richtung, so wie aus der gemeinschaftlichen Kante, in welche dieselben zusammen stoßen, nicht nur auf eine regelmäßige, sondern selbst auf eine vierseitig pyramidale, und somit den vorhin beschriebenen Steinen von Tabor und L'Aigle sehr ähnliche Form, welche dieser Stein, als ganz, gehabt haben dürfte, mit aller Wahrscheinlichkeit schließen.
 
-*) Herr Graf v. Fries allhier besitzt zwei Steine von diesem Ereignisse, wovon der eine, beinahe vollkommen ganze und über 3 Pfund schwere, in seiner Form auffallend mit dem hier beschriebenen übereinstimmt, selbst in dem Umstande, daß zwei Seitensächen mit einer Ecke verlängert sind; der andere aber von 24 Loth am Gewichte, obgleich unvollkommen, sich doch auch jener Form sehr nähert.
+Die beiden überrindeten Flächen erheben sich nähmlich schief unter einem Winkel von 72° von der angenommenen breitern, freylich hier gebrochenen, Grundfläche (wie dieß bei einer der größern schiefern Seitenflächen des Taborer Steines wirklich beiläufig auch der Fall ist), und verschmählern sich offenbar nach oben, lassen also keinen Zweifel über die ursprünglich pyramidale Form des Steines.
 
-(2) Es w. ie ack, wegen des offenbaren Gehaltes an Gediegeneisen, als des merkwürdigsten Gemengtheiles desselben, und
-mit ihm, aus gieichem Bestimmungsgrunde, der Stein von Tabor (so wie in der Folge der Stein von 'Aigle, und das
-Bruchstuck vo anrkirchner Meteor-Steine), der Agramer Eisen-Masse, und den vorhandenen Stücken vom sibirischen Eisen,
-bygesellt, und de nze Suite, bey der en un iene Zeit vorgenommenen neuen systematischen Einrichtung des Cabinettes,
-mit der Suite der Magneteisen-Steine vereinigt, in einen Schrank eingereihet.
-Die Erhaltung dieses Stückes gab zu einem Aufsatze Veranlassung, welchen Abbé Stütz noch in demselben Jahre, 1789,
-in Form ern eines Beieses, , as eben angefangene peniodische eae nies on uns ..s-a gestifteren ontanistischen
-öläe esersamei. . , Lmns, ,n, nineen iee, eicher nnih nnr die feiense unntänduichere achrich-
+Sie stoßen ferner unter einem Winkel von 116° beiläufig, in eine gemeinschaftliche Kante zusammen (bemerkenswerth, daß am Taborer Steine bei einer stumpf abgerundeten gemeinschaftlichen Kante zweier Seitenflächen ein ähnlicher Winkel von 115° vorkommt); verlängert man sich nun diese beiden Seitenflächen, wovon hier nur ein Theil, und zwar im Mittel, von 12 und 15 Linien vorhanden, nach ihrer offenbaren Richtung bis an ihre höchst wahrscheinliche ursprüngliche Gränze von Ausdehnung in die Breite, d. i. auf etwa 4 Zoll (welche Größe* der Stein, als Cubus genommen, nach seinem absoluten Gewichte und dem specifischen = 3,7 beiläufig gehabt haben möchte); so kömmt, wenn man kein sehr ungleichseitiges Prisma, oder ganz willkührlich, eine polyedrische Gestalt sich denken will --- wogegen dieser so sehr regelmäßige Theil des Ganzen, und in gewisser Beziehung das angegebene Maß des Steines selbst, streitet -- ein verschobenes Viereck heraus, das höchst wahrscheinlich ungleichseitig war, und eine vorspringende Ecke hatte, weil sonst- nach obigen Gewichtsverhältnissen -- beinahe bei keiner andern denkbaren Form des Steines, mit welcher sich die Gestalt dieses Bruchstücks vereinigen ließe, ein Durchmesser von 6 Zoll (wie doch ausdrücklich angegeben wird) sich ergeben könnte.
 
-### 0029
+*) Nach Stütz Nachricht, die sich auf eine schriftliche Mittheilung des B. Hompesch gründet, hatte der Stein ungefähr einen halben Schuh im Durchmesser. (Chladni gibt, wahrscheinlich aus einem kleinen Versehen im Niederschreiben, einen Schuh an.) Dieses kann, nach den Gewichtsverhältnissen, nur in so fern gegründet sein, als man damit den längsten meinte, etwa von einer Ecke queer zur entgegen gesetzten gemessen, und dann müßte selbst noch, wie oben erwähnt, eine Ecke etwas verlängert gewesen sein, und wenn der Stein wirklich pyramidal war, dessen Höhe kaum mehr als 3 Zolle betragen haben.
 
-14
-ren -- und aus deren Richtung, so wie aus der gemeinschaftlichen Kante, in welche dieselben zusammen stoßen, nicht
-nur auf eine regelmäßige, sondern selbst auf eine vierseitig pyramidale, und somit den vorhin beschriebenen Steinen von
-Tabor und L'Aigle sehr ähnliche Form, welche dieser Stein, als ganz, gehabt haben dürfte, mit aller Wahrschein-
-lichkeit schließen.
-Die beyden überrindeten Flächen erheben sich nähmlich schief unter einem Winkel von 72 von der angenommenen
-breitern, freylich hier gebrochenen, Grundfläche (wie dieß bey einer der größern schiefern Seitenflächen des Taborer
-Steines wirklich beyläufig auch der Fall ist), und verschmählern sich offenbar nach oben, lassen also keinen Zweifel über
-die ursprünglich pyramidale Form des Steines.
-Sie stoßen ferner unter einem Winkel von 1160 beyläufig, in eine gemeinschaftliche Kante zusammen (bemerkens-
-werth, daß am Taborer Steine bey einer stumpf abgerundeten gemeinschaftlichen Kante zweier Seitenflächen ein
-ähnlicher Winkel von 115 vorkommt); verlängert man sich nun diese beyden Seitenflächen, wovon hier nur ein Theil,
-und zwar im Mittel, von 12 und 15 Linien vorhanden, nach ihrer offenbaren Richtung bis an ihre höchst wahrscheinliche
-ursprüngliche Gränze von Ausdehnung in die Breite, d. i. auf etwa 4 Zoll (welche Größe (1) der Stein, als Cubus
-genommen, nach seinem absoluten Gewichte und dem specifischen - 3,7 beyläufig gehabt haben möchte); so kömmt,
-wenn man kein sehr ungleichseitiges Prisma, oder ganz willkührlich, eine polyedrische Gestalt sich denken will --- woge-
-gen dieser so sehr regelmäßige Theil des Ganzen, und in gewisser Beziehung das angegebene Maß des Steines selbst,
-streitet -- ein verschobenes Viereck heraus, das höchst wahrscheinlich ungleichseitig war, und eine vorspringende Ecke
-hatte, weil sonst- nach obigen Gewichtsverhältnissen -- beynahe bey keiner andern denkbaren Form des Steines, mit
-welcher sich die Gestalt dieses Bruchstücks vereinigen ließe, ein Durchmesser von 6 Zoll (wie doch ausdrücklich angege-
-ben wird) sich ergeben könnte.
-Die beyden überrindeten Flächenreste sind übrigens fast ganz flach und eben, besonders die eine; die andere hat nur
-ein paar etwas seichte Stellen, die man kaum Eindrücke nennen kann.
-Die Rinde ist im Ganzen wie an den Steinen von Tabor und L'Aigle, nur etwas dunkler schwarzbraun, und
-mehr kurzaderig-runzlich als narbig, und am ähnlichsten jener an den Steinen von Timochin und Tipperary.
-Sie ist merklich dicker als an irgend einem mir bekannten Meteor-Steine (auch hierin kömmt, wenigstens stellenweise,
-die an den Steinen von Timochin und Tipperary ihr am nächsten), zumahl an einer dieser Flächen, wo sie bey-
-nahe eine halbe Linie erreicht (2).
-Ihre Härte ist etwas geringer als die der Rinde der Steine von Tabor und L'Aigle, doch gibt sie ziemlich
-leicht am Stahle Funken; dagegen wirkt sie merklich stärker auf die Magnetnadei, uno jetzt oiesewe fan auf 4 Zol
-von diesem Ereignisse, sondern auch die durch dasselbe angeregte und motivirte Bekanntmachung der höchst merkwürdigen Ur-
-rnde aber e ngräni Eien ane, und zugleich auch ene Muthmaßung über den wahicheinuichen urssrun solcher angeb-
-ich aus der Luft gefauenen Massen enthält, die den damahligen Ansichten und dem allgemein herrschenden unglauben - we-
-nnens an eine rsorunglich beeiedische entstehuna derselben -- entsprechend, und in dieser Voraussesung gerade bey diesen
-zwei dem Verfasser näher bekannt gewordenen Vorfallen (Agram nähmlich und Eichstädt, als wo nur einzelne Massen fielen)
-wirklich am annehmbarsten war. Eine Muthmaßung, die übrigens schon 20 Jahre früher von den Pariser Akademikern, mit
-Lavoisier an ihrer Spitze ausging, und 12 Jahre später noch (1802) von einem bekannten französischen Physiker (Patrin)
-bey Gelegenheit der Howard'schen Resultate und Folgerungen, und gegen dieselben, vertheidiget wurde.
-rmchsäcke on ese ichsidter Steine gehören bsnens den seltengen cs a sentgsten derannten von alen M-
-teorolithen neuerer Zeit, indem die Total-Masse so unbedeutend war, und die Begebenheit seint erst spat augemeiner bekannt
-wurde. (Nähmlich lange nach Stütz, 1805 erst, gab Prof. Pickel zu Eichstädt Nachricht davon in v. Moll's Annalen.)
-Ein großes Säek davon besindet sich am Berg-Collegium in München, ein kleines besitzt Herr v. Moll daselbst, und kleine
-Feagnente fnden sicb meines Wisens in den durch olständigteit in dieser partie ausgezeichneten Sammlungen des Maraus
-De Drée in Paris, und des jüngst verstorbenen L. R. Lavater's in Zürich. Klaproth opferte ein erhaltenes Bruch-
-stück der Analyse, und Chladni suchte vergebens ein Fragment für seine Sammlung aufzutreiben.
-(1) Nach Stütz Nachricht, die sich auf eine schriftliche Mittheilung des B. Hompesch gründet, hatte der Stein ungefähr einen
-halben Schuh im Durchmesser. (Chladni gibt, wahrscheinlich aus einem kleinen Versehen im Niederschreiben, einen Schuh
-an.) Dieses kann, nach den Gewichtsverhältnissen, nur in so fern gegründet sein, als man damit den längsten meinte,
-etwa von einer Ecke queer zur entgegen gesetzten gemessen, und dann müßte selbst noch, wie oben erwähnt, eine Ecke etwas
-verlängert gewesen sein, und wenn der Stein wirklich pyramidal war, dessen Höhe kaum mehr als 3 Zolle betragen haben.
-(2) Stütz gibt aus Versehen, weil er wahrscheinlich vergaß die Betrachtung mit einer Handloupe, die wohl drei bis vier Mahl
-vergrößert haben mag, angestellt zu haben, die Dicke auf 2 Linien an.
+Die beiden überrindeten Flächenreste sind übrigens fast ganz flach und eben, besonders die eine; die andere hat nur ein paar etwas seichte Stellen, die man kaum Eindrücke nennen kann.
 
+Die Rinde ist im Ganzen wie an den Steinen von Tabor und L'Aigle, nur etwas dunkler schwarzbraun, und mehr kurzaderig-runzlich als narbig, und am ähnlichsten jener an den Steinen von Timochin und Tipperary. Sie ist merklich dicker als an irgend einem mir bekannten Meteor-Steine (auch hierin kömmt, wenigstens stellenweise, die an den Steinen von Timochin und Tipperary ihr am nächsten), zumahl an einer dieser Flächen, wo sie beinahe eine halbe Linie erreicht.*
 
-### 0030
+*) Stütz gibt aus Versehen, weil er wahrscheinlich vergaß die Betrachtung mit einer Handloupe, die wohl drei bis vier Mahl vergrößert haben mag, angestellt zu haben, die Dicke auf 2 Linien an.
 
-15
-Entfernung in Bewegung. (Auch in diesen beyden Eigenschaften steht ihr die Rinde an den Steinen von Timochin
-und Tipperary am nächsten.) Und sie gibt dadurch nicht allein, sondern auch durch häufige, etwas erhabene eisen-
-graue metallische Puncte und kleine Flecke von abgeplatteten Spitzen und Zacken, den starken Gehalt dieses Steines
-an Gediegeneisen zu erkennen (1).
-Die Darstellung dieses Bruchstückes ist, der Absicht gemäß, und nach den bereits erwähnten Rücksichten, von den
-beyden mit Ninde bedeckten natürlichen Flächenresten, und von der gemeinschaftlichen Kante, in welche sie zusammen sto-
-ßen, genommen.
-Siena.
-G, Bruchstück, oder vielmehr höchst wahrscheinlich (nach Größe, Form, Richtung und Ausdehnung der vorhandenen,
-natürlichen, mit Rinde bedeckten Flächen) wenigstens die Hälfte eines (ursprünglich etwa 3 bis 4 Loth schwer gewese-
-nen) mittelgroßen Steines, von 7 Quentchen am Gewichte, von dem am 16. Junius 1794, Abends nach 7 Uhr, bey
-Siena im Toskanischen Statt gehabten beträchtlichen Steinniederfalle (2).
-General Tihavsky, der sich eben damahls zur Zeit des Ereignlsses in Neapel befand, erhielt dieses Stück
-von dem ebenfalls da anwesenden gelehrten Engländer Thomson, welchem es von Soldani aus Siena zuge-
-schickt wurde, und brachte es bey seiner Nückkehr mit nach Wien; aber erst als der Steinfall bey Stannern die Auf-
-merksamkeit der Physiker, zumahl in Wien, neuerdings und so mächtig in Anspruch nahm, ward es zur Sprache ge-
-bracht, und von dem gefälligen Besitzer auf mein Ansuchen dem kaiserlichen Cabinette zum Geschenke gemacht.
-Es ist zwar an diesem Steine an zwei Stellen, und zwar, wie es scheint, mit bestimmter Vorsicht, Masse ab-
-geschlagen worden, und die beyden solcher Gestalt entstandenen, ziemlich großen, und unter einem Winkel von 85 zu-
-sammen stoßenden frischen Bruchflächen lassen zwar an und für sich ihre ursprüngliche Gestalt, Beschaffenheit, Richtung
-und Ausdehnung nicht mohl errathen; doch läßt sich aus der Form des vorhandenen Stückes, und den drei mit Rinde
-bedeckten Seitenflächen, und der noch ganz vollkommenen Endspitze, mit aller Wahrscheinlichkeit darauf schließen, und
-es scheint nach dieser Ansicht die eine dieser Bruchflächen die vierte größere gewölbte Seitenfläche, die andere die untere
-End- oder Grundfläche des Steines gewesen zu sein. Und bey dieser Annahme erscheint die ursprüngliche Form dieses
-(1) Es ist dieser Meteor-Stein nicht nur der Gehaltreichste an Gediegeneisen, wie dieß auch das specifische Gewicht bewährt (das
-nach meiner Wiegung zwischen 3,600 und 3,730 schwankt, und worin ihm nur die Steine von Tipperary nach Higgins,
-und von Timochin nach Klaproth gleich zu kommen scheinen, und die Steine von Charsonville nach Hauy, und von
-Tabor nach eigener Wiegung - denn der Bourn on'schen Gewichtsangabe zu ,2s iege nensar ein Bersehen oder de-
-umstand zum Grunde, daß das gewogene Stück zufällig ein großes Eisentorn einschloß - nahe kommen), sondern er ent-
-halt dasselbe auch in den größten, massivesten (obgleich mner noch sehr zarten), und hie und da wirklich ästig verbundenen
-und zusammen hängenden Zacken, wie sich am deutlichsten an einer abgeschliffenen Fläche erkennen läßt. Es bedarf in der
-That wohl kaum mnehr eines wischengledes, n den uebergang der Mase dieses Steines in ene des sibirischen Eisens (zu-
-mahl in die dichtern, weniger zelligen, und mehr erdig-ochrigen Partien desselben, und der angeblich norwegischen und säch-
-siäss en in dnsn ärimltsiosiaeei,- eis,-,i .i eietss ässe lss essl
-(wofür man, nach äußerm Ansehen, Art der Einmengung, nach den physischen Eigenschaften und chemischen Bestandtheilen,
-dinnenti zeshsan sh- ius issi äs sele en-
-das sich mehr oder weniger und in verschiedenen Graden von Aidung, e Erktärung der siebenten Tafel gezeigt
-werden wird, in alen Meteor-Steinen sindet -- zu erkennen nicht anstehen kann) so sehr prädominirt, daß derselbe mit den
-Metaultheilchen gut ; der Gesammtmasse berrägt.
-( ct a , er der Steinniederfaue nel.e ie, von welchem die Producte ziemlich bekannt und verbreitet wurden, ob-
-gleich man die Realität der Begebenheit, trotz einer gepflogenen legalen Untersuchung, und die Herkunft und den überirdischen
-üäsi s s inin r 3etr de- eieglit iis, ei- deseei. ltin dir- sgesenhel- naicht- de- ansehn-, "s-
-beden s zeien einige hundere, e ein ur tiene, oder doch nur mittelgroße, einige Lothe, auch nur wenige
-Quentchen schwere Steine nur einzelne wenige wogen 3 bis, Pfund -- auf einen Flächenraum von 2 bis 3 italienischen
-Meilen, s ih sey Tage und vor vieten ngenzengen ereignere; von angesehenen Gelehrten, Tata, Soldani, Spal-
-i.n n t, es zc-n, .nai.n.
-esse"s ss n sl ss.. sc si .ann., u esse, isren eraialesnune.-
-noch mehr Celebrität im Auslande verschafften. Es finden sich demnach Belege von diesem Ereignisse in vielen Sammlungen,
-ahne ich im na- rit ondon, de- de Deseichen aannnnung i paris, n i senen Cbtadnts, easa-
-ter's, Blumenbach's, Klaprotb's e.
-D 2
+Ihre Härte ist etwas geringer als die der Rinde der Steine von Tabor und L'Aigle, doch gibt sie ziemlich leicht am Stahle Funken; dagegen wirkt sie merklich stärker auf die Magnetnadei, uno jetzt oiesewe fan auf 3/4 Zoll Entfernung in Bewegung. (Auch in diesen beiden Eigenschaften steht ihr die Rinde an den Steinen von Timochin und Tipperary am nächsten.) Und sie gibt dadurch nicht allein, sondern auch durch häufige, etwas erhabene eisengraue metallische Puncte und kleine Flecke von abgeplatteten Spitzen und Zacken, den starken Gehalt dieses Steines an Gediegeneisen zu erkennen.*
 
+*) Es ist dieser Meteor-Stein nicht nur der Gehaltreichste an Gediegeneisen, wie dieß auch das specifische Gewicht bewährt (das nach meiner Wiegung zwischen 3,680 und 3,730 schwankt, und worin ihm nur die Steine von Tipperary nach Higgins, und von Timochin nach Klaproth gleich zu kommen scheinen, und die Steine von Charsonville nach Hauy, und von Tabor nach eigener Wiegung --- denn der Bournon'schen Gewichtsangabe zu 4,28 liegt offenbar ein Versehen oder der Umstand zum Grunde, daß das gewogene Stück zufällig ein großes Eisenkorn einschloß --- nahe kommen), sondern er enthalt dasselbe auch in den größten, massivesten (obgleich immer noch sehr zarten), und hie und da wirklich ästig verbundenen und zusammen hängenden Zacken, wie sich am deutlichsten an einer abgeschliffenen Fläche erkennen läßt. Es bedarf in der That wohl kaum mnehr eines Zwischengliedes, um den Uebergang der Masse dieses Steines in jene des sibirischen Eisens (zumahl in die dichtern, weniger zelligen, und mehr erdig-ochrigen Partien desselben, und der angeblich norwegischen und sächsischen Massen im Ganzen) sinnlich nachzuweisen, um so weniger, als in derselben bereits auch der olivinartige Gemengtheil (wofür man, nach äußerm Ansehen, Art der Einmengung, nach den physischen Eigenschaften und chemischen Bestandtheilen, das mandelsteinartig eingemengte, gleichsam in rundlichte Zellen eingeschlossene und meist von Gediegeneisen umgebene Fossil --- das sich mehr oder weniger und in verschiedenen Graden von Ausbildung, wie bei Erklärung der siebenten Tafel gezeigt werden wird, in alen Meteor-Steinen findet --- zu erkennen nicht anstehen kann) so sehr prädominirt, daß derselbe mit den Metalltheilchen gut 2/3 der Gesammtmasse beträgt.
 
-### 0031
+Die Darstellung dieses Bruchstückes ist, der Absicht gemäß, und nach den bereits erwähnten Rücksichten, von den beiden mit Rinde bedeckten natürlichen Flächenresten, und von der gemeinschaftlichen Kante, in welche sie zusammen stoßen, genommen.
 
-16
-Steines nicht nur sehr regelmäßig als verschobene und ungleichseitig vierseitige Pyramide mit durch drei Flächen zuge-
-spitzter Endspitze, sondern auffallend übereinstimmend mit jener des auf der vierten Tafel vorgestellten großen Steines
-von Stannern, um so mehr, als die Grundfläche ebenfalls ein ähnlich verschobenes Viereck mit einer stark vorspringen-
-den Ecke gebildet zu haben scheint, und die Endspitze durch eine ähnliche Nichtung und Ausdehnung der Zuspitzungs-
-flächen ebenfalls aus dem Mittel gerückt ist, und durch die zwei breitern gegen über stehenden Zuspitzungsflächen zu ei-
-ner Kante gebildet wird.
-Die vorhandenen, mit Rinde bedeckten Seitenflächen, stehen ziemlich senkrecht auf der als Grundfläche betrachte-
-ten Bruchfläche: die eine, breiteste, ist fast eben; die nächste, kleinste von allen, welche mit voriger unter einem Win-
-kel von etwa 80 jene gemeinschaftliche Kante bildet, auf welche die Zuspitzungsfläche aufgesetzt ist, ist etwas concav;
-die dritte, welche unter einem sehr stumpfen Winkel von beynahe 135 mit letzterer zusammen stößt, ist etwas gewölbt.
-Die eine auf die Kante aufgesetzte Zuspitzungsfläche bildet ein auf eine Ecke gestelltes Rhomboid, ist die kleinste und et-
-was vertieft; die beyden andern sind breiter und größer, sehr unregelmäßig gestaltet, und, zumahl die eine, fast ganz
-eben. Sie stoßen unter einem Winkel von 90 in die gemeinschaftliche Endkante zusammen. Alle Flächen haben nur
-wenige, kaum bemerkbare, seichte, kleine Eindrücke (1).
-Die Rinde ist besonders zart und dünne, beynahe kohlschwarz, etwas ins Graue ziehend, von wenigem und mat-
-tem, aber etwas seidenartigen, stellenweise schimmernden Glanze, und von gar keinem Ansehen, das einen Metallgehalt
-verriethe. Sie ist übrigens sehr zart rauh, fein und eng, kurz und verworren, runzlicht-aderig, und voll zarter Risse,
-welche unregelmäßige Felder bilden. Sie hat die meiste Aehnlichkeit einerseits mit der Rinde an den Steinen von Lissa,
-Agen, York, andererseits mit jener an den Steinen von Parma und Benares, und zeigt überhaupt von dem
-geringen Metallgehalt der Masse, welchen auch das specifische Gewicht vermuthen läßt (3,3 bis 3,4). Sie gibt am
-Stahle nur schwer und schwache Funken, und wirkt auch nur schwach auf die Magnetnadel, kaum auf , Linie Ent-
-fernung.
-Die Abbildung zeigt diesen Stein auf die eine, als untere End- oder Grundfläche betrachtete Bruchfläche aufge-
-stellt, von der gemeinschaftlichen Kante, in welche die einen zwei mit Rinde bedeckten Flächen zusammen stoßen, und
-auf welche die eine Zuspitzungsfläche aufgesetzt ist, die mit den beyden andern breitern, welche schief auf den Seitenflä-
-chen aufsitzen, die kantige Endspitze bildet.
-(1) Die kaiserl. Sammlung besitzt außer diesem noch zwei vollkommen ganze, obgleich nur sehr kleine Steine von dieser Begeben-
-heit. Der eine, um und um mit vollkommener, und nur an einer Ecke mit unausgebildeter Rinde bedeckte, der nur ein
-Quentchen wiegt, zeigt der Form nach, trotz seiner Kleinheit, eine auffallende Aehnlichkeit mit den beschriebenen Steinen von
-Tabor und von LAigle, indem er, selbst hinsichtlich der gewölbten Grundfläche, und der einen stark vorspringenden Ecke, eine
-ähnliche, verschoben und ungleichseitig vierseitige, abgestumpfte, niedere Pyramide bildet. Der andere, etwas größere, von
-2z Quentchen am Gewichte, der nur an einem Ende etwas verbrochen ist, und an einer Fläche und an zwei andern kleinen
-Stellen unvollkommene Rinde zeigt, hat eine Form, die sich jener des nächst zu beschreibenden Steines von Lissa sehr nähert.
-Die Rinde an diesen beyden Steinen, die vielleicht lange dem Einflusse der Witterung ausgesetzt waren, zeigt, obgleich sie
-eben so dünne, zart und rissig ist wie an dem oben beschriebenen, durch das ganz matte Ansehen und eine mehr braune, mit
-Rostflecken gemengte Farbe, einige Aehnlichkeit mit jener der Steine von L'Aigle
+### Siena.
 
+Ein Bruchstück, oder vielmehr höchst wahrscheinlich (nach Größe, Form, Richtung und Ausdehnung der vorhandenen, natürlichen, mit Rinde bedeckten Flächen) wenigstens die Hälfte eines (ursprünglich etwa 3 bis 4 Loth schwer gewesenen) mittelgroßen Steines, von 7 Quentchen am Gewichte, von dem am 16. Junius 1794, Abends nach 7 Uhr, bei Siena im Toskanischen Statt gehabten beträchtlichen Steinniederfalle.*
 
-### 0032
+*) Es ist dieses einer der Steinniederfalle neuerer Zeit, von welchem die Producte ziemlich bekannt und verbreitet wurden, obgleich man die Realität der Begebenheit, trotz einer gepflogenen legalen Untersuchung, und die Herkunft und den überirdischen Ursprung der Steine zur Zeit des Ereignisses selbst, sehr bezweifelte. Allein die Begenbenheit machte grosses Aufsehen, da sie bedeutend war (es fielen einige hundert, aber meist nur kliene, oder doch nur mittelgroße, einige Lothe, auch nur wenige Quentchen schwere Steine --- nur einzelne wenige wogen 3 bis 7 Pfund --- auf einen Flächenraum von 2 bis 3 italienischen Meilen), und sich bei Tage und vor vielen Augenzeugen ereignete; von angesehenen Gelehrten, Tata, Soldani, Spallanzani, viel daruber geschreiben wurde, und mehrere angesehene und gelehrte Englander, Thomson, Hamilton, Lord Bristol, sich eben damahls in Italien befanden, welche dem Gegenstande, der zu grossen Debatten Veranlassung gab, noch mehr Celebrität im Auslande verschafften. Es finden sich demnach Belege von diesem Ereignisse in vielen Sammlungen, nahmentlich im Mus. brit. zu London, der De Dree'schen Sammlung zu Paris, und in jenen Chladnis, Lavaters, Blumenbachs, Klaproths zc.
 
-Dritte Tafel.
-Lissa.
+General Tihavsky, der sich eben damahls zur Zeit des Ereignisses in Neapel befand, erhielt dieses Stück von dem ebenfalls da anwesenden gelehrten Engländer Thomson, welchem es von Soldani aus Siena zugeschickt wurde, und brachte es bei seiner Nückkehr mit nach Wien; aber erst als der Steinfall bei Stannern die Aufmerksamkeit der Physiker, zumahl in Wien, neuerdings und so mächtig in Anspruch nahm, ward es zur Sprache gebracht, und von dem gefälligen Besitzer auf mein Ansuchen dem kaiserlichen Cabinette zum Geschenke gemacht.
+
+Es ist zwar an diesem Steine an zwei Stellen, und zwar, wie es scheint, mit bestimmter Vorsicht, Masse abgeschlagen worden, und die beiden solcher Gestalt entstandenen, ziemlich großen, und unter einem Winkel von 85° zusammen stoßenden frischen Bruchflächen lassen zwar an und für sich ihre ursprüngliche Gestalt, Beschaffenheit, Richtung und Ausdehnung nicht mohl errathen; doch läßt sich aus der Form des vorhandenen Stückes, und den drei mit Rinde bedeckten Seitenflächen, und der noch ganz vollkommenen Endspitze, mit aller Wahrscheinlichkeit darauf schließen, und es scheint nach dieser Ansicht die eine dieser Bruchflächen die vierte größere gewölbte Seitenfläche, die andere die untere End- oder Grundfläche des Steines gewesen zu sein. Und bei dieser Annahme erscheint die ursprüngliche Form dieses Steines nicht nur sehr regelmäßig als verschobene und ungleichseitig vierseitige Pyramide mit durch drei Flächen zugespitzter Endspitze, sondern auffallend übereinstimmend mit jener des auf der vierten Tafel vorgestellten großen Steines von Stannern, um so mehr, als die Grundfläche ebenfalls ein ähnlich verschobenes Viereck mit einer stark vorspringenden Ecke gebildet zu haben scheint, und die Endspitze durch eine ähnliche Nichtung und Ausdehnung der Zuspitzungsflächen ebenfalls aus dem Mittel gerückt ist, und durch die zwei breitern gegen über stehenden Zuspitzungsflächen zu einer Kante gebildet wird.
+
+Die vorhandenen, mit Rinde bedeckten Seitenflächen, stehen ziemlich senkrecht auf der als Grundfläche betrachteten Bruchfläche: die eine, breiteste, ist fast eben; die nächste, kleinste von allen, welche mit voriger unter einem Winkel von etwa 80° jene gemeinschaftliche Kante bildet, auf welche die Zuspitzungsfläche aufgesetzt ist, ist etwas concav; die dritte, welche unter einem sehr stumpfen Winkel von beinahe 135° mit letzterer zusammen stößt, ist etwas gewölbt. Die eine auf die Kante aufgesetzte Zuspitzungsfläche bildet ein auf eine Ecke gestelltes Rhomboid, ist die kleinste und etwas vertieft; die beiden andern sind breiter und größer, sehr unregelmäßig gestaltet, und, zumahl die eine, fast ganz eben. Sie stoßen unter einem Winkel von 90° in die gemeinschaftliche Endkante zusammen. Alle Flächen haben nur wenige, kaum bemerkbare, seichte, kleine Eindrücke.*
+
+*) Die kaiserl. Sammlung besitzt außer diesem noch zwei vollkommen ganze, obgleich nur sehr kleine Steine von dieser Begebenheit. Der eine, um und um mit vollkommener, und nur an einer Ecke mit unausgebildeter Rinde bedeckte, der nur ein Quentchen wiegt, zeigt der Form nach, trotz seiner Kleinheit, eine auffallende Aehnlichkeit mit den beschriebenen Steinen von Tabor und von L'Aigle, indem er, selbst hinsichtlich der gewölbten Grundfläche, und der einen stark vorspringenden Ecke, eine ähnliche, verschoben und ungleichseitig vierseitige, abgestumpfte, niedere Pyramide bildet. Der andere, etwas größere, von 2 1/4 Quentchen am Gewichte, der nur an einem Ende etwas verbrochen ist, und an einer Fläche und an zwei andern kleinen Stellen unvollkommene Rinde zeigt, hat eine Form, die sich jener des nächst zu beschreibenden Steines von Lissa sehr nähert. Die Rinde an diesen beiden Steinen, die vielleicht lange dem Einflusse der Witterung ausgesetzt waren, zeigt, obgleich sie eben so dünne, zart und rissig ist wie an dem oben beschriebenen, durch das ganz matte Ansehen und eine mehr braune, mit Rostflecken gemengte Farbe, einige Aehnlichkeit mit jener der Steine von L'Aigle.
+
+Die Rinde ist besonders zart und dünne, beinahe kohlschwarz, etwas ins Graue ziehend, von wenigem und mattem, aber etwas seidenartigen, stellenweise schimmernden Glanze, und von gar keinem Ansehen, das einen Metallgehalt verriethe. Sie ist übrigens sehr zart rauh, fein und eng, kurz und verworren, runzlicht-aderig, und voll zarter Risse, welche unregelmäßige Felder bilden. Sie hat die meiste Aehnlichkeit einerseits mit der Rinde an den Steinen von Lissa, Agen, York, andererseits mit jener an den Steinen von Parma und Benares, und zeigt überhaupt von dem geringen Metallgehalt der Masse, welchen auch das specifische Gewicht vermuthen läßt (3,3 bis 3,4). Sie gibt am Stahle nur schwer und schwache Funken, und wirkt auch nur schwach auf die Magnetnadel, kaum auf 2/12 Linie Entfernung.
+
+Die Abbildung zeigt diesen Stein auf die eine, als untere End- oder Grundfläche betrachtete Bruchfläche aufgestellt, von der gemeinschaftlichen Kante, in welche die einen zwei mit Rinde bedeckten Flächen zusammen stoßen, und auf welche die eine Zuspitzungsfläche aufgesetzt ist, die mit den beiden andern breitern, welche schief auf den Seitenflächen aufsitzen, die kantige Endspitze bildet.
+
+## Dritte Tafel.
+
+### Lissa.
+
 17
 , zeößte und einzig ganz und vollkommen erhaltene von den vier bey Lissa (zwischen den Dörfern Strattow
 und Wustra, 4 bis 5 Meilen O. N. O. von Prag) im Bunzlauer Kreise in Böhmen am 3. September 1808,
