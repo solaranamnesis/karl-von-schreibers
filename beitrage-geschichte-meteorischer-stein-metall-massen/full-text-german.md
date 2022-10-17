@@ -118,7 +118,7 @@ Die bildliche Darstellung zeigt diese merkwürdige Masse, von der convexen Fläc
 
 ## Zweite Tafel.
 
-Tabor.
+### Tabor.
 
 Einer der größten Steine von dem sehr bekannten und ziemlich ergiebig gewesenen Steinregen,* der sich am 3. Julius 1753 um 8 Uhr Abends bei Tabor (eigentlich um Strkow, nächst Plan, einem zur Herrschaft Seltsch gehörigen, eine Stunde von Tabor entfernten Dorfe) in Böhmen ereignete, von beinahe 5 Pfund am Gewichte, und welcher im Momente der Begebenheit, vor einem, nach der Hand als Augenzeuge ämtlich vernommenen Knechte (Math. Wondruschka) auf 30 Schritte Entfernung niederfiel, und ohne sich merklich zu versenken, bloß die Erde aufwarf, auch sogleich von dem Beobachter aufgehoben und der Ortsobrigkeit übergeben wurde.
 
@@ -136,7 +136,7 @@ Es zeichnet sich derselbe besonders durch eine anscheinende Regelmäßigkeit* in
 
 Die Grundfläche ist fast ganz eben, und nur an einem Rande, wo die Kante schief und etwas ungleich abgestumpft ist, von der horizontalen Ebene abweichend. Sie zeigt mehrere große länglichte, aber sehr seichte Eindrücke.
 
-Zwey Seitenflächen, welche beinahe senkrecht auf die Grundfläche aufgesetzt sind, und mit derselben stumpfe und etwas abgerundete und geschweifte Grundkanten bilden, sind kleiner als die beiden andern, etwas convex, haben wenige, kleine, ziemlich seichte Eindrücke, und stoßen in eine sehr abgerundete gemeinschaftliche Seitenkante zusammen.
+Zwei Seitenflächen, welche beinahe senkrecht auf die Grundfläche aufgesetzt sind, und mit derselben stumpfe und etwas abgerundete und geschweifte Grundkanten bilden, sind kleiner als die beiden andern, etwas convex, haben wenige, kleine, ziemlich seichte Eindrücke, und stoßen in eine sehr abgerundete gemeinschaftliche Seitenkante zusammen.
 
 Die beiden andern größern Seitenflächen erheben sich unter einem ziemlich spitzen Winkel schief von der Grundfläche, und stoßen in eine ziemlich scharfe gemeinschaftliche Kante zusammen, welche mit den Kanten der Grundfläche eine starke hervor springende Ecke bildet. Die eine dieser Flächen, die größte von allen, ist sehr gewölbt, und hat nur sehr wenige rundliche seichte Eindrücke; die durch sie mit der Grundfläche gebildete Grundkante ist schief und ungleich abgestumpft, die mit der anstoßenden Seitenfläche gebildete Seitenkante stumpf zugerundet. Die andere oder vierte Seitenfläche ist etwas concav, sonst flach und eben, und zeigt nur einen großen, aber sehr seichten, sanft verlaufenden, und einen ovalen, starken, tiefen Eindruck, in dessen Grunde ein großes Korn Metall steckt. Die von dieser Fläche mit der Grundfläche gebildete Grundkante ist abgerundet, gegen die eine Ecke hin aber ziemlich scharf, übrigens ungleich, etwas geschweift und eingedrückt im Verlaufe; die mit der anstoßenden Seitenfläche gebildete Seitenkante ist aber, im ganzen etwas gebogenen Verlaufe, ziemlich scharf.
 
@@ -152,7 +152,7 @@ An einigen Stellen, nahmentlich an drei Ecken der Grundfläche, und an einer der
 
 Die Abbildung des Steines, welche die Versinnlichung der auffallend regelmäßigen Form und der Beschaffenheit seiner Oberfläche zum Zwecke hat, ist von einer Ansicht desselben genommen, in welcher sich erstere und ihre Aehnlichkeit mit einer bekannten Figur, insbesondere aber ihre Uebereinstimmung mit andern ähnlich gestalteten Meteor-Steinen am deutlichsten ausspricht. Der Stein ist diesem zu Folge auf seiner Grundfläche (ihn als Pyramide betrachtend) liegend, von der einen breiten, convexen Seitenfläche etwas gewendet vorgestellt, um den ganzen Umriß, eine zweite Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche ersichtlich zu machen.
 
-L'Aigle.
+### L'Aigle.
 
 Einer von den größern Steinen von dem besonders ergiebigen Steinregen,* der sich am 26. April 1803, Nachmittags gegen 1 Uhr, zu L'Aigle (Departement de l'Orne, der ehemahligen Normandie) in Frankreich (etwa 25 franz. Meilen westlich von Paris) ereignete, von beinahe 2 Pfund am Gewicht.
 
@@ -182,7 +182,7 @@ An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der
 
 Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, demnach sind dabei auch gleiche Rücksichten genommen, und derselbe auf seiner --- angenommenen --- Grundfläche liegend, von der einen breitern, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriß, die andere breite concave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht zu bringen.
 
-## Eichstädt.
+### Eichstädt.
 
 Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damahligen Directors-Adjuncten des k. k. Mineralien-Cabinettes, Abbe Stütz, mitgetheilt wurde, der es daselbst niederlegte.*
 
