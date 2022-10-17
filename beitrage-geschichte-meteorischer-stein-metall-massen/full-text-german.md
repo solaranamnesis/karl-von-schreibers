@@ -101,320 +101,95 @@ Schon mit freyem Auge kann man hier erkennen, daß die Rauhigkeit dieser Rinde d
 
 Ein mittelst eines Meißels losgetrenntes Blättchen solcher Rinde, das sich, wenn die Continuität einmahl unterbrochen ist, an solchen Stellen sehr leicht von der glatten, selbst spiegelichen Oberfläche der Masse abschälen läßt, zeigt an den Bruchstellen gar keine schlackige oder poröse Beschaffenheit, sondern vielmehr, und zwar an den Bruchrändern, eine zart- und ziemlich geradfaserige Textur nach der Dicke des Blattes. Die Fasern scheinen durch ein ähnliches ocherartiges, bräunlich und röthlich-gelbes Cement verbunden, oder vielmehr selbst (durch Einwirkung der Luft, welche zwischen die Rauhigkeiten der Oberfläche eingedrungen sein konnte) in eine solche ocherartige Substanz verwandelt worden zu sein, und gehen, in zarte Bündel zusammen gehäuft, kolbenförmig und meistens etwas nach einer Richtung gebogen, in jene schwarze Tröpfchen an der Oberfläche über. Ein von den Randerhebungen jener rauhen Vertiefungen und Stellen, und von dem Rücken der sie begränzenden Erhabenheiten (wo, wie bereits oben erwähnt worden, die Ninde immer dünner, obgleich hier nie so papier- oder vielmehr schneidig dünn, wie an jenen der convexen Fläche, schwärzer, etwas glänzend und beinahe glatt, auch dichter und fester erscheint) auf gleiche Art abgenommenes Rindenblättchen (was jedoch wegen der geringen Dicke und des stärkeren Zusammenhanges mit der Oberfläche hier schwerer und nur in kleinen Fragmenten bewirkt werden kann), zeigt an den Bruchrändern eine ähnliche, aber etwas zartere und mehr eine körnig-faserige Textur, und eine beinahe zinkweiße Farbe mit starkem, rein metallischem Glanze (wahrscheinlich weil hier wegen Dichtheit der Rinde an der Oberfläche die Luft nicht einwirken konnte), und die Fasern gehen unmittelbar in die eigentliche schwarze Rinde, die hier keine Wärzchen mehr erkennen läßt, indem diese bereits in ein Häutchen zusammengeflossen zu sein scheinen, über. An einigen Stellen, zumahl an solchen, wo die rauhe Rinde der Vertiefungen in die glatte der Erhebungen übergeht, und hier noch eine beträchtliche Dicke hat, erscheint sie an ihren Bruchrändern gewisser Maßen stratificirt, und zwar in drei, obgleich nur sehr schwach angedeuteten, ziemlich gleich dicken, horizontalen Schichten, wovon die oberste die eigentliche Rinde, und die unterste das Blatt, welches unmittelbar auf der Masse auflag, bildet, und welche beide in die mittlere, etwas dickere, ohne merkliche Unterbrechung der Richtung der Fasern, übergehen, nur durch eine äußerst zarte horizontale Linie von derselben getrennt scheinen, und sich bloß durch etwas schwächern metallischen Glanz und etwas veränderte Farbe von ihr unterscheiden, indem erstere mit schwarzen Rindetheilchen, die andere mehr oder weniger mit gelben oder braunen Ochertheilchen gemengt ist. Hie und da, sowohl an dem einen als dem andern Rindenblättchen, erscheinen die Fasern an den Bruchrändern bisweilen Speis- oder Messinggelb angelaufen, und diese Stellen zeigen gleichsam den Uebergang vom metallischen Zustande derselben in den ochrigen, nach dem verschiedenen Grade der Einwirkung der Luft; wie sie sich denn auch meistens dort finden, wo die rauhe Rinde in die glatte übergeht, folglich der Luft ein geringerer Zutritt gestattet wurde. Die Fläche, mit welcher diese Rindenblättchen überhaupt auf der Oberfläche der Masse aufsitzen, ist ganz dicht und ziemlich glatt, nur etwas unregelmäßig streifig, von mattem, metallischem Ansehen, und eisengrau, mit einem schwachen oberflächlichen Farbenanfluge von Blau, Roth und Messinggelb, wie Eisen, das längere Zeit an der Luft gelegen hat. Nur da, wo ein solches Blättchen sehr dünn eine erhabene Stelle bedeckte, und sehr dicht und fest aufsaß, erschien jene Fläche mehr oder weniger Zinkweiß und metallisch glänzend.*
 
-(1) So sehr das ganze äußere Ansehen dieser, so wie aller ähnlichen Massen meteorischen Ursprunges (selbst der Meteor-Steine),
-und i-besondere das erystalinische Gefaige des Eisens, au- den ar sene en, de da eha enchalten, nderiegtae einene
-sorrnnnch snnigen Zuslans dersieioen ooraus so widersorerh h n s esesen, neslsene. e sir den mnere.
-in Ki ientinl ilh.n, "on on neh de nnnh e- dna isen essstess. .iss ls e s, sss X
-weichenden ohysischen Eigenschaften (der hohe Grad von Dehnbarteit ns zatgeeie, de gch e, greßer ise lele, n
-n sslmllics - m s,e ic a sassss, n ee äie e ni.s, M s ei ne, n osn ne-
-chanisch eingeurngten, gan, unseranderen Sawefeieisen so gan durrchruungen sans e dies ben de eee-- Steinen hin--
-is ss ern isei de- een
-wied), der, wie es scheint ziemlich augemein angenomnenen, Meinung, - are dieser venm so genannten
-wokenen Wese, durch e, heroor gebracht, un d- ood ine- nssnniihen cynlei llliin. as nee aser geeen
-öet- drund- ceinnen sei., e isscsinse in, iesier-eisiennae
-gegen die beynahe eben so allgemein gefaßte, und selbst von unsernm Chtadni unterstute einung, als ginge dieser Schmelz-
-ppoees wihrend de iederfau- in mnser Atnesphsre noch e-- ede tegonne entee en r i. caise, as ianen.
-sie, n ahrhaft durch siu- gerchuislenen gnannne, eie-
-stens unser Güßmann behaupten wollte) bis zur Erde gekommen. Der Umstand, daß hier, laut Urkunde, die Augenzeu-
-gen beyde Massen, jede in Gestalt einer feurigen, verwickelten Kette (aus welchen Gußmann gegliederte Züge von einer
-Klafter Länge machte), wollen - aber dch - herab falten gesehen haben (die Gußnnann aus der Hshe sich ergießen
-ian,, achehe einer optischen Tauschn,, enen Licht pyanonen- zugeschrieben werden durfen; und iener, das dieErde,
-"s , , nls s äs sr ns ise
-"esi. it sen t sisä - se it i siteisnlnen intn-nl ie rnhen eit dnirlese-
-geschrieben werden, als gerade ihrer Hitze, die doch nur die der Erde beygemengten animalischen und vegerabilischen Theile ver-
-ieens sl. . s cse.
-enun, es i elsenelen ein üss., e ess n,
-inlce enoee, t mMrenier n esesltienen nn
-erade dageoen. de Mase iinse., e ingeaogen. -
-mehr oder weniger conisch sein, wenn sie (wie Gußmann ia in die Eee eingegosen worden, und beydes ohne a-
-eroprieung, was kaun denesar ist, und doch der Fall war, vorgegangen wäre.
-B 2
+*) So sehr das ganze äußere Ansehen dieser, so wie aller ähnlichen Massen meteorischen Ursprunges (selbst der Meteor-Steine), und insbesondere das krystallinische Gefuge des Eisens, aus dem sie bestehen, oder das sie enthalten, unwiderlegbar einen ursprunglich flussigen Zustand derselben voraus setzen; so widersprechen doch eben dieselben, insbesondere aber die dem Meteor-Eisen ganz eigenthümlichen, und von jenen der, durch die bekannten Schmelz-Processe erhaltenen Producte der Kunst, so sehr abweichenden physischen Eigenschaften (der hohe Grad von Dehnbarkeit und Zähigkeit, der sich bei grosser Hitze verliert, indem bekanntlich alles Meteor-Eisen gerade dann erst brüchig wird), und vor Allem der Umstand, dass diese Massen von mechanisch eingemengtem, ganz unveränderten Schwefeleisen so ganz durchdrungen sind (wie diess von den Meteor-Steinen hinlänglich bekannt ist, von den Eisen-Massen aber bei Gelegenheit der Erklärung der achten und neunten Tafel bemerkt werden wird), der, wie es scheint ziemlich allgemein angenommenen, Meinung, als wäre dieser flussige Zustand auf dem so genannten trockenen Wege, durch Hitze, hervor gebracht, und das Product eines gewöhnlichen Schmelz-Processes. Noch mehr aber streiten diese Grunde und manche Erscheinungen beim Niederfalle dieser Massen und Steine, und vorzugsweise bei dieser Eisen-Masse, gegen die beinahe eben so allgemein gefasste, und selbst von unserm Chladni unterstützte Meinung, als ginge dieser Schmelz-Process während des Niederfalls in unsrer Atmosphare noch fort (oder begonne vielmehr wohl gar in selber), und als kämen sie, und als wäre nahmentlich diese Masse, in wahrhaft durch Hitze geschmolzenem Zustande, selbst tropfbar flüssig (wie wenigstens unser Güßmann behaupten wollte) bis zur Erde gekommen. Der Umstand, daß hier, laut Urkunde, die Augenzeugen beide Massen, jede in Gestalt einer feurigen, verwickelten Kette (aus welchen Güßmann gegliederte Züge von einer Klafter Länge machte), wollen --- aber doch --- herab fallen gesehen haben (die Güßmann aus der Hohe sich ergießen lasst), mochte wohl einer optischen Tauschung, einem Licht-Phanomene zugeschrieben werden dürfen; und jener, das die Erde, worein sie fielen, rauchte und wie ausgebrannt und grünlich aussah, konnte, wenn ja alles wortlich und als wahr und richtig bezeichnet angenommen werden soll, wohl mit mehr Grund einer zur Zeit unbekannten Einwirkung der Massen auf dieselbe zugeschrieben werden, als gerade ihrer Hitze, die doch nur die der Erde beigemengten animalischen und vegetabilischen Theile verbrennen und rauchen machen konnte, indess nicht einmahl eines bemerkten Geruches erwahnt wird. Die flache, wie hingegossene Gestalt, und die wellenformigen Unebenheiten aber, welche, nebst obigen Puncten der Urkunde, unser Chladni als ganz deutliche Beweise, dass die Materie in geschmolzenem Zustande zur Erde kam, geltend machen zu müssen meint, scheinen mir gerade dagegen zu sprechen. Die Masse müsste, meines Bedünkens, ungleich flacher und platter, wenn sie hingeflossen, oder mehr oder weniger conisch sein, wenn sie (wie Güßmann will) in die Erde eingegossen worden, und beides ohne alle Verspritzung, was kaum denkbar ist, und doch der Fall war, vorgegangen wäre.  
+Geradezu aber, und besonders in diesem individuellen Falle, spricht gegen eine solche Annahme: daß die Massen so tief in die Erde gedrungen waren, da sie doch von den Seiten her keinen Widerstand fanden sich auszubreiten, und daß dieses Auffalen von solcher Höhe und gewaltsame Eindringen heißer und nüssiger metan nagen hhen. e ersriiann, dag ferner an der ganzen einen großen Masse keine Spur sich findet von fest anklebender Erde, oder, was bei einer solchen Voraussetzung wohl der Fall sein müßte, von eingekneteten und eingeschmolzenen Sandtheilchen und Steinchen, mit welchen sie doch in Contact gekommen sein muß; daß endlich keine der Massen beim Ausgraben warm befunden wurde, ein Umstand, den man anzumerken gewiß nicht unterlassen hätte, wenn er vorhanden gewesen wäre. Leider wird in der Urkunde nicht bemerkt, wann die Massen eigentlich ausgegraben wurden; aber eben daraus und aus der ganzen Erzählung läßt sich abnehmen, daß es auf der Stelle (bei der kleineren Masse heißt es auch wirklich: sogleich) oder doch in jedem Fale noch an demselben Tage geschah. Nun aber ereignete sich das Factum Abends um 6 Uhr, und da man wohl schwerlich das Eintreten der Nacht wird abgewartet haben; so geschah die Ausgrabung wohl höchst wahrscheinlich innerhalb den ersten zwei Stunden. Eine durch Hitz geschmolzene und im Flusse sich befindende Eisen-Masse von solchem Volumen würde aber wohl kaum in 24 Stunden so weit ausgekühlt gewesen sein, daß man sie hätte berühren können.
 
+Noch sind an dieser ebenern Fläche der Masse zwei Stellen bemerkenswerth: die eine befindet sich am obern Theile an der rechten Seite derselben am aufsteigenden Rande der größten Vertiefung, in Gestalt einer Aushöhlung oder Grube von rundlichtem Umrisse, und 6 bis 7 Linien Weite nach Außen, welche gleichsam durch einen starken, von oben und von der Seite her nach Innen und gegen die Vertiefung wirkenden Eindruck hervor gebracht worden zu sein scheint, indem die eine Wand sehr schief und mit sanft verlaufendem Rande einwärts läuft, die entgegen gesetzte aber etwas schief aufwärts steigt, und gegen die Vertiefung hin einen aufgeworfenen abgerundeten Rand bildet. Diese Grube verenget sich etwas gegen ihren Grund, welcher einen ovalen Umriß von 4 1/2 Linie Länge zu 2 3/4 Linie Breite hat, und geht in eine Tiefe von 2 bis 3 Linien, die aber kaum unter das Niveau der tiefsten Stelle jener großen Vertiefung reicht. Die Seitenwände dieser Grube haben ein rauhes, ochriges Ansehen, den Grund aber schließt eine glatte, nur etwas porös scheinende, matt metallisch glänzende, eisengraue Ebene von graphitähnlichem Ansehen, welche in der Mitte etwas verbrochen ist, und hier wieder eine ochrige Beschaffenheit zeigt.
 
-### 0023
+Die zweite Stelle befindet sich ganz am untern Rande der Masse, wo ein Stück einst gewaltsam und absichtlich abgebrochen worden zu sein scheint. Es zeigt sich hier ein rauher, etwas hakiger, zerklüfteter, und durch Nost verunstalteter Bruch; an einer kleinen Stelle daselbst aber ein deutlicher, wenigstens zweifacher Durchgang von Blättern von beträchtlicher Dicke, metallischem Ansehen und Glanze, und lichtstahlgrauer, ins silberweiße fallender Farbe.
 
-8
-Noch sind an dieser ebenern Fläche der Masse zwei Stellen bemerkenswerth: die eine befindet sich am obern Theile
-an der rechten Seite derselben am aufsteigenden Rande der größten Vertiefung, in Gestalt einer Aushöhlung oder Grube
-von rundlichtem Umrisse, und 6 bis 7 Linien Weite nach Außen, welche gleichsam durch einen starken, von oben und
-von der Seite her nach Innen und gegen die Vertiefung wirkenden Eindruck hervor gebracht worden zu sein scheint, in-
-dem die eine Wand sehr schief und mit sanft verlaufendem Rande einwärts läuft, die entgegen gesetzte aber etwas
-schief aufwärts steigt, und gegen die Vertiefung hin einen aufgeworfenen abgerundeten Rand bildet. Diese Grube ver-
-enget sich etwas gegen ihren Grund, welcher einen ovalen Umriß von 4 3 Linie Länge zu 2 Linie Breite hat, und
-geht in eine Tiefe von 2 bis 3 Linien, die aber kaum unter das Niveau der tiefsten Stelle jener großen Vertiefung
-reicht. Die Seitenwände dieser Grube haben ein rauhes, ochriges Ansehen, den Grund aber schließt eine glatte, nur
-etwas porös scheinende, matt metallisch glänzende, eisengraue Ebene von graphitähnlichem Ansehen, welche in der Mitte
-etwas verbrochen ist, und hier wieder eine ochrige Beschaffenheit zeigt.
-Die zweite Stelle befindet sich ganz am untern Rande der Masse, wo ein Stück einst gewaltsam und ab-
-sichtlich abgebrochen worden zu sein scheint. Es zeigt sich hier ein rauher, etwas hakiger, zerklüfteter, und durch
-Nost verunstalteter Bruch; an einer kleinen Stelle daselbst aber ein deutlicher, wenigstens zweifacher Durchgang von
-Blättern von beträchtlicher Dicke, metallischem Ansehen und Glanze, und lichtstahlgrauer, ins silberweiße fallender
-Farbe.
-Auf der convexen Fläche sind zwei, gegen die obere Ecke der Masse isolirt stehende Erhabenheiten, auf bis I
-Zoll Tiefe, und auf der ebenen Fläche ist ein Stück von beträchtlicher Ausdehnung (bey 5 Zoll lang, 1 bis 2 Zoll
-breit und bey Zoll dick) von der Oberfläche der Masse am Rande der abgerundeten Ecke der rechten Seite, zum Be-
-hufe technischer und analytischer Versuche, abgesägt worden, wo nun das Innere der Masse zu Tage liegt. Die sol-
-cher Gestalt erhaltenen Abschnittsflächen zeigten roh eine dichte, derbe Masse von metallischem Glanze, und lichtstahl-
-grauer, ins silberweiße fallender Farbe, deren Dichtheit und Gleichförmigkeit im Gefüge nur hie und da durch zarte
-gezackte Risse und kleine Klüfte, und noch mehr durch häufig und zerstreut eingemengte, meist mikroskopisch kleine körnige
-Partikelchen von metallischem Ansehen, stärkerem Glanze und weißerer Farbe, -- welche, mit mehr und weniger ochri-
-ger Substanz verbunden, zum Theil auch jene Risse und Klüfte erfüllen, -- unterbrochen erschien. Eine der kleinen Ab-
-schnittsstellen auf der convexen Fläche der Masse, welche mit dem Gerbstahl poliert wurde, zeigt eine spiegelnde Ober-
-fläche von beynahe siilberweißer, ins stahlgraue fallender Farbe, oder vielmehr einer Farbe, welche jener des polierten Pla-
-tins sehr ähnelt. Die beyden andern durch jene Abschnitte erhaltenen Flächen wurden mit Salpetersäure geätzt, um
-das merkwürdige krystallinische Gefüge darzustellen, das sich bey dieser Behandlung am deutlichsten ausspricht, und wo-
-von bey der Erklärung der darauf Bezug habenden Tafeln ins besondere die Rede sein wird.
-Obgleich von diesen, im Vergleich zur Dicke der Masse, nur oberflächlichen Stellen nicht geradezu auf eine durch-
-aus gleiche Beschaffenheit im Innern geschlossen werden kann, welches überzeugend zu machen ohne wesentliche Beein-
-trächtigung der, gerade im ganzen Zusammenhange, so merkwürdigen Form und Beschaffenheit dieser Masse nicht ge-
-schehen konnte; so berechtiget doch zu dieser Annahme einerseits die Uebereinstimmung des absoluten Gewichtes mit dem
-Volumen derselben, nach dem bekannten specifischen Gewichte, andererseits die bereits gemachte Erfahrung bey ähnlichen
-Massen, wenn gleich nicht factisch erwiesenen, doch unbezweifelbar gleichen meteorischen Ursprunges (den Elbogner
-Geradezu aber, und besonders in diesem individuellen Falle, spricht gegen eine solche Annahme: daß die Massen so tief in
-die Erde gedrungen waren, da sie doch von den Seiten her keinen Widerstand fanden sich auszubreiten, und daß dieses Auf-
-falen von solcher Höhe und gewaltsame Eindringen heißer und nüssiger metan nagen hhen. e ersriiann, dag
-ferner an der ganzen einen großen Masse keine Spur sich findet von fest anklebender Erde, oder, was bey einer solchen Vor-
-aussetzung wohl der Fall sein müßte, von eingekneteten und eingeschmolzenen Sandtheilchen und Steinchen, mit welchen sie
-doch in Contact gekommen sein muß; daß endlich keine der Massen beym Ausgraben warm befunden wurde, ein Umstand,
-den man anzumerken gewiß nicht unterlassen hätte, wenn er vorhanden gewesen wäre. Leider wird in der Urkunde nicht be-
-merkt, wann die Massen eigentlich ausgegraben wurden; aber eben daraus und aus der ganzen Erzählung läßt sich abnehmen,
-daß es auf der Stelle (bey der kleineren Masse heißt es auch wirklich: sogleich) oder doch in jedem Fale noch an demselben Tage
-geschah. Nun aber ereignete sich das Factum Abends um 6 Uhr, und da man wohl schwerlich das Eintreten der Nacht wird
-abgewartet haben; so geschah die Ausgrabung wohl höchst wahrscheinlich innerhalb den ersten zwei Stunden. Eine durch Hitz
-geschmolzene und im Flusse sich befindende Eisen-Masse von solchem Volumen würde aber wohl kaum in 24 Stunden so weit
-ausgekühlt gewesen sein, daß man sie hätte berühren können.
+Auf der convexen Fläche sind zwei, gegen die obere Ecke der Masse isolirt stehende Erhabenheiten, auf 1/4 bis 1/2 Zoll Tiefe, und auf der ebenen Fläche ist ein Stück von beträchtlicher Ausdehnung (bei 5 Zoll lang, 1 bis 2 1/4 Zoll breit und bei 3/4 Zoll dick) von der Oberfläche der Masse am Rande der abgerundeten Ecke der rechten Seite, zum Behufe technischer und analytischer Versuche, abgesägt worden, wo nun das Innere der Masse zu Tage liegt. Die solcher Gestalt erhaltenen Abschnittsflächen zeigten roh eine dichte, derbe Masse von metallischem Glanze, und lichtstahlgrauer, ins silberweiße fallender Farbe, deren Dichtheit und Gleichförmigkeit im Gefüge nur hie und da durch zarte gezackte Risse und kleine Klüfte, und noch mehr durch häufig und zerstreut eingemengte, meist mikroskopisch kleine körnige Partikelchen von metallischem Ansehen, stärkerem Glanze und weißerer Farbe, --- welche, mit mehr und weniger ochriger Substanz verbunden, zum Theil auch jene Risse und Klüfte erfüllen, --- unterbrochen erschien. Eine der kleinen Abschnittsstellen auf der convexen Fläche der Masse, welche mit dem Gerbstahl poliert wurde, zeigt eine spiegelnde Oberfläche von beinahe siilberweißer, ins stahlgraue fallender Farbe, oder vielmehr einer Farbe, welche jener des polierten Platins sehr ähnelt. Die beiden andern durch jene Abschnitte erhaltenen Flächen wurden mit Salpetersäure geätzt, um das merkwürdige krystallinische Gefüge darzustellen, das sich bei dieser Behandlung am deutlichsten ausspricht, und wovon bei der Erklärung der darauf Bezug habenden Tafeln ins besondere die Rede sein wird.
 
+Obgleich von diesen, im Vergleich zur Dicke der Masse, nur oberflächlichen Stellen nicht geradezu auf eine durchaus gleiche Beschaffenheit im Innern geschlossen werden kann, welches überzeugend zu machen ohne wesentliche Beeinträchtigung der, gerade im ganzen Zusammenhange, so merkwürdigen Form und Beschaffenheit dieser Masse nicht geschehen konnte; so berechtiget doch zu dieser Annahme einerseits die Uebereinstimmung des absoluten Gewichtes mit dem Volumen derselben, nach dem bekannten specifischen Gewichte, andererseits die bereits gemachte Erfahrung bei ähnlichen Massen, wenn gleich nicht factisch erwiesenen, doch unbezweifelbar gleichen meteorischen Ursprunges (den Elbogner und Lénartoer Gediegeneisen-Massen) welche theils, beinahe durch ihre Mitte, theils selbst nach mehrfachen Richtungen durchschnitten wurden, und durchaus eine, im Wesentlichen, gleichförmige Beschaffenheit zeigten.*
 
-### 0024
+*) Man wird die Umständlichkeit in der Beschreibung dieser, an sich sowohl als ihrer vielseitigen Beziehungen wegen, höchst merkwürdigen Masse, dem Bestreben zu Gute halten, jedem entfernten Forscher, der sie nie, vielleicht keine ahnliche je zu Gesicht bekommen dürfte, die möglichst vollkommenste anschauliche Kenntniss (wozu die bildliche Darstellung, der Unvollkommenheit der Kunst und der Beschaffenheit des Gegenstandes wegen, leider nur wenig beitragen konnte) von derselben zu verschaffen, und ihn in den Stand zu setzen, über so manch Räthselhaftes und Paradoxes, das uns die Erklärung des Ursprungs und der Bildung meteorischer Massen, und der meisten ihr Erscheinen und Niederfallen begleitenden Umstände, so schwer, ja unmöglich zu machen scheint, und worüber, vorzüglich was die Eisen-Massen betrifft, diese als Prototyp und als zur Zeit einzige, erwiesener Massen, meteorischen Ursprungs, einiges Licht geben kann, eine Muthmassung fassen, oder wenigstens die zum Teil ziemlich widersrechenden Folgerungen und Behauptungen, zu welchen die mehr oder weniger genaue, richtige und unbefangene authoptische Betrachtung und Beurtheilung derselben bei Andern bereits Veranlassung gegeben hat, und ohne Zweifel in der Folge noch geben wird, prüfen und würdigen zu können. Eine erschöpfende Genauigkeit bei Beschreibung dieser Masse schien mir um so nothwendiger, als eine vor der Hand sehr unbedeutend und ganz unwesentlich scheinende Kleinigkeit in der Folge bei Auffassung oder Beurtheilung, Vertheidigung oder Widerlegung einer Ansicht oder Erklarung, oft wichtig und entscheidend sein kann, die schwierige Behandlung eines so massiven Klotzes aber eine oftmahlige Wiederhohlung ahnlicher Betrachtungen, vernachlassigter Nachforschungen wegen, nicht wohl gestattet. Dagegen glaubte ich die ekanntmachung der Resultate der analytisch-chemischen und physisch-technischen Untersuchungen für eine künftige Veranlassung versparen zu sollen, da dieser Gegenstand eigentlich nicht zum Zweck der gegenwärtigen gehört, und eine Ausarbeitung voraussetzt, die nur mangelhaft und unvollkommen hätte zu Stande gebracht werden können, da es an der benöthigten Musse gebrach, indem sie nicht nur eine Wiederhohlung und Erneuerung aller früher (1808) gemachten, peremtorisch abgebrochenen, sondern eine Menge ganz neu anzustellender Versuche, wozu die in dieser Zwischenzeit erhaltenen Materialien Stoff genug lieferten, nothwendig gemacht hätte.
 
-und Lénartoer Gediegeneisen-Massen) welche theils, beynahe durch ihre Mitte, theils selbst nach mehrfachen Rich-
-tungen durchschnitten wurden, und durchaus eine, im Wesentlichen, gleichförmige Beschaffenheit zeigten (1).
 Die bildliche Darstellung zeigt diese merkwürdige Masse, von der convexen Fläche betrachtet, in natürlicher Größe.
-(1) Man wird die Umständlichkeit in der Beschreibung dieser, an sich sowohl als ihrer vielseitigen Beziehungen wegen, höchst merk-
-"aedigen Mase, den Bereben zn nte halten, jedem entfernten Forscher, der sie nie, "eaeiche ie hnsiche
-slistslten öifel, d. mägiis ooutonuiens- ischannich- senhnie
-der Kunst und der Beschafenheit des Gegenstandes wegen, leider nur wenig beytragen tonnte on derseiben zu verschafen,
-und ihn in den Stand nuseten, über so manch Räthselhaftes und Paradores, da- u soernngs der
-Bidung meteorischer Massen, und der meisten ihr Erscheinen und Niederfallen begleitenden unmsndnd., e cer, ia unmslich
-zu machen scheine, und woruber, vorzüglich was die Eisen-Massen betrifst, diese als Prototyp und als zur Zeit einzige, er-
-bieene- naen, nererischen urserungs, nnge icht gesen elnn, ein- iucnaanin aanene mihngslng fagen Se ene änss- . is ei
-ziemlich widerorechenden Folgerungen und Behauptungen, zu wetchen die mehr oer eniger genau-, eiheice ntd eeten
-gene authoptische Betrachtung und Beurtheilung derselben bey Andern bereits Veranlassung gegeben hat, und ohne Zweife in
-öe Foge noch geben wird, prüfen und würdigen zu können. Eine erschöpfende Genanigteit bey Beschreibung dieser Masse
-schien mir um so nothwendiger, als eine vor der Hand sehr unbedeutend und ganz unwesentlich scheinende Kleinigkeit in der Folge
-5nssnt sls. Srslesilns s i si eäil i ieis, "r uhsa end eunies-
-dend sein kann, die schwierige Behandlung eines so massiven niotzes aber eine ffnnahlige Wiederhohlung ahnlicher Betrach-
-tungen, "rnachung der nachforschangnn n en, n, e he ey eeaacee. dagege aists h die etanninachng der meal-
-tate der analytisch chemischen und physisch-technischen untersuchungen für eine künftige Beranlassung versparen zu sollen, da
-deiereegensnnd eienrnis icse äniäle sissüiss,ns ne i-aseilrurns irses , e i-nisn eihsi
-s iesoieonnen he lse sse ie .esensthsten mnse esras, en ne nch, nin ne
-Wiederhohlung und Ernenerung aller fruher (808) gemachten, peremtorisch abgebrochenen, sondern eine Menge ganz neu anzu-
-slite esiche, s si dMei ssishene eäseies ninliels iefgns nsein, "nosn,snns it.
-8
 
+## Zweite Tafel.
 
-### 0025
-
-10
-Zweyte Tafel.
 Tabor.
-(, der größten Steine von dem sehr bekannten und ziemlich ergiebig gewesenen Steinregen (1), der sich am 3. Iu-
-lius 1753 um 8 Uhr Abends bey Tabor (eigentlich um Strkow, nächst Plan, einem zur Herrschaft Seltsch
-gehörigen, eine Stunde von Tabor entfernten Dorfe) in Böhmen ereignete, von beynahe 5 Pfund am Gewichte,
-und welcher im Momente der Begebenheit, vor einem, nach der Hand als Augenzeuge ämtlich vernommenen Knechte
-(Math. Wondruschka) auf 30 Schritte Entfernung niederfiel, und ohne sich merklich zu versenken, bloß die Erde
-aufwarf, auch sogleich von dem Beobachter aufgehoben und der Ortsobrigkeit übergeben wurde.
-Es wurde dieser Stein von dem damahligen, zu jener Zeit in Tabor, der Kreisstadt des Bechiner Kreises,
-residirenden königl. Böhmischen Kreishauptmanne, Grafen Vinc. v. Wratislaw, gleich nach der Begebenheit, die
-derselbe aus eigenem Antriebe ämtlich und förmlich an Ort und Stelle untersuchte, mit einem umständlichen Berichte
-an das königl. Böhmische Kammer-Präsidium zu Prag, und von diesem an die k. k. allgemeine Hofkammer nach Wien
-eingesendet.
-Der Stein ist vollkommen ganz, und um und um mit Ninde bedeckt, die nur an einigen kleinen Stellen etwas
-abgestoßen, und hie und da abgebrochen worden ist.
-Es zeichnet sich derselbe besonders durch eine anscheinende Regelmäßigkeit (2) in seiner Form aus. Er bildet
-nähmlich eine deutliche, nur etwas verschoben und ungleichseitig vierseitige, abgestumpfte niedere Pyramide (3), de-
-(1) Ungeachtet der Ergiebigkeit dieses Steinregens, indem sich derselbe doch über einen Flächenraum von einer halben Stunde in
-der Länge, und einer Viertelstunde in der Breite erstreckte, und derselbe Beobachter von seinem Standplatze aus, von wo er
-den einen Stein fallen sah, noch deren vier in das Getreide niederfallen hörte (die folglich in seiner Nähe, und die Steine
-daher im Durchschnitt überhaupt ziemlich dicht gefallen sein müssen), und viele der Steine groß und von bedeutendem Ge-
-wichte waren (von 5 bis 13 Pfund), und obgleich die Begebenheit zu jener Zeit viel Aufsehen erregte, und durch Zeitungs-
-und wissenschaftliche Nachrichten bekannt gemacht wurde; so scheinen doch gegenwärtig nur wenige Belege mehr davon, und
-meistens nur in Bruchstücken, nachweisbar vorhanden zu sein. Außer einigen Privaten in Prag, und vielleicht noch an einigen
-Orten in Böhmen, und Hrn. Chladni, sind meines Wissens nur das Universitäts-Museum in Pesth, die De Drée'sche
-Sammlung in Paris, und das Mus. britan. in London (welches das von Born beschriebene Stück mit dessen Sammlung durch
-Greville's Vermächtniß erhielt), im Besitze von solchen.
-(2) Diese Regelmäßigkeit, auf die ich bereits in meinen Aufsätzen in Gilbert's Annalen, 1808, aufmerksam gemacht habe, und
-die nun auch Hr. D. Chladni bewährt und einer Beachtung werth gefunden hat, ist um so merkwürdiger, da hierin eine
-Uebereinstimmung oder doch eine auffallende Annäherung zwischen vielen Steinen, nicht nur von einer und derselben Begeben-
-heit (demnach zwischen Bruchstücken ein und desselben Meteors), sondern auch von, nach Zeit und Ore, sehr verschiedenen
-Ereignissen, und selbst zwischen solchen Statt findet, die sowohl in ihrem Aggregats- als Cohäsions-Zustande, als sogar im
-qualitativen und quantitativen Verhältnisse der nächsten und wesentlichsten Bestand- und Gemengtheile bedeutend von einander
-abweichen (und kaum können dieß in diesen Beziehungen irgend welche mehr als z. B. die Steine von Tabor und von Stan-
-nern), und da dieselbe auf einen Grund-Typus hinzudeuten scheint, der jenem sehr nahe kommt, welcher der ähnlichen Bil-
-dung (Structur, Absonderungs- Zerspaltungsform --- Figurirung --) einiger terrestrischer, der Trapp-Formation angehöri-
-gen Fossilien, welchen die Meteor-Steine in mehrfachen Beziehungen überhaupt sehr verwandt sind, zum Grunde liegt.
-(3) Da jener Regelmäßigkeit kein Krystallisations-Gesetz zum Grunde liegen kann, und demnach die vorkommenden Flächen und
-Kanten keineswegs mit wahren Krystallisations-Flächen und Kanten verglichen werden dürfen, wie sie denn auch ihrer zufälli-
-gen Beschaffenheit, der Eindrücke und Verdrückungen wegen, wenigstens nicht mit der gehörigen Genauigkeit, weder geome-
-trisch gedeutet, noch goniometrisch bestimmt werden können; so durfte die Darstellung und Beschreibung der Formen auch nur
-descriptiv, nach der auffallendsten und am leichtesten zu versinnlichenden Aehnlichkeit mit einer bekannten geometrischen Figur,
-keineswegs aber krystallologisch genommen werden. Wollte man letzteres, so müßte man die Form dieses Steines als eine ver-
-schobene und ungleich vierseitige Säule mit schief aufgesetzter Endfläche betrachten. Bemerkenswerth scheint übrigens doch zu sein,
-daß zwei Seitenkanten an diesem Steine, mit möglichster Genauigkeit an gleichen Puncten gemessen, einen gleichen Winkel von
-beyläufig 98, und darin eine Uebereinstimmung mit ähnlichen Kanten von drei verschiedenen säulenförmigen Basalten des Ca-
-binettes zeigten, die damit verglichen wurden; so wie sich auch ein ganz ähnlicher Winkel von einer Seitenkante am nächst zu
-beschreibenden Steine von L'Aigle, und ein ähnlicher am Steine von Lissa fand. Ueberhaupt messen die Winkel der schärfern
-Kanten dieses Steines zwischen 75 und 95, und die der stumpfern zwischen 105 und 125. Zwey Steine von diesem Er-
 
+Einer der größten Steine von dem sehr bekannten und ziemlich ergiebig gewesenen Steinregen,* der sich am 3. Julius 1753 um 8 Uhr Abends bei Tabor (eigentlich um Strkow, nächst Plan, einem zur Herrschaft Seltsch gehörigen, eine Stunde von Tabor entfernten Dorfe) in Böhmen ereignete, von beinahe 5 Pfund am Gewichte, und welcher im Momente der Begebenheit, vor einem, nach der Hand als Augenzeuge ämtlich vernommenen Knechte (Math. Wondruschka) auf 30 Schritte Entfernung niederfiel, und ohne sich merklich zu versenken, bloß die Erde aufwarf, auch sogleich von dem Beobachter aufgehoben und der Ortsobrigkeit übergeben wurde.
 
-### 0026
+Es wurde dieser Stein von dem damahligen, zu jener Zeit in Tabor, der Kreisstadt des Bechiner Kreises, residirenden königl. Böhmischen Kreishauptmanne, Grafen Vinc. v. Wratislaw, gleich nach der Begebenheit, die derselbe aus eigenem Antriebe ämtlich und förmlich an Ort und Stelle untersuchte, mit einem umständlichen Berichte an das königl. Böhmische Kammer-Präsidium zu Prag, und von diesem an die k. k. allgemeine Hofkammer nach Wien eingesendet.
 
-11
-ren Grundfläche 44 Zoll in Länge und Breite, die obere Endfläche 3 Zoll in beyden Durchmessern, und deren Höhe
-bey 3 Zoll mißt.
-Die Grundfläche ist fast ganz eben, und nur an einem Rande, wo die Kante schief und etwas ungleich abge-
-stumpft ist, von der horizontalen Ebene abweichend. Sie zeigt mehrere große länglichte, aber sehr seichte Eindrücke.
-Zwey Seitenflächen, welche beynahe senkrecht auf die Grundfläche aufgesetzt sind, und mit derselben stumpfe und
-etwas abgerundete und geschweifte Grundkanten bilden, sind kleiner als die beyden andern, etwas convex, haben we-
-nige, kleine, ziemlich seichte Eindrücke, und stoßen in eine sehr abgerundete gemeinschaftliche Seitenkante zusammen.
-Die beyden andern größern Seitenflächen erheben sich unter einem ziemlich spitzen Winkel schief von der Grund-
-fläche, und stoßen in eine ziemlich scharfe gemeinschaftliche Kante zusammen, welche mit den Kanten der Grundfläche
-eine starke hervor springende Ecke bildet. Die eine dieser Flächen, die größte von allen, ist sehr gewölbt, und hat nur
-sehr wenige rundliche seichte Eindrücke; die durch sie mit der Grundfläche gebildete Grundkante ist schief und ungleich
-abgestumpft, die mit der anstoßenden Seitenfläche gebildete Seitenkante stumpf zugerundet. Die andere oder vierte
-Seitenfläche ist etwas concav, sonst flach und eben, und zeigt nur einen großen, aber sehr seichten, sanft verlaufenden,
-und einen ovalen, starken, tiefen Eindruck, in dessen Grunde ein großes Korn Metall steckt. Die von dieser Fläche
-mit der Grundfläche gebildete Grundkante ist abgerundet, gegen die eine Ecke hin aber ziemlich scharf, übrigens ungleich,
-etwas geschweift und eingedrückt im Verlaufe; die mit der anstoßenden Seitenfläche gebildete Seitenkante ist aber, im
-ganzen etwas gebogenen Verlaufe, ziemlich scharf.
-Die obere Endfläche entspricht der Form nach der Grundfläche, nur ist sie kleiner, und der Richtung der Seiten-
-flächen nach, wovon zwei fast senkrecht unter einem Winkel von beynahe 90, zwei aber schief unter etwa 75 von
-der Grundfläche aufsteigen, aus dem Mittel geschoben. Sie ist übrigens ziemlich stark vertieft, und hat viele, zum
-Theil große und ziemlich tiefe Eindrücke. Die von den Seitenflächen her mit derselben gebildeten Endkanten sind alle
-etwas geschweift, verdrückt, gebogen, und unregelmäßig im Verlaufe, aber doch ziemlich scharf, nur die von der con-
-vexen großen Seitenfläche her gebildete, ist stark verdrückt und etwas breit abgerundet.
-Die Rinde ist durchaus gleichförmig dieselbe, und so wie sie bey Meteor-Steinen von ähnlicher Beschaffenheit der
-Masse, bey einem solchen Aggregats-Zustande und einem gleichen qualitativen und quantitativen Verhältnisse der Be-
-stand- und Gemengtheile, zumahl bey einem ähnlichen bedeutenden Gehalte an Gediegeneisen, durchgehends gefunden
-wird; nähmlich: von schwärzlich-brauner, hie und da, mehr oder weniger, mit eisengrau und ochergelb und bräunlich
-gemischter Farbe, sehr schwachen, matten, hie und da schimmernden, stellenweise matt metallischem Glanze, und ziem-
-lich glatter, nur hie und da fein und verworren, kurz und runzlicht-aderiger, größten Theils aber klein und platt kör-
-niger, narbiger oder warziger Oberfläche, mit ziemlich häufig eingestreuten eisengrauen, metallisch glänzenden Puncten,
-und größern oder kleinern Flecken, als den vorragenden und abgeplatteten Spitzen und Zacken des eingemengten Gedie-
-geneisens. Ihre Dicke beträgt bis , selten einer Linie. Ihre Härte ist bedeutend, indem sie mit dem Stahle
-leicht und ziemlich wacker Funken gibt. Sie wirkt an allen Stellen sehr kräftig auf die Magnetnadel, und setzt eine
-ziemlich empfindliche auf einen halben Zoll Entfernung lebhaft in Bewegung.
-Sie gleicht in allen diesen Eigenschaften am meisten jener der Meteor-Steine von Eichstädt, Timochin,
-Barbotan, L'Aigle, Apt, Charsonville, Berlanguillas, Toulouse zc.
-An einigen Stellen, nahmentlich an drei Ecken der Grundfläche, und an einer der obern Endflächen, und auf
-zwei Plätzen an den Grundkanten dieses Steines, zeigt sich etwas unvollkommene Rinde, das ist, Rinde, die sich nicht
-vollkommen ausgebildet hat, keine vollkommen zusammenhangende Kruste bildet, und die Steinmasse nicht ganz bedeckt,
-sondern nur in Tropfen, oder in, aus solchen zusammen geflossenen Adern oder Flecken dieselbe theilweise deckt (1).
-Die Abbildung des Steines, welche die Versinnlichung der auffallend regelmäßigen Form und der Beschaffenheit
-seiner Oberfläche zum Zwecke hat, ist von einer Ansicht desselben genommen, in welcher sich erstere und ihre Aehnlichkeit
-eignisse, welche der um die Geschichte desselben so verdiente, in der Zwischenzeit verstorbene D. Mayer, und einer, welchen
-Graf Thun in prag besaß, und welche mir die gefälligen Besitzer einst zur Ansicht einschickten, hatten ebenfalls eine ziem-
-lich regelnäßige Gegaie. Der eine, 1 Loth schwer, war ehomsodal; der andere, der nu 3 auentchen wog, bildete eine
-vollkommene, scharfkantige, nur etwas schiefe, sonst fast gleichseitig dreiseitige Pyramide; und der dritte, von 1 Pfund 10
-Loth, einen sehr verschobenen Rhombus, dem in der Folge zn beschreibenden Steine von Lisa sehr ähnlich.
-() Es scheint nicht, daß die unvollkommene Rinde an diesen Steuen der soätern Entstehung derselben, durch Lostrennung oder
-C 2
+Der Stein ist vollkommen ganz, und um und um mit Rinde bedeckt, die nur an einigen kleinen Stellen etwas abgestoßen, und hie und da abgebrochen worden ist.
 
+Es zeichnet sich derselbe besonders durch eine anscheinende Regelmäßigkeit* in seiner Form aus. Er bildet nähmlich eine deutliche, nur etwas verschoben und ungleichseitig vierseitige, abgestumpfte niedere Pyramide,* deren Grundfläche 4 1/2 Zoll in Länge und Breite, die obere Endfläche 3 Zoll in beiden Durchmessern, und deren Höhe bei 3 Zoll mißt.
 
-### 0027
+*) Ungeachtet der Ergiebigkeit dieses Steinregens, indem sich derselbe doch über einen Flächenraum von einer halben Stunde in der Länge, und einer Viertelstunde in der Breite erstreckte, und derselbe Beobachter von seinem Standplatze aus, von wo er den einen Stein fallen sah, noch deren vier in das Getreide niederfallen hörte (die folglich in seiner Nähe, und die Steine daher im Durchschnitt überhaupt ziemlich dicht gefallen sein müssen), und viele der Steine groß und von bedeutendem Gewichte waren (von 5 bis 13 Pfund), und obgleich die Begebenheit zu jener Zeit viel Aufsehen erregte, und durch Zeitungs- und wissenschaftliche Nachrichten bekannt gemacht wurde; so scheinen doch gegenwärtig nur wenige Belege mehr davon, und meistens nur in Bruchstücken, nachweisbar vorhanden zu sein. Außer einigen Privaten in Prag, und vielleicht noch an einigen Orten in Böhmen, und Hrn. Chladni, sind meines Wissens nur das Universitäts-Museum in Pesth, die De Drée'sche Sammlung in Paris, und das Mus. britan. in London (welches das von Born beschriebene Stück mit dessen Sammlung durch Grevilles Vermächtniß erhielt), im Besitze von solchen.
 
-mit einer bekannten Figur, insbesondere aber ihre Uebereinstimmung mit andern ähnlich gestalteten Meteor-Steinen am
-deutlichsten ausspricht. Der Stein ist diesem zu Folge auf seiner Grundfläche (ihn als Pyramide betrachtend) liegend,
-von der einen breiten, convexen Seitenfläche etwas gewendet vorgestellt, um den ganzen Umriß, eine zweite Seiten-
-fläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche ersichtlich zu machen.
-LAigle.
-Czzr von den größern Steinen von dem besonders ergiebigen Steinregen (1), der sich am 26. April 1803, Nach-
-mittags gegen 1 Uhr, zu L'Aigle (Departement de l'Orne, der ehemahligen Normandie) in Frankreich (et-
-wa 25 franz. Meilen westlich von Paris) ereignete, von beynahe 2 Pfund am Gewicht.
-Es ward derselbe noch im Laufe desselben Jahres, in welchem sich die Begebenheit zutrug, in Wien zu Kaufe
-gebothen, und von dem damahligen Director, Abbé Stütz, für das k. k. Mineralien-Cabinett angekauft.
-Er ist vollkommen ganz und um und um überrindet, nur ist er hie und da an den Kanten etwas abgestoßen, und
-eine Ecke ist abgebrochen, die sich aber dabey befindet.
-Obgleich dieser Stein auf den ersten Anblick sehr unregelmäßig geformt zu sein scheint, die Flächen sehr uneben
-und ungleich, und die Kanten sehr verdrückt sind; so ist doch bey näherer Betrachtung desselben eine bestimmte, und,
-wie es scheint, nur zufällig verunstaltete Grundform unverkennbar, und auffallend die Uebereinstimmung mit dem vorher
-beschriebenen Steine von Tabor.
-Er bildet nähmlich ebenfalls eine verschoben und ungleichseitig vierseitige, abgestumpfte, niedere Pyramide, de-
-ren Grundfläche etwas über 3 Zoll, die obere Endfläche 2 Zoll, in beyden Durchmessern, und deren Höhe beynahe
-2 Zoll mißt.
-Die Grundfläche ist sehr gewölbt, und ebenfalls durch Abstumpfung einer Kante, die aber hier besonders stark
-ist, so daß gleichsam eine neue Fläche durch dieselbe gebildet wird, sehr, und um so mehr verunstaltet, als auch die
-gegen über stehende Kante einiger Maßen abgestumpft und stark verdrückt ist. Uebrigens hat diese Fläche nur wenige
-seichte Eindrücke.
-Absprengung eines Stückes, und folglich dem Mangel des benöthigten Zeit-Moments zu ihrer Bildung, welches am gewöhn-
-lichsten wohl der Fall sein dürfte, sondern vielmehr der individuellen Beschaffenheit und dem besondern Mengungsverhältnisse
-der Grundmasse an diesen Stellen, welche der Rindenbildung mehr Widerstand leisteten, zuzuschreiben sey, wie denn auch diese
-Stellen nur sehr klein sind, und keinen Verlust der Masse erkennen lassen. Ich verweise übrigens hinsichtlich dieser Beschaf-
-fenheit der Rinde, welche sich mehr oder weniger beynahe auf jedem einzelnen Meteor-Steine findet, wie ich zuerst bemerkt
-habe, und welche um so merkvürdiger ist, da sie uns am ersten über die höchst räthselhafte, und zur Zeit noch gar nicht be-
-friedigend erklärte Entstehung und Bildung der Rinde an den Meteor-Massen überhaupt Aufschluß geben könnte, auf die Er-
-klärung von Fig. 3 und 4 der sechsten Tafel, und hinsichtlich der mannigfaltigen Beschaffenheit derselben überhaupt auf jene
-sämmtlicher Darstellungen auf der vierten, fünften und sechsten Tafel, und im Allgemeinen auf meinen Aufsatz in Gil-
-bert's Annalen B. 31, und bitte damit zu vergleichen, was, hinsichtlich ihrer Entstehung und Bildung, Hr. Professor v.
-Scherer an denselben Orte, und Hr. D. Chladni in seinem neuesten Werke vorgebracht haben.
-(1) Im strengern Sinne; denn es fielen doch zwischen zwei und drei Tausend Steine auf einen Flächenraum von höchstens 2 französ.
-Quadrat-Meilen, und zwar auf deey Erplosions-Puncte beschränkt, die zusammen wohl kaum den fünften Theil dieses Flä-
-chenraums betroffen haben möchten. Das Gesammtgewicht, nach einem ähnlichen Maßstabe, wie bey dem Ereignisse von
-Stannern, geschätzt, dürfte wohl 30 bis 40, vielleicht 50 Zentner betragen haben, da viele der Steine 3 bis 5, mehrere
-selbst zwischen 10 und 17 Pfund wogen. Außerdem, daß dieses Ereigniß, eben dieser Ergiebigkeit und der günstigen Um-
-stände wegen, - daß sich dasselbe nähmlich in einer so bewohnten und cultivirten Gegend, und bey hellem Tage zutrug, -- nicht
-nur das meiste Aufsehen in neuester Zeit erregte, und die schlummernde, bisher nur von Zeit zu Zeit durch minder bedeu-
-tende Vorfälle ähnlicher Art, und oft aus weiter Ferne her, schwach angeregte Aufmerksamkeit auf diese wunderbaren, und
-wie sich's bey Erwachung dieser bald zeigte (denn noch in demselben Jahre wurden drei ähnliche beobachtet, und eine davon
-selbst noch innerhalb den Gränzen des alten Frankreichs, -- bey Apt, Departement Vaucluse, October 1803 -), keines-
-wegs so seltenen Naturerscheinungen, erweckte, sondern auch nicht wenig beytrug, durch eine, auf Veranlassung des National-
-Instituts in Paris, von einem berühmten Physiker (Biot) an Ort und Stelle vorgenommene legale und wissenschaftliche Un-
-tersuchung und Bewährung des Factums, den noch ziemlich allgemein vorherrschenden Unglauben an die Realität solcher Bege-
-benheiten zu verscheuchen; so ist es auch, aus eben diesen Gründen und durch den Speculations-Geist eines Pariser Minera-
-lien-Händlers (Lambotin), dasjenige, wovon die meisten Belege erhalten wurden und in die Welt kamen.
+*) Diese Regelmäßigkeit, auf die ich bereits in meinen Aufsätzen in Gilberts Annalen, 1808, aufmerksam gemacht habe, und die nun auch Hr. D. Chladni bewährt und einer Beachtung werth gefunden hat, ist um so merkwürdiger, da hierin eine Uebereinstimmung oder doch eine auffallende Annäherung zwischen vielen Steinen, nicht nur von einer und derselben Begebenheit (demnach zwischen Bruchstücken ein und desselben Meteors), sondern auch von, nach Zeit und Ore, sehr verschiedenen Ereignissen, und selbst zwischen solchen Statt findet, die sowohl in ihrem Aggregats- als Cohäsions-Zustande, als sogar im qualitativen und quantitativen Verhältnisse der nächsten und wesentlichsten Bestand- und Gemengtheile bedeutend von einander abweichen (und kaum können dieß in diesen Beziehungen irgend welche mehr als z. B. die Steine von Tabor und von Stannern), und da dieselbe auf einen Grund-Typus hinzudeuten scheint, der jenem sehr nahe kommt, welcher der ähnlichen Bildung (Structur, Absonderungs-Zerspaltungsform --- Figurirung ---) einiger terrestrischer, der Trapp-Formation angehörigen Fossilien, welchen die Meteor-Steine in mehrfachen Beziehungen überhaupt sehr verwandt sind, zum Grunde liegt.
 
+*) Da jener Regelmäßigkeit kein Krystallisations-Gesetz zum Grunde liegen kann, und demnach die vorkommenden Flächen und Kanten keineswegs mit wahren Krystallisations-Flächen und Kanten verglichen werden dürfen, wie sie denn auch ihrer zufälligen Beschaffenheit, der Eindrücke und Verdrückungen wegen, wenigstens nicht mit der gehörigen Genauigkeit, weder geometrisch gedeutet, noch goniometrisch bestimmt werden können; so durfte die Darstellung und Beschreibung der Formen auch nur descriptiv, nach der auffallendsten und am leichtesten zu versinnlichenden Aehnlichkeit mit einer bekannten geometrischen Figur, keineswegs aber krystallologisch genommen werden. Wollte man letzteres, so müßte man die Form dieses Steines als eine verschobene und ungleich vierseitige Säule mit schief aufgesetzter Endfläche betrachten. Bemerkenswerth scheint übrigens doch zu sein, daß zwei Seitenkanten an diesem Steine, mit möglichster Genauigkeit an gleichen Puncten gemessen, einen gleichen Winkel von beiläufig 98°, und darin eine Uebereinstimmung mit ähnlichen Kanten von drei verschiedenen säulenförmigen Basalten des Cabinettes zeigten, die damit verglichen wurden; so wie sich auch ein ganz ähnlicher Winkel von einer Seitenkante am nächst zu beschreibenden Steine von L'Aigle, und ein ähnlicher am Steine von Lissa fand. Ueberhaupt messen die Winkel der schärfern Kanten dieses Steines zwischen 75 und 95°, und die der stumpfern zwischen 105 und 125°. Zwei Steine von diesem Ereignisse, welche der um die Geschichte desselben so verdiente, in der Zwischenzeit verstorbene D. Mayer, und einer, welchen Graf Thun in prag besaß, und welche mir die gefälligen Besitzer einst zur Ansicht einschickten, hatten ebenfalls eine ziemlich regelnäßige Gegaie. Der eine, 10 Loth schwer, war ehomsodal; der andere, der nu 3 Quentchen wog, bildete eine vollkommene, scharfkantige, nur etwas schiefe, sonst fast gleichseitig dreiseitige Pyramide; und der dritte, von 1 Pfund 10 Loth, einen sehr verschobenen Rhombus, dem in der Folge zn beschreibenden Steine von Lisa sehr ähnlich.
 
-### 0028
+Die Grundfläche ist fast ganz eben, und nur an einem Rande, wo die Kante schief und etwas ungleich abgestumpft ist, von der horizontalen Ebene abweichend. Sie zeigt mehrere große länglichte, aber sehr seichte Eindrücke.
 
-13
-Von den Seitenflächen sind ebenfalls zwei an einander stoßende klein, fast senkrecht, etwas convex, und haben
-nur wenige breite, seichte Eindrücke. Die beyden andern größern erheben sich unter einem etwas spitzigen Winkel schie-
-fer, und stoßen in eine ziemlich scharfe gemeinschaftliche Kante zusammen, welche mit den Kanten der Grundfläche eben-
-falls eine hervor springende Ecke bildet. Die eine dieser Flächen ist ebenfalls convex, und ihr entspricht die abgestumpfte
-Kante der Grundfläche; die andere ist concav: gerade wie beydes am vorhin beschriebenen Steine von Tabor der Fall
-ist. Auch diese beyden Flächen haben nur sehr wenige kleine und seichte Eindrücke.
-Die obere Endfläche entspricht zwar der Form nach, obgleich sie ziemlich scharf begränzt ist, nicht der Grundfläche,
-da diese durch Abstumpfung und Verdrückung der Kanten sehr verunstaltet ist; dagegen vollkommen der gleichnahmigen
-am Steine von Tabor: drei Schenkel des auf ähnliche Art verschobenen ungleichseitigen Vierecks, welches dieselbe bil-
-det, sind nähmlich ziemlich gleich, der vierte aber ist viel kürzer; übrigens ist sie kleiner als die Grundfläche, und eben-
-falls, durch ungleiche Erhebung der Seitenflächen von der Grundfläche, aus dem Mittel geschoben. Sie ist stark vertieft,
-und hat viele, meistens ziemlich tiefe, zum Theil zusammen gedrängte, aber kleine Eindrücke.
-Auch die obern Endkanten stimmen an beyden Steinen darin überein, daß die von der convexen Seitenfläche mit
-der obern Endfläche gebildete, die stumpfste, die von der concaven die schärfste, die beyden andern etwas abgerundet sind.
-Das Winkelmaß der meisten Kanten, in so weit dasselbe einiger Maßen bestimmbar ist, fällt zwischen 80 u. 115 (1).
-Die Rinde ist genau und in jeder Beziehung dieselbe, wie bey dem Steine von Tabor, nur im Ganzen etwas
-glatter, mehr klein und platt narbig als aderig, und etwas lichter braun, mit mehr bräunlichen und gelblichen Ocherflecken,
-aber fast ohne Spur von Gediegeneisen. Ihre Dicke ist im Ganzen fast noch etwas geringer; an Härte und Wirkung
-auf den Magnet kommt sie aber genau mit jener am Taborer-Steine überein.
-An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der oberen Endfläche, und an
-der größeren Ecke der Grundfläche, zeigt sich unvollkommene Rinde; aber nur an der letzteren Stelle scheint sie die
-Folge eines Verlustes an Masse, durch spätere Lostrennung eines Stückes, zu sein.
-Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, dem-
-nach sind dabey auch gleiche Rücksichten genommen, und derselbe auf seiner -- angenommenen Grundfläche liegend,
-von der einen breitern, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriß, die andere
-breite concave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht
-zu bringen.
-Eichstädt.
-Ez, gerschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr
-Mittags, bey Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Ge-
-wicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damahligen Directors-
-Adjuncten des k. k. Mineralien-Cabinettes, Abbe Stütz, mitgetheilt wurde, der es daselbst niederlegte (2).
-Obgleich dieses Bruchstück, dem Gewichte nach, nur den 26sen Theil des ganzen Steines beträgt, so läßt sich doch
-aus den noch daran vorhandenen natürlichen, mit Rinde bedeckten Flächen welche ohne Zweifel Seitenflächen wa-
-(1) Herr Graf v. Fries allhier besitzt zwei Steine von diesem Ereignisse, wovon der eine, beynahe vollkommen ganze und über
-3 Pfund schwere, in seiner Form auffallend mit dem hier beschriebenen übereinstimmt, selbst in dem Umstande, daß zwei Sei-
-tensächen mit einer Ecke verlängert sind; der andere aber von 24 Loth am Gewichte, obgleich unvollkommen, sich doch auch
-jener Form sehr nähert.
+Zwey Seitenflächen, welche beinahe senkrecht auf die Grundfläche aufgesetzt sind, und mit derselben stumpfe und etwas abgerundete und geschweifte Grundkanten bilden, sind kleiner als die beiden andern, etwas convex, haben wenige, kleine, ziemlich seichte Eindrücke, und stoßen in eine sehr abgerundete gemeinschaftliche Seitenkante zusammen.
+
+Die beiden andern größern Seitenflächen erheben sich unter einem ziemlich spitzen Winkel schief von der Grundfläche, und stoßen in eine ziemlich scharfe gemeinschaftliche Kante zusammen, welche mit den Kanten der Grundfläche eine starke hervor springende Ecke bildet. Die eine dieser Flächen, die größte von allen, ist sehr gewölbt, und hat nur sehr wenige rundliche seichte Eindrücke; die durch sie mit der Grundfläche gebildete Grundkante ist schief und ungleich abgestumpft, die mit der anstoßenden Seitenfläche gebildete Seitenkante stumpf zugerundet. Die andere oder vierte Seitenfläche ist etwas concav, sonst flach und eben, und zeigt nur einen großen, aber sehr seichten, sanft verlaufenden, und einen ovalen, starken, tiefen Eindruck, in dessen Grunde ein großes Korn Metall steckt. Die von dieser Fläche mit der Grundfläche gebildete Grundkante ist abgerundet, gegen die eine Ecke hin aber ziemlich scharf, übrigens ungleich, etwas geschweift und eingedrückt im Verlaufe; die mit der anstoßenden Seitenfläche gebildete Seitenkante ist aber, im ganzen etwas gebogenen Verlaufe, ziemlich scharf.
+
+Die obere Endfläche entspricht der Form nach der Grundfläche, nur ist sie kleiner, und der Richtung der Seitenflächen nach, wovon zwei fast senkrecht unter einem Winkel von beinahe 90, zwei aber schief unter etwa 75° von der Grundfläche aufsteigen, aus dem Mittel geschoben. Sie ist übrigens ziemlich stark vertieft, und hat viele, zum Theil große und ziemlich tiefe Eindrücke. Die von den Seitenflächen her mit derselben gebildeten Endkanten sind alle etwas geschweift, verdrückt, gebogen, und unregelmäßig im Verlaufe, aber doch ziemlich scharf, nur die von der convexen großen Seitenfläche her gebildete, ist stark verdrückt und etwas breit abgerundet.
+
+Die Rinde ist durchaus gleichförmig dieselbe, und so wie sie bei Meteor-Steinen von ähnlicher Beschaffenheit der Masse, bei einem solchen Aggregats-Zustande und einem gleichen qualitativen und quantitativen Verhältnisse der Bestand- und Gemengtheile, zumahl bei einem ähnlichen bedeutenden Gehalte an Gediegeneisen, durchgehends gefunden wird; nähmlich: von schwärzlich-brauner, hie und da, mehr oder weniger, mit eisengrau und ochergelb und bräunlich gemischter Farbe, sehr schwachen, matten, hie und da schimmernden, stellenweise matt metallischem Glanze, und ziemlich glatter, nur hie und da fein und verworren, kurz und runzlicht-aderiger, größten Theils aber klein und platt körniger, narbiger oder warziger Oberfläche, mit ziemlich häufig eingestreuten eisengrauen, metallisch glänzenden Puncten, und größern oder kleinern Flecken, als den vorragenden und abgeplatteten Spitzen und Zacken des eingemengten Gediegeneisens. Ihre Dicke beträgt 1/12 bis 2/12, selten 3/12 einer Linie. Ihre Härte ist bedeutend, indem sie mit dem Stahle leicht und ziemlich wacker Funken gibt. Sie wirkt an allen Stellen sehr kräftig auf die Magnetnadel, und setzt eine ziemlich empfindliche auf einen halben Zoll Entfernung lebhaft in Bewegung.
+
+Sie gleicht in allen diesen Eigenschaften am meisten jener der Meteor-Steine von Eichstädt, Timochin, Barbotan, L'Aigle, Apt, Charsonville, Berlanguillas, Toulouse zc.
+
+An einigen Stellen, nahmentlich an drei Ecken der Grundfläche, und an einer der obern Endflächen, und auf zwei Plätzen an den Grundkanten dieses Steines, zeigt sich etwas unvollkommene Rinde, das ist, Rinde, die sich nicht vollkommen ausgebildet hat, keine vollkommen zusammenhangende Kruste bildet, und die Steinmasse nicht ganz bedeckt, sondern nur in Tropfen, oder in, aus solchen zusammen geflossenen Adern oder Flecken dieselbe theilweise deckt.*
+
+*) Es scheint nicht, daß die unvollkommene Rinde an diesen Steuen der soätern Entstehung derselben, durch Lostrennung oder Absprengung eines Stückes, und folglich dem Mangel des benöthigten Zeit-Moments zu ihrer Bildung, welches am gewöhnlichsten wohl der Fall sein dürfte, sondern vielmehr der individuellen Beschaffenheit und dem besondern Mengungsverhältnisse der Grundmasse an diesen Stellen, welche der Rindenbildung mehr Widerstand leisteten, zuzuschreiben sei, wie denn auch diese Stellen nur sehr klein sind, und keinen Verlust der Masse erkennen lassen. Ich verweise übrigens hinsichtlich dieser Beschaffenheit der Rinde, welche sich mehr oder weniger beinahe auf jedem einzelnen Meteor-Steine findet, wie ich zuerst bemerkt habe, und welche um so merkvürdiger ist, da sie uns am ersten über die höchst räthselhafte, und zur Zeit noch gar nicht befriedigend erklärte Entstehung und Bildung der Rinde an den Meteor-Massen überhaupt Aufschluß geben könnte, auf die Erklärung von Fig. 3 und 4 der sechsten Tafel, und hinsichtlich der mannigfaltigen Beschaffenheit derselben überhaupt auf jene sämmtlicher Darstellungen auf der vierten, fünften und sechsten Tafel, und im Allgemeinen auf meinen Aufsatz in Gilberts Annalen B. 31, und bitte damit zu vergleichen, was, hinsichtlich ihrer Entstehung und Bildung, Hr. Professor v. Scherer an denselben Orte, und Hr. D. Chladni in seinem neuesten Werke vorgebracht haben.
+
+Die Abbildung des Steines, welche die Versinnlichung der auffallend regelmäßigen Form und der Beschaffenheit seiner Oberfläche zum Zwecke hat, ist von einer Ansicht desselben genommen, in welcher sich erstere und ihre Aehnlichkeit mit einer bekannten Figur, insbesondere aber ihre Uebereinstimmung mit andern ähnlich gestalteten Meteor-Steinen am deutlichsten ausspricht. Der Stein ist diesem zu Folge auf seiner Grundfläche (ihn als Pyramide betrachtend) liegend, von der einen breiten, convexen Seitenfläche etwas gewendet vorgestellt, um den ganzen Umriß, eine zweite Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche ersichtlich zu machen.
+
+L'Aigle.
+
+Einer von den größern Steinen von dem besonders ergiebigen Steinregen,* der sich am 26. April 1803, Nachmittags gegen 1 Uhr, zu L'Aigle (Departement de l'Orne, der ehemahligen Normandie) in Frankreich (etwa 25 franz. Meilen westlich von Paris) ereignete, von beinahe 2 Pfund am Gewicht.
+
+*) Im strengern Sinne; denn es fielen doch zwischen zwei und drei Tausend Steine auf einen Flächenraum von höchstens 2 französ. Quadrat-Meilen, und zwar auf deey Erplosions-Puncte beschränkt, die zusammen wohl kaum den fünften Theil dieses Flächenraums betroffen haben möchten. Das Gesammtgewicht, nach einem ähnlichen Maßstabe, wie bei dem Ereignisse von Stannern, geschätzt, dürfte wohl 30 bis 40, vielleicht 50 Zentner betragen haben, da viele der Steine 3 bis 5, mehrere selbst zwischen 10 und 17 Pfund wogen. Außerdem, daß dieses Ereigniß, eben dieser Ergiebigkeit und der günstigen Umstände wegen, --- daß sich dasselbe nähmlich in einer so bewohnten und cultivirten Gegend, und bei hellem Tage zutrug, --- nicht nur das meiste Aufsehen in neuester Zeit erregte, und die schlummernde, bisher nur von Zeit zu Zeit durch minder bedeutende Vorfälle ähnlicher Art, und oft aus weiter Ferne her, schwach angeregte Aufmerksamkeit auf diese wunderbaren, und wie sichs bei Erwachung dieser bald zeigte (denn noch in demselben Jahre wurden drei ähnliche beobachtet, und eine davon selbst noch innerhalb den Gränzen des alten Frankreichs, --- bei Apt, Departement Vaucluse, October 1803 ---), keineswegs so seltenen Naturerscheinungen, erweckte, sondern auch nicht wenig beitrug, durch eine, auf Veranlassung des National-Instituts in Paris, von einem berühmten Physiker (Biot) an Ort und Stelle vorgenommene legale und wissenschaftliche Untersuchung und Bewährung des Factums, den noch ziemlich allgemein vorherrschenden Unglauben an die Realität solcher Begebenheiten zu verscheuchen; so ist es auch, aus eben diesen Gründen und durch den Speculations-Geist eines Pariser Mineralien-Händlers (Lambotin), dasjenige, wovon die meisten Belege erhalten wurden und in die Welt kamen.
+
+Es ward derselbe noch im Laufe desselben Jahres, in welchem sich die Begebenheit zutrug, in Wien zu Kaufe gebothen, und von dem damahligen Director, Abbé Stütz, für das k. k. Mineralien-Cabinett angekauft.
+
+Er ist vollkommen ganz und um und um überrindet, nur ist er hie und da an den Kanten etwas abgestoßen, und eine Ecke ist abgebrochen, die sich aber dabei befindet.
+
+Obgleich dieser Stein auf den ersten Anblick sehr unregelmäßig geformt zu sein scheint, die Flächen sehr uneben und ungleich, und die Kanten sehr verdrückt sind; so ist doch bei näherer Betrachtung desselben eine bestimmte, und, wie es scheint, nur zufällig verunstaltete Grundform unverkennbar, und auffallend die Uebereinstimmung mit dem vorher beschriebenen Steine von Tabor.
+
+Er bildet nähmlich ebenfalls eine verschoben und ungleichseitig vierseitige, abgestumpfte, niedere Pyramide, deren Grundfläche etwas über 3 Zoll, die obere Endfläche 2 1/2 Zoll, in beiden Durchmessern, und deren Höhe beinahe 2 1/2 Zoll mißt.
+
+Die Grundfläche ist sehr gewölbt, und ebenfalls durch Abstumpfung einer Kante, die aber hier besonders stark ist, so daß gleichsam eine neue Fläche durch dieselbe gebildet wird, sehr, und um so mehr verunstaltet, als auch die gegen über stehende Kante einiger Maßen abgestumpft und stark verdrückt ist. Uebrigens hat diese Fläche nur wenige seichte Eindrücke.
+
+Von den Seitenflächen sind ebenfalls zwei an einander stoßende klein, fast senkrecht, etwas convex, und haben nur wenige breite, seichte Eindrücke. Die beiden andern größern erheben sich unter einem etwas spitzigen Winkel schiefer, und stoßen in eine ziemlich scharfe gemeinschaftliche Kante zusammen, welche mit den Kanten der Grundfläche ebenfalls eine hervor springende Ecke bildet. Die eine dieser Flächen ist ebenfalls convex, und ihr entspricht die abgestumpfte Kante der Grundfläche; die andere ist concav: gerade wie beides am vorhin beschriebenen Steine von Tabor der Fall ist. Auch diese beiden Flächen haben nur sehr wenige kleine und seichte Eindrücke.
+
+Die obere Endfläche entspricht zwar der Form nach, obgleich sie ziemlich scharf begränzt ist, nicht der Grundfläche, da diese durch Abstumpfung und Verdrückung der Kanten sehr verunstaltet ist; dagegen vollkommen der gleichnahmigen am Steine von Tabor: drei Schenkel des auf ähnliche Art verschobenen ungleichseitigen Vierecks, welches dieselbe bildet, sind nähmlich ziemlich gleich, der vierte aber ist viel kürzer; übrigens ist sie kleiner als die Grundfläche, und ebenfalls, durch ungleiche Erhebung der Seitenflächen von der Grundfläche, aus dem Mittel geschoben. Sie ist stark vertieft, und hat viele, meistens ziemlich tiefe, zum Theil zusammen gedrängte, aber kleine Eindrücke.
+
+Auch die obern Endkanten stimmen an beiden Steinen darin überein, daß die von der convexen Seitenfläche mit der obern Endfläche gebildete, die stumpfste, die von der concaven die schärfste, die beiden andern etwas abgerundet sind.
+
+Das Winkelmaß der meisten Kanten, in so weit dasselbe einiger Maßen bestimmbar ist, fällt zwischen 80 u. 115°.*
+
+Die Rinde ist genau und in jeder Beziehung dieselbe, wie bei dem Steine von Tabor, nur im Ganzen etwas glatter, mehr klein und platt narbig als aderig, und etwas lichter braun, mit mehr bräunlichen und gelblichen Ocherflecken, aber fast ohne Spur von Gediegeneisen. Ihre Dicke ist im Ganzen fast noch etwas geringer; an Härte und Wirkung auf den Magnet kommt sie aber genau mit jener am Taborer-Steine überein.
+
+An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der oberen Endfläche, und an der größeren Ecke der Grundfläche, zeigt sich unvollkommene Rinde; aber nur an der letzteren Stelle scheint sie die Folge eines Verlustes an Masse, durch spätere Lostrennung eines Stückes, zu sein.
+
+Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, demnach sind dabei auch gleiche Rücksichten genommen, und derselbe auf seiner --- angenommenen --- Grundfläche liegend, von der einen breitern, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriß, die andere breite concave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht zu bringen.
+
+## Eichstädt.
+
+Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damahligen Directors-Adjuncten des k. k. Mineralien-Cabinettes, Abbe Stütz, mitgetheilt wurde, der es daselbst niederlegte.*
+
+Obgleich dieses Bruchstück, dem Gewichte nach, nur den 26sten Theil des ganzen Steines beträgt, so läßt sich doch aus den noch daran vorhandenen natürlichen, mit Rinde bedeckten Flächen welche ohne Zweifel Seitenflächen waren --- und aus deren Richtung, so wie aus der gemeinschaftlichen Kante, in welche dieselben zusammen stoßen, nicht nur auf eine regelmäßige, sondern selbst auf eine vierseitig pyramidale, und somit den vorhin beschriebenen Steinen von Tabor und L'Aigle sehr ähnliche Form, welche dieser Stein, als ganz, gehabt haben dürfte, mit aller Wahrscheinlichkeit schließen.
+
+*) Herr Graf v. Fries allhier besitzt zwei Steine von diesem Ereignisse, wovon der eine, beinahe vollkommen ganze und über 3 Pfund schwere, in seiner Form auffallend mit dem hier beschriebenen übereinstimmt, selbst in dem Umstande, daß zwei Seitensächen mit einer Ecke verlängert sind; der andere aber von 24 Loth am Gewichte, obgleich unvollkommen, sich doch auch jener Form sehr nähert.
+
 (2) Es w. ie ack, wegen des offenbaren Gehaltes an Gediegeneisen, als des merkwürdigsten Gemengtheiles desselben, und
 mit ihm, aus gieichem Bestimmungsgrunde, der Stein von Tabor (so wie in der Folge der Stein von 'Aigle, und das
 Bruchstuck vo anrkirchner Meteor-Steine), der Agramer Eisen-Masse, und den vorhandenen Stücken vom sibirischen Eisen,
@@ -423,7 +198,6 @@ mit der Suite der Magneteisen-Steine vereinigt, in einen Schrank eingereihet.
 Die Erhaltung dieses Stückes gab zu einem Aufsatze Veranlassung, welchen Abbé Stütz noch in demselben Jahre, 1789,
 in Form ern eines Beieses, , as eben angefangene peniodische eae nies on uns ..s-a gestifteren ontanistischen
 öläe esersamei. . , Lmns, ,n, nineen iee, eicher nnih nnr die feiense unntänduichere achrich-
-
 
 ### 0029
 
