@@ -234,220 +234,65 @@ Die Abbildung zeigt diesen Stein auf die eine, als untere End- oder Grundfläche
 
 ### Lissa.
 
-17
-, zeößte und einzig ganz und vollkommen erhaltene von den vier bey Lissa (zwischen den Dörfern Strattow
-und Wustra, 4 bis 5 Meilen O. N. O. von Prag) im Bunzlauer Kreise in Böhmen am 3. September 1808,
-Nachmittags um halb 4 Uhr, gefallenen und im Falle beobachteten und aufgefundenen Steinen.
+Der größte und einzig ganz und vollkommen erhaltene von den vier bei Lissa (zwischen den Dörfern Strattow und Wustra, 4 bis 5 Meilen O. N. O. von Prag) im Bunzlauer Kreise in Böhmen am 3. September 1808, Nachmittags um halb 4 Uhr, gefallenen und im Falle beobachteten und aufgefundenen Steinen.
+
 Er wiegt 5 Pfund 19 Loth.
-Es wurde derselbe von vier Augenzeugen, in deren Nähe er niederfiel, im Auffallen beobachtet, gleich aufgehoben
-und an das Oberamt zu Lissa abgeliefert, welches, nachdem es am 8. September eine förmliche Untersuchung des
-Factums vorgenommen, und eine officielle Anzeige davon an das königl. Kreisamt zu Bunzlau erstattet hatte, densel-
-ben bis zu der in Folge des kreisämtlichen Berichtes, von Seite des königl. Böhmischen Landes-Guberniums veran-
-laßten wissenschaftlichen Untersuchung, welche am 17. November Statt fand, aufbewahrte, und dann an die Untersu-
-chungs-Commission abgab, von welcher derselbe mit den dießfälligen Berichten nach Wien eingesendet wurde (1).
-Dieser Stein ist, bis auf einige kleine Stellen an den schärfern Kanten, wo die Rinde etwas abgestoßen ist, und zwei
-Ecken, wo ursprünglich ein Stück abgeschlagen worden war, doch so, daß die Form des Steines keineswegs gelitten,
-und der Verlust der Masse kaum 5 bis 6 Loth betragen haben mag, vollkommen ganz und durchaus mit der gewöhn-
-lichen Rinde bedeckt.
-Seine Gestalt ist nicht minder auffallend regelmäßig als jene der beschriebenen Steine von Tabor und von
-L'Aigle, und noch mehr die Aehnlichkeit, die hierin zwischen allen dreien Statt findet.
-Er bildet nähmlich ebenfalls eine deutliche, verschoben und ungleichseitig vierseitige, stark abgestumpfte, niedere
-Pyramide, die nur etwas mehr als an den beyden vorigen in die Breite gezogen ist, so daß die beyden Endflächen ein
-mehr länglichtes Viereck bilden.
-Die größere End- oder Grundfläche (2) hat über 6 Zoll im längern, und 4z Zoll im schmälern Durchmesser,
-die kleinere oder obere Endfläche 4 zu 3 Zoll, und die Seitenflächen haben 3 Zoll Höhe.
-(1) Bruchstücke von Steinen, als Belege dieser Begebenheit neuester Zeit, möchten wohl zu den seltensten und am schwersten zu er-
-haltenden gehören. Denn fürs erste war der Steinfall von sehr geringer Bedeutung, es fielen nähmlich nur "ier Steine,
-die zusammen kaum 18 Pfund wogen, und wenn gleich unter den gewöhnlichen tumultuarischen Erscheinungen, doch ohne ges.
-ßes Aufsehen zu erregen, und nur vor wenigen Augenzeugen; so wie denn auch die ganze Begebenheit schwerlich beachtet wor-
-den, noch weniger zur sfenticchen Nott, geisncnien sein wurde, wenn nicht, erst drei Monaihe feaher, und zwar kaun auf
-20 Meilen Entfernung, eine ähnliche, der Steinfall bey Stannern, Statt gehabt, oder vielmehr, wenn nicht diese voraus-
-gegangene Begebenheit durch die veranlaßten ämtlichen Untersuchungen, die selbst zu jener Zeit noch im Gange waren, und
-sich sohar, einiger Nebenersheinungen een, aber die Gräinen Bohinener eein, e nnmertfamtnie de. eaea sehs--
-den, und selbst des Lanvolls in jener Gegend aufgeregt gehabt hte ndererseits wurden die gefauenen Steine nur wenig
-zerstückelt, und erhielten bald eine sire Bestinmung. II. .e. s. die Erzherzoge Rainer un Iohann erhielten große
-Beuchstäcke fur öchstderen Samnmungen, en s Se. erceun, gerr ea, rsna kleine Siuce blieben zum Angeden-
-ken in Kloster zu Lisa, in den Händen einiger Beamten, nns i esise des Hrn. 1. Reuß von Bilin. Diese möchten,
-n ö ehhden Stüctn der talseei tlnt, aen oss a.. penine äe eic- eerachen.
-finden sich, meines Wisens, kleine Fragmente in den Sammlungen Chladnis, Klaproths und De Drées, und ein
-Beuchstee son ewa7 orh in der Sanuing der mineralogischen Geseuschaft zu Iena.
-( Den Sei sn dieser Ansicht und beteachel, in wechen saich nchmuich dessen Regelnäßigteit und die Aehn-
-ihtläse s snsnh n sne new en se ns an eniesase he n i n --
-Her- eezeaty meu, eihen e, Genenenheir der ienshaftlichen untersichung des Faerns, zu welcher derselbe be-
-"i-si s asi sis läilssi .. s. . . 5 .
-i . s .
-§.n. a. s issscinesin. s chesl-id-
-nach - kystallogravhisch n Gehlens onal für für Ehemnie, physik und Mineralogie, . 8. S. 47, 1809) als eine un-
-"e Seensnichen terlchtend, men-
-ir lisn Seieisss, i i ssisheise sesi n. ei säsieeientiessss, .
-6
 
+Es wurde derselbe von vier Augenzeugen, in deren Nähe er niederfiel, im Auffallen beobachtet, gleich aufgehoben und an das Oberamt zu Lissa abgeliefert, welches, nachdem es am 8. September eine förmliche Untersuchung des Factums vorgenommen, und eine officielle Anzeige davon an das königl. Kreisamt zu Bunzlau erstattet hatte, denselben bis zu der in Folge des kreisämtlichen Berichtes, von Seite des königl. Böhmischen Landes-Guberniums veranlaßten wissenschaftlichen Untersuchung, welche am 17. November Statt fand, aufbewahrte, und dann an die Untersuchungs-Commission abgab, von welcher derselbe mit den dießfälligen Berichten nach Wien eingesendet wurde.* Dieser Stein ist, bis auf einige kleine Stellen an den schärfern Kanten, wo die Rinde etwas abgestoßen ist, und zwei Ecken, wo ursprünglich ein Stück abgeschlagen worden war, doch so, daß die Form des Steines keineswegs gelitten, und der Verlust der Masse kaum 5 bis 6 Loth betragen haben mag, vollkommen ganz und durchaus mit der gewöhnlichen Rinde bedeckt.
 
-### 0033
+*) Bruchstücke von Steinen, als Belege dieser Begebenheit neuester Zeit, möchten wohl zu den seltensten und am schwersten zu erhaltenden gehören. Denn fürs erste war der Steinfall von sehr geringer Bedeutung, es fielen nähmlich nur vier Steine, die zusammen kaum 18 Pfund wogen, und wenn gleich unter den gewöhnlichen tumultuarischen Erscheinungen, doch ohne großes Aufsehen zu erregen, und nur vor wenigen Augenzeugen; so wie denn auch die ganze Begebenheit schwerlich beachtet worden, noch weniger zur öffentlichen Notiz gekommen sein würde, wenn nicht, erst drei Monathe früher, und zwar kaum auf 20 Meilen Entfernung, eine ähnliche, der Steinfall bei Stannern, Statt gehabt, oder vielmehr, wenn nicht diese vorausgegangene Begebenheit durch die veranlaßten ämtlichen Untersuchungen, die selbst zu jener Zeit noch im Gange waren, und sich sogar, einiger Nebenersheinungen wegen, uber die Gränzen Bohmens erstreckten, die Aufmerksamkeit der Local-Behörden, und selbst des Landvolks in jener Gegend aufgeregt gehabt hätte. Andererseits wurden die gefallenen Steine nur wenig zerstückelt, und erhielten bald eine fixe Bestinmung. II. k. k. HH. die Erzherzoge Rainer un Johann erhielten große Bruchstücke fur Höchstderen Sammlungen, eben so Se. Excellenz Herr Graf v. Wrbna; kleine Stücke blieben zum Angedenken in Kloster zu Lissa, in den Händen einiger Beamten, und im Bestize des Hrn. D. Reuss von Bilin. Diese möchten, mit den beiden Stücken der kaiserl. Sammlung, allein schon uber 10 Pfund am Gewichte betragen. Von dem Reste befinden sich, meines Wissens, kleine Fragmente in den Sammlungen Chladnis, Klaproths und De Drées, und ein Bruchstück son etwa 7 Loth in der Sammlung der mineralogischen Gesellschaft zu Jena.
 
-Die Grundfläche ist sehr unregelmäßig, und durch viele, zum Theil ziemlich große und tiefe Eindrücke, vorzüg-
-lich aber durch starke Abstumpfung der beyden Grundkanten der gegen über stehenden breitern Seitenflächen sehr verun-
-staltet, indem durch diese gewisser Maßen zwei schiefe Flächen gebildet werden, die fast in der Mitte der Grundfläche
-zusammen stoßen. (Es ist bemerkenswerth, daß die stärkere Abstumpfung, gerade wie beym Taborer und L'Aigler Steine,
-dieselbe breite und gewölbte Seitenfläche trifft; besonders auffallend aber ist übrigens die Aehnlichkeit hinsichtlich der dop-
-pelten Abstumpfung und der Gewölbtheit der Grundfläche mit dem letztern.)
-Von den Seitenflächen sind ebenfalls zwei größer und breiter; auch ist die eine davon convex, und durch viele
-ziemlich große und tiefe Eindrücke sehr verunstaltet; die andere concav, mit sehr wenigen kleinen seichten Eindrücken. Diese
-beyden Flächen, welche in Hinsicht der Beschaffenheit ihrer Oberfläche zweien an einander stoßenden am Taborer Steine
-so ähnlich sind, gränzen hier nicht an einander, sondern stehen sich gegen über, und sind mehr senkrecht als schief aufge-
-stellt. Die von beyden mit der Grundfläche gebildeten Kanten sind, wie bereits bemerkt, stark schief abgestumpft; die
-mit der obern Endfläche gebildeten aber ziemlich scharf. Von den beyden andern Seitenflächen, die etwas schiefer auf-
-steigen, ist die eine ziemlich gewölbt, hat viele kleine, nicht sehr tiefe Eindrücke, aber eine große und ein paar kleine
-Vertiefungen, die von einem bruchstückweisen Verluste der Masse (durch spätere Lostrennung oder Absprengung) vor
-der Rindenbildung herzurühren scheinen, und welche diese Fläche sehr verunstalten; die andere ist mäßig gewölbt, sonst
-eben, und wenige seichte Eindrücke abgerechnet, besonders glatt. Beyde bilden mit der Grundfläche sehr zugerundete,
-mit der obern Endfläche dagegen besonders scharfe Kanten. Die gemeinschaftliche Seitenkante, in welche jene letztere
-ebenere Seitenfläche mit der angränzenden, concaven, breitern Seitenfläche zusammen stoßt, und welche besonders
-scharf ist (der Winkel - 0 --- 85), bildet mit den Grundkanten dieser Flächen ebenfalls eine stark hervor springende
-Ecke, wie dieß bey den Steinen von Tabor und von L'Aigle der Fall ist.
-Die obere Endfläche bildet ein ziemlich regelmäßiges, länglichtes, verschobenes Viereck, entspricht ziemlich dem Mit-
-tel der Grundfläche, ist aber wegen schiefer Richtung der Seitenflächen beträchtlich kleiner, fast flach, nur etwas con-
-cav, und durch viele aber kleine und sehr seichte Eindrücke uneben gemacht. Sie gleicht jener am Taborer und L'Aigler
-Steine auch darin, daß drei Schenkel des Vierecks bedeutend größer sind als der vierte; übrigens ist sie länglichter.
-Das Winkelmaß schwankt, obgleich es sich wegen starker Ungleichheit, Eindrückung und Verdrückung der Kanten
-nur an wenigen Stellen approximativ bestimmen läßt, nur zwischen 80 und 110 (1).
-Die Rinde hält, dem Aggregats-Zustande und dem quantitativen Verhältnisse der Gemengtheile gemäß, nach
-welchen diese Steine gleichsam ein Verbindungsglied zwischen zwei darin, und folglich dem äußern Ansehen nach ziemlich
-stark abweichenden Reihen von Meteor-Steinen bilden, das Mittel zwischen jener an den Steinen von Tabor,
-L'Aigle, Eichstädt zc., und jener der Steine von Siena, Parma, Benares zc., am ähnlichsten ist sie aber
-der Rinde an den Steinen von York und Agen, mit welchen diese Steine auch in obigen Beziehungen die meiste
-Aehnlichkeit haben (2).
-Sie ist nähmlich hier, und nahmentlich an diesem Steine, schwarz, beynahe kohlschwarz, ohne allem metallisch-
-andere mit zwei sehr ungleichen Flächen zugeschärft ist (die, jener gegen über stehende, keineswegs gedoppelte, sondern bloß
-durch große und tiefe Eindrücke verdrückte und verunstaltete Seitenfläche).
-(1) Ein kleines, 3 Loth schweres Bruchstück eines ursprünglich ebenfalls bey 5 Pfund schwer gewesenen, aber in mehrere Stücke
-zerschlagenen Steines von diesem Ereignisse, zeigt die Reste von zwei überrindeten Flächen, wovon die eine besonders flach,
-eben und glatt ist, und, von einer als Basis angenommenen Bruchfläche, unter einem Winkel von etwa 84, die andere,
-etwas unebenere, vertieftere, eingedrücktere, und, der Rinde nach, rauhere, unter 60 aufsteigt, und welche, unter einem
-Wintel von eeiiung 6s ii -, in eine desonders scharfe geneinschaftliche Kante zusammen soßen, die wieder von dersel
-ben Basis unter einem Winkel von 50 bis 55 aufsteigt, daher wohl die hervor springende Ecke jenes Steines gebildet hat,
-der nach diesen Indicien höchst wahrscheinlich eine ähnliche verschoben vierseitige Pyramidal-Form, wie der beschriebene, ge-
-habt haben dürfte.
-Der Stein im Besitze Sr. k. H. des Erzherzogs Iohann, im Iohanneo zu Grätz, - welcher 1 Pfund 7 Loth wiegt, und
-dnioh- ntonnen asn ia, ies s zc se e" sevn sseint, ien enn gses-
-diache nre mir sehr indoltonnener mide slee,, der eiehe giaichsan nin- acgensgen a ,- eui ein ames "erschobene-
-bierseitiges peiona vor, und da- euchsiae in der Sann Se. Een rafen " -tna, m- Lotb an
-Gewicht, läßt wenigstens auf eine ähnliche rhomboidale Form des Steines, von dem es abgeschlagen wurde, schließen.
-( Ih behalte mnir oo-, bey einer andein e-atntag ae- deg. mehendadun,, ehntchchnea d uebergang- der verschiedenen
-Meteor-Steine umständlicher zu sprechen, und verweise inzwischen auf die Erklärung der siebenten Tafel.
+Seine Gestalt ist nicht minder auffallend regelmäßig als jene der beschriebenen Steine von Tabor und von L'Aigle, und noch mehr die Aehnlichkeit, die hierin zwischen allen dreien Statt findet.
 
+Er bildet nähmlich ebenfalls eine deutliche, verschoben und ungleichseitig vierseitige, stark abgestumpfte, niedere Pyramide, die nur etwas mehr als an den beiden vorigen in die Breite gezogen ist, so daß die beiden Endflächen ein mehr länglichtes Viereck bilden.
 
-### 0034
+Die größere End- oder Grundfläche* hat über 6 Zoll im längern, und 4 1/2 Zoll im schmälern Durchmesser, die kleinere oder obere Endfläche 4 1/2 zu 3 Zoll, und die Seitenflächen haben 3 1/2 Zoll Höhe.
 
-19
-ocherbraunen Ansehen, im Ganzen zwar mehr matt als glänzend, aber doch stellenweise von einem seidenartigen Schim-
-mer, und, obgleich sehr zart, doch mehr runzlicht als narbigt, oder warzig rauh. Obgleich sie beym ersten Anblick in
-diesen Beziehungen gleichförmig über den ganzen Stein ausgedehnt zu sein scheint; so zeigt doch eine genauere Betrach-
-tung und Vergleichung einige Verschiedenheit. An einer Hälfte dieses Steines, und zwar an der oberen Endfläche, an
-der breiten concaven, und der kleineren verunstalteten Seitenfläche (welche Flächen, nach obiger Beschreibung, auch in
-Betreff der übrigen Beschaffenheit ihrer Oberfläche mit einander übereinstimmen), zeigt sie sich ganz auf die beschriebene
-Weise; an der Grundfläche dagegen, der breiten convexen und der andern kleineren, ebenfalls gewölbten Seitenfläche
-(die ihrer übrigen Beschaffenheit nach wieder mit einander übereinstimmen), erscheint sie mehr braun, mit einem schwachen,
-etwas ins Kupferrothe ziehenden Schimmer, zumahl in den Eindrücken, im Ganzen aber matter und glatter, wenigstens
-weniger aderig; auch scheint sie hier etwas dünner zu sein. Eine kleine, aber kaum beschreibbare Abweichung, zeigt in
-allen Beziehungen die eine kleinere, am meisten gewölbte und ebenste Seitenfläche, so daß demnach dieser Stein, hin-
-sichtlich seiner Oberfläche, eine dreifache Verschiedenheit, gewisser Maßen drei Seiten, zeigt (1).
-Die Dicke der Rinde ist übrigens im Ganzen, wie an den meisten Meteor-Steinen, etwa zwischen bis Li-
-nien. Nur an einzelnen kleinen Stellen, hie und da an den Kanten, zeigt sich eine Spur von unvollkommener, unaus-
-gebildeter Rinde, wo die Masse des Steines mehr oder weniger verändert (etwas gebräunt) zu Tage liegt, und es das
-Ansehen hat, als wenn die flüssige Rindenmasse über diese Stellen sich nicht hätte ausbreiten, nicht zusammen fließen
-können. In einem kleinen, aber tiefen Eindrucke an einer der Flächen, findet sich eine solche Stelle, wo die Masse
-des Steines ganz und gar unverändert ist, und den frischesten Bruch zeigt, indeß doch der sie begränzende Rindenrand
-deutlich erkennen läßt, daß es kein künstlicher Bruch ist.
-Ihre Härte ist kaum geringer als die der Rinde an den Steinen von Tabor und L'Aigle; aber auf die Mag-
-netnadel wirkt sie bedeutend schwächer.
-Die Abbildung stellt den Stein nach der Ansicht und Haltung, nach welchen die Beschreibung genommen, auf
-der größeren End- oder Grundfläche liegend vor, so daß, mit dem ganzen Umrisse, die eine ausgezeichnetere, breitere,
-concave Seitenfläche, die obere Endfläche, und zum Theil noch die zwei kleinen Seitenflächen, wovon die eine mit
-der vordern die verlängerte Kante und vorspringende Ecke bildet, zu ersehen sind.
-(1) Von dieser, wie mir deucht, höchst merkwürdigen, und von mir zuerst an den Steinen von Stannern beobachteten Verschie-
-denhei- ee eersache sawhi,,s s ensesondere de- inde an ein und demmselben Steine, wird bey Beschreibung der in diese-
-Beziehung besonders ausgezeichneten ganzen Steine von Stannern, und bey Erklärung der Figuren auf der fünften und sechs-
-ten Tafel, die Rede sein. Zeigt sich gleich an diesem Steine von Lissa diese Verschiedenheit, zumahl der Rinde, nicht so auf-
-fauend(te es auch bey ihrer Beschaffenheit in Augemeinen als Folge des Aggregats-Zustandes und des qualitativen und
-auarben Berhitnises der eGneng- und Beanndhhe-, ,nu dndn-bnsene e eiiengehaes egen niche amdee - fa,
-und noch weniger ey ienen Meteor-Steinen der Fau ist, deren Gehalt an -- Gediegen -- Eisen noch weit berrächtiicher be-
-funden wird); so zeigt sie sich doch, was in anderer Hinsicht nicht minder merkwürdig ist, wie es auch von ganz anderen ur-
-sachen herrühre, um s auender wischen den einzeinen Steinen von dieser Begebenheit. An dem einen kleinen Bruchstace
-der Samnlung nahniich ia dinde neh eei schoarzer, noch mehr seidenartig schimmernd, zumahl an der einen Fiache,
-und, äußerst zart zwar, aber sehr ausgezeichnet, runzlicht-aderig, und überhaupt der Rinde der Steine von Parma un e-
-nares gar sehr ähnlich; dagegen die Steine in Besitze Sr. k. H. des Erzherzogs Iohann, und Sr. Ercelenz des Hrn. Gra-
-en d Wins, eni- ste eihen, di bnnche gant sen-- lntsn si, ente hnls, matt,
-braun und weit glrter in s. nie entsrechend und mn geiche Annahhnng, ist auch ie innere Beschaßen-
-hen un das unsehen d- ag- in üche dn dise S silsrihenr, etn- Hinsieche e ..
-schafenheit der Oberfläche nd Rinde, a anch der Masse in anern, die offenbar von einer Berschiedenheit im Aggregats-
-d cshasions-Zustande, und wenigstens des uantitativen Verhatenises der Gemengtheile abhängt, findet sich abrigens niche
-sieser eeeene-, ondern auch se, eheeren andern, nammeenlich bey ienen von Stannern und
-n s i nonelisn, is mschi-
-funden neos.n, wenn man Gelegenheie hale, e viele Stein. uns Brnchstücke von ein und demselben Ereignise vergleichen zu
-isnteen, , ecen der Fani se, ss ge sndsis iche ssß ben verschiedenen einnelnen Steinen desselben Niedera-
-,,iT ssnä. n, rschen lci, , enicene eneen, enderni tieseceler teds tyr-s-
-ansrät ss (ise aenis, . s5 sse sinicsis.e ane, e ie onstlnein .n odln- enen n. e-
-und bey manchen von L'Aigle der Fall ist, als Bruchstücke von Steinen von, nach Zeit und Ort, sehr entfernten Begebenheiten.
-E 2
+*) Den Stein von dieser Ansicht und bei dieser Haltung betrachtet, in wechen sich nähmlich dessen Regelmäßigkeit und die Aehn-
+lichkeit mit einer geometrischen Figur am auffallendsten ausspricht und am deutlichsten beschreiben und darstellen lässt.  
+Herr Bergrath Reuss, welchem bei Gelegenheit der wissenschaftlichen Untersuchung des Factums, zu welcher derselbe beauftragt wurde, und bei Ansicht dieses Steines die Regelmässigkeit der Form desselben nicht entgangen war, ob er gleich durch keine ähnliche Beobachtung aufmerksam gemacht worden zu sein scheint, betrachtete den Stein krystallologisch, folglich in einer andern Haltung, nähmlich der Länge nach, die beiden Endflächen als Seitenflächen nehmend, und beschreibt ihn demnach --- kystallographisch (in Gehlens Journal für Chemie, Physik und Mineralogie, B. 8. S. 447, 1809) als eine unregelmässige funfseitige Säule (die beiden Abstumpfungflachen der Grundkanten als einzelne Seitenflächen betrachtend), mit sehr ungleichen Seitenflächen, und an welcher eine Endfläche schief angesetzt (eine der schmalern gewolbtern Seitenflächen), die andere mit zwei sehr ungleichen Flächen zugeschärft ist (die, jener gegen über stehende, keineswegs gedoppelte, sondern bloß durch große und tiefe Eindrücke verdrückte und verunstaltete Seitenfläche).
 
+Die Grundfläche ist sehr unregelmäßig, und durch viele, zum Theil ziemlich große und tiefe Eindrücke, vorzüglich aber durch starke Abstumpfung der beiden Grundkanten der gegen über stehenden breitern Seitenflächen sehr verunstaltet, indem durch diese gewisser Maßen zwei schiefe Flächen gebildet werden, die fast in der Mitte der Grundfläche zusammen stoßen. (Es ist bemerkenswerth, daß die stärkere Abstumpfung, gerade wie beim Taborer und L'Aigler Steine, dieselbe breite und gewölbte Seitenfläche trifft; besonders auffallend aber ist übrigens die Aehnlichkeit hinsichtlich der doppelten Abstumpfung und der Gewölbtheit der Grundfläche mit dem letztern.)
 
-### 0035
+Von den Seitenflächen sind ebenfalls zwei größer und breiter; auch ist die eine davon convex, und durch viele ziemlich große und tiefe Eindrücke sehr verunstaltet; die andere concav, mit sehr wenigen kleinen seichten Eindrücken. Diese beiden Flächen, welche in Hinsicht der Beschaffenheit ihrer Oberfläche zweien an einander stoßenden am Taborer Steine so ähnlich sind, gränzen hier nicht an einander, sondern stehen sich gegen über, und sind mehr senkrecht als schief aufgestellt. Die von beiden mit der Grundfläche gebildeten Kanten sind, wie bereits bemerkt, stark schief abgestumpft; die mit der obern Endfläche gebildeten aber ziemlich scharf. Von den beiden andern Seitenflächen, die etwas schiefer aufsteigen, ist die eine ziemlich gewölbt, hat viele kleine, nicht sehr tiefe Eindrücke, aber eine große und ein paar kleine Vertiefungen, die von einem bruchstückweisen Verluste der Masse (durch spätere Lostrennung oder Absprengung) vor der Rindenbildung herzurühren scheinen, und welche diese Fläche sehr verunstalten; die andere ist mäßig gewölbt, sonst eben, und wenige seichte Eindrücke abgerechnet, besonders glatt. Beyde bilden mit der Grundfläche sehr zugerundete, mit der obern Endfläche dagegen besonders scharfe Kanten. Die gemeinschaftliche Seitenkante, in welche jene letztere ebenere Seitenfläche mit der angränzenden, concaven, breitern Seitenfläche zusammen stoßt, und welche besonders scharf ist (der Winkel = 80-85°), bildet mit den Grundkanten dieser Flächen ebenfalls eine stark hervor springende Ecke, wie dieß bei den Steinen von Tabor und von L'Aigle der Fall ist.
 
-20
-Vierte Tafel.
-Stannern.
-, größte (1) von den bey Stannern in Mähren, am 22. May 1808, Morgens gegen 6 Uhr, gefallenen
-Steinen (2), welcher ganz erhalten wurde.
-Es ward derselbe erst gegen Ende des Monaths Julius jenes Jahres, also zwei Monathe nach dem Ereignisse,
-indem er in ein Kornfeld gefallen war und da verborgen blieb, von Katharina Pauser und ihrem Manne, einem
-Taglöhner von Neustift, im Beysein noch einiger Arbeitsleute, auf dem Felde des Neustifter Bauers, Jacob
-Achatzi, N. N. O. vom Markte Stannern, und zwar bey 3000 Klafter von der Kirche, fast am äußersten Ende
-(kaum 250 Klafter vom äußersten Puncte, wo noch ein Stein gefallen war) des befallenen Flächenraums gegen N.
-(Situations-Plan Nr. 59), zufällig während des Kornschneidens aufgefunden.
-Er steckte fest in der Erde, und nur eine Ecke desselben ragte hervor, welche die Aufmerksamkeit des Taglöhner-
-weibes auf sich zog, indem es das geschnittene Korn zusammenraffte und in Garben band. Die Erde war sehr trocken
-und fest, und der Mann hatte Mühe, den Stein heraus zu bringen. Im Herausheben brach die in der Erde stecken
-gebliebene Spitze, oder vielmehr die eine obere Ecke ab. Das Gewicht desselben ward beyläufig auf 9 Pfund ge-
-schätzt, wie es sich auch im Plane angegeben findet; der Stein wiegt aber wirklich 11 Pfund und 10 Loth Wiener
-Commercial-Gewicht.
-Außer einigen feinen und seichten Rissen, und hie und da etwas abgeschlagenen Kanten und Ecken, ist derselbe
-vollkommen ganz und durchaus mit Rinde bedeckt.
-(1) Außer einem, von Ioseph Wurschy von Neustift, in derselben Gegend, in einem Wäldchen, etwa 2500 Klafter nördlich
-von der Kirche von Stannern, gefundenen Steine (Nr. 61 des Planes), welcher 13 Pfund gewogen haben soll, aber in
-kleine Stücke zerschlagen wurde, ließ sich, trotz allen mittel- und unmittelbaren lang fortgesetzten Nachforschungen, kein ähn-
-licher an Größe weiter nachweisen. Die nächsten an Gewicht waren schon Steine zwischen 3 und 5 Pfund, und deren möch-
-ten wohl kaum mehr als jene 6 bis 7 gefallen und aufgefunden worden sein, welche der Plan nachweiset.
-(2) Obgleich dieser Steinfall gerade keiner von den bedeutendsten war, indem nach den genauesten Nachforschungen, die wohl bey
-keiner Begebenheit der Art so umständlich und fortgesetzt angestellt wurden, kaum mehr als 100 Steine zu einem Gesammtge-
-wicht von höchstens 150 Pfund gefallen sein dürften; so sind doch die Belege davon eben so, und beynahe allgemeiner noch,
-wenigstens zweckmäßiger, verbreitet, als jene vom Steinregen zu L'Aigle, der doch in jeder Beziehung zwanzig bis dreißig
-Mahl ergiebiger war. Man hat dieß den Einleitungen zu verdanken, welche bey diesem Ereignisse zur gehörigen untersuchung
-des Factums, zum Einsammeln, und dann zu einer zweckmäßigen (unentgeldlichen) Vertheilung der entbehrlichen Steine und
-Bruchstücke an die bekanntesten öffentlichen Sammlungen, und an die vorzüglichsten Privat-Sammler und Schriftsteller aus
-dieser Partie in ganz Europa, getroffen worden sind, und es wäre wohl sehr zu wünschen, daß von den Regierungen aller
-Staaten bey ähnlichen Ereignissen auf gleiche Art verfahren werden möchte. Auf diese Weise könnte sehr leicht eine ähnliche
-(gewiß sehr wichtige, und wie wir überzeugt zu sein glauben, in der Folge sicher noch zu sehr bedeutenden Aufschlüssen füh-
-rende) Zusammenstellung der Producte (der ausgezeichnetsten, und in irgend einer Beziehung merkwürdigen Steine und Bruch-
-stückc eines jeden vorfauenden Ereignises der At, an einen bestimmten, zweckmaßigen platz (an irgend einer öfentlichen
-wissenschaftlichen Anstalt im Staate), und eine ähnliche Verbreitung und Vertheilung der entbehrlichen Stücke an andere ähn-
-liche Plätze (öffentliche Museen und Privat-Sammlungen) -- womit einerseits die nicht minder wichtige und nothwendige,
-größtmöglichste und vollständigste Zusammenstellung solcher Producte von verschiedenen Ereignissen, an verschiedenen Orten,
-und zur ausgebreitetsten Benutzung, andererseits eine sichere und dauernde Aufbewahrung derselben für Mit- und Nachwelt
-erzielt würde -- bewirkt, und damit am meisten zur seinerzeitigen Aufklärung dieser, in so vielfachen Bezichungen räthselhaf-
-en, Naturerscheinng beygetragen werden. Dee bisherigen vernachlasigung aher maseegen it es znuschreiben, das i-
-von achtis bi hunden äicens hnichend ie sch, as en- acgse acsesschen caleri, set unsern eeitrech-
-nung bloß in Europa zugetragen haben möchten, kaum von einem Hundert derselben hinlänglich beglaubigte Nachrichten, und von
-dieen tanim von dre und diee eynahe ansschieslich von Ereigniseen aus de- neuesten Zeit, von den lerten 70
-saheenb rec anelssar-, mrlni ße cssrni, as l, as ssnsa, ei- in diesen abrhunder- erst, nh-
-nur die ersten Schritte zur Aufklärung zu machen, sondern selbst noch den ungtauben an die Realität dieser eben so auffallen-
-den als wunderbaren Phänomene, die sich seit Menschengedenken, und keinesweges so selten, auf unserem Planeten ereigneten
-und immerfort ereignen, zu bekämpfen haben.
+Die obere Endfläche bildet ein ziemlich regelmäßiges, länglichtes, verschobenes Viereck, entspricht ziemlich dem Mittel der Grundfläche, ist aber wegen schiefer Richtung der Seitenflächen beträchtlich kleiner, fast flach, nur etwas concav, und durch viele aber kleine und sehr seichte Eindrücke uneben gemacht. Sie gleicht jener am Taborer und L'Aigler Steine auch darin, daß drei Schenkel des Vierecks bedeutend größer sind als der vierte; übrigens ist sie länglichter.
 
+Das Winkelmaß schwankt, obgleich es sich wegen starker Ungleichheit, Eindrückung und Verdrückung der Kanten nur an wenigen Stellen approximativ bestimmen läßt, nur zwischen 80 und 110°.*
 
-### 0036
+*) Ein kleines, 3 Loth schweres Bruchstück eines ursprünglich ebenfalls bei 5 Pfund schwer gewesenen, aber in mehrere Stücke zerschlagenen Steines von diesem Ereignisse, zeigt die Reste von zwei überrindeten Flächen, wovon die eine besonders flach, eben und glatt ist, und, von einer als Basis angenommenen Bruchfläche, unter einem Winkel von etwa 84°, die andere, etwas unebenere, vertieftere, eingedrücktere, und, der Rinde nach, rauhere, unter 60° aufsteigt, und welche, unter einem Winkel von beilaufig 65 bis 70°, in eine besonders scharfe gemeinschaftliche Kante zusammen stoßen, die wieder von derselben Basis unter einem Winkel von 50 bis 55° aufsteigt, daher wohl die hervor springende Ecke jenes Steines gebildet hat, der nach diesen Indicien höchst wahrscheinlich eine ähnliche verschoben vierseitige Pyramidal-Form, wie der beschriebene, gehabt haben dürfte.  
+Der Stein im Besitze Sr. k. H. des Erzherzogs Johann, im Johanneo zu Grätz, --- welcher 1 Pfund 7 Loth wiegt, und beinahe vollkommen ganz ist, obgleich er dem ersten Anblicke nach nur ein grosses Bruchstück zu sein scheint, indem eine grosse Fläche nur mit sehr unvollkommener Rinde bedeckt, oder vielmehr gleichsam nur angeflogen ist, --- stellt ein etwas verschobenes vierseitiges Prisma vor; und das Bruchstück in der Sammlung Sr. Excellenz des Hrn. Grafen v. Wrbna, von 22 Loth am Gewicht, läßt wenigstens auf eine ähnliche rhomboidale Form des Steines, von dem es abgeschlagen wurde, schließen.
 
-21
+Die Rinde hält, dem Aggregats-Zustande und dem quantitativen Verhältnisse der Gemengtheile gemäß, nach welchen diese Steine gleichsam ein Verbindungsglied zwischen zwei darin, und folglich dem äußern Ansehen nach ziemlich stark abweichenden Reihen von Meteor-Steinen bilden, das Mittel zwischen jener an den Steinen von Tabor, L'Aigle, Eichstädt zc., und jener der Steine von Siena, Parma, Benares zc., am ähnlichsten ist sie aber der Rinde an den Steinen von York und Agen, mit welchen diese Steine auch in obigen Beziehungen die meiste Aehnlichkeit haben.*
+
+*) Ich behalte mir vor, bei einer andern Veranlassung über diese Reihenbildung, Aehnlichkeit und Uebergänge der verschiedenen Meteor-Steine umständlicher zu sprechen, und verweise inzwischen auf die Erklärung der siebenten Tafel.
+
+Sie ist nähmlich hier, und nahmentlich an diesem Steine, schwarz, beinahe kohlschwarz, ohne allem metallischocherbraunen Ansehen, im Ganzen zwar mehr matt als glänzend, aber doch stellenweise von einem seidenartigen Schimmer, und, obgleich sehr zart, doch mehr runzlicht als narbigt, oder warzig rauh. Obgleich sie beim ersten Anblick in diesen Beziehungen gleichförmig über den ganzen Stein ausgedehnt zu sein scheint; so zeigt doch eine genauere Betrachtung und Vergleichung einige Verschiedenheit. An einer Hälfte dieses Steines, und zwar an der oberen Endfläche, an der breiten concaven, und der kleineren verunstalteten Seitenfläche (welche Flächen, nach obiger Beschreibung, auch in Betreff der übrigen Beschaffenheit ihrer Oberfläche mit einander übereinstimmen), zeigt sie sich ganz auf die beschriebene Weise; an der Grundfläche dagegen, der breiten convexen und der andern kleineren, ebenfalls gewölbten Seitenfläche (die ihrer übrigen Beschaffenheit nach wieder mit einander übereinstimmen), erscheint sie mehr braun, mit einem schwachen, etwas ins Kupferrothe ziehenden Schimmer, zumahl in den Eindrücken, im Ganzen aber matter und glatter, wenigstens weniger aderig; auch scheint sie hier etwas dünner zu sein. Eine kleine, aber kaum beschreibbare Abweichung, zeigt in allen Beziehungen die eine kleinere, am meisten gewölbte und ebenste Seitenfläche, so daß demnach dieser Stein, hinsichtlich seiner Oberfläche, eine dreifache Verschiedenheit, gewisser Maßen drei Seiten, zeigt.*
+
+*) Von dieser, wie mir deucht, höchst merkwürdigen, und von mir zuerst an den Steinen von Stannern beobachteten Verschiedenheit der Oberflache sowohl, als insbsondere der Rinde an ein und demselben Steine, wird bei Beschreibung der in dieser Beziehung besonders ausgezeichneten ganzen Steine von Stannern, und bei Erklärung der Figuren auf der fünften und sechsten Tafel, die Rede sein. Zeigt sich gleich an diesem Steine von Lissa diese Verschiedenheit, zumahl der Rinde, nicht so auffallend (wie es auch bei ihrer Beschaffenheit in Allgemeinen als Folge des Aggregats-Zustandes und des qualitativen und quantitativen Verhaltnisses der Gemeng- und Bestandteile, und insbesondere des Eisengehaltes wegen nicht anders sein kann, und noch weniger bei jenen Meteor-Steinen der Fall ist, deren Gehalt an --- Gediegen --- Eisen noch weit beträchtlicher befunden wird); so zeigt sie sich doch, was in anderer Hinsicht nicht minder merkwürdig ist, wie es auch von ganz anderen Ursachen herrührt, um so auffallender zwischen den einzelnen Steinen von dieser Begebenheit. An dem einen kleinen Bruchstucke der Sammlung nahmlich ist die Rinde noch weit schwarzer, noch mehr seidenartig schimmernd, zumahl an der einen Flache, und, äußerst zart zwar, aber sehr ausgezeichnet, runzlicht-aderig, und überhaupt der Rinde der Steine von Parma und Benares gar sehr ähnlich; dagegen die Steine in Besitze Sr. k. H. des Erzherzogs Johann, und Sr. Excellenz des Hrn. Grafen v. Wrbna, eine Rinde zeigen, die beinahe ganz jener an den Steinen von Tabor, L'Aigle u. s. w. ahnlich, matt, braun und weit glatter ist. Und eben so der Rinde entsprechend und mit gleicher Annaherung, ist auch die innere Beschaffenheit und das Ansehen der Masse im Bruche an diesen Steinen verschieden. Diese Verschiedenheit, sowohl in Hinsicht der Beschaffenheit der Oberfläche und Rinde, als auch der Masse im Innern, die offenbar von einer Verschiedenheit im Aggregats- und Cohasions-Zustande, und wenigstens des quantitativen Verhaltnisses der Gemengtheile abhängt, findet sich ubrigens nicht bloss bei den Steinen von dieser Begebenheit, sondern auch bei mehreren andern, nahmentlich bei jenen von Stannern und Siena, insbesondere auch bei jenen von L'Aigle (wie auch Hr. Chladni bemerkte), und mochte vielleicht bei den meisten gefunden werden, wenn man Gelegenheit hatte, so viele Stein und Bruchstücke von ein und demselben Ereignisse vergleichen zu konnen, wie es bei diesen der Fall war; und sie findet sich nicht bloss bei verschiedenen einzelnen Steinen desselben Niederfalles, ob sie gleich auch als Bruchstucke einer Hauptmasse, der Feuerkugel, betrachtet werden, sondern bisweilen selbst bei Bruchstucken eines und desselben Steines, so dass sich solche oft unahnlicher sind, wie diess vorzuglich bei obigen Steinen von Lissa und bei manchen von L'Aigle der Fall ist, als Bruchstücke von Steinen von, nach Zeit und Ort, sehr entfernten Begebenheiten.
+
+Die Dicke der Rinde ist übrigens im Ganzen, wie an den meisten Meteor-Steinen, etwa zwischen 1/12 bis 3/12 Linien. Nur an einzelnen kleinen Stellen, hie und da an den Kanten, zeigt sich eine Spur von unvollkommener, unausgebildeter Rinde, wo die Masse des Steines mehr oder weniger verändert (etwas gebräunt) zu Tage liegt, und es das Ansehen hat, als wenn die flüssige Rindenmasse über diese Stellen sich nicht hätte ausbreiten, nicht zusammen fließen können. In einem kleinen, aber tiefen Eindrucke an einer der Flächen, findet sich eine solche Stelle, wo die Masse des Steines ganz und gar unverändert ist, und den frischesten Bruch zeigt, indeß doch der sie begränzende Rindenrand deutlich erkennen läßt, daß es kein künstlicher Bruch ist.
+
+Ihre Härte ist kaum geringer als die der Rinde an den Steinen von Tabor und L'Aigle; aber auf die Magnetnadel wirkt sie bedeutend schwächer.
+
+Die Abbildung stellt den Stein nach der Ansicht und Haltung, nach welchen die Beschreibung genommen, auf der größeren End- oder Grundfläche liegend vor, so daß, mit dem ganzen Umrisse, die eine ausgezeichnetere, breitere, concave Seitenfläche, die obere Endfläche, und zum Theil noch die zwei kleinen Seitenflächen, wovon die eine mit der vordern die verlängerte Kante und vorspringende Ecke bildet, zu ersehen sind.
+
+# Vierte Tafel.
+
+## Stannern.
+
+Der größte* von den bei Stannern in Mähren, am 22. Mai 1808, Morgens gegen 6 Uhr, gefallenen Steinen,* welcher ganz erhalten wurde.
+
+*) Außer einem, von Joseph Wurschy von Neustift, in derselben Gegend, in einem Wäldchen, etwa 2500 Klafter nördlich von der Kirche von Stannern, gefundenen Steine (Nr. 61 des Planes), welcher 13 Pfund gewogen haben soll, aber in kleine Stücke zerschlagen wurde, ließ sich, trotz allen mittel- und unmittelbaren lang fortgesetzten Nachforschungen, kein ähnlicher an Größe weiter nachweisen. Die nächsten an Gewicht waren schon Steine zwischen 3 und 5 Pfund, und deren möchten wohl kaum mehr als jene 6 bis 7 gefallen und aufgefunden worden sein, welche der Plan nachweiset.
+
+*) Obgleich dieser Steinfall gerade keiner von den bedeutendsten war, indem nach den genauesten Nachforschungen, die wohl bei keiner Begebenheit der Art so umständlich und fortgesetzt angestellt wurden, kaum mehr als 100 Steine zu einem Gesammtgewicht von höchstens 150 Pfund gefallen sein dürften; so sind doch die Belege davon eben so, und beinahe allgemeiner noch, wenigstens zweckmäßiger, verbreitet, als jene vom Steinregen zu L'Aigle, der doch in jeder Beziehung zwanzig bis dreißig Mahl ergiebiger war. Man hat dieß den Einleitungen zu verdanken, welche bei diesem Ereignisse zur gehörigen Untersuchung des Factums, zum Einsammeln, und dann zu einer zweckmäßigen (unentgeldlichen) Vertheilung der entbehrlichen Steine und Bruchstücke an die bekanntesten öffentlichen Sammlungen, und an die vorzüglichsten Privat-Sammler und Schriftsteller aus dieser Partie in ganz Europa, getroffen worden sind, und es wäre wohl sehr zu wünschen, daß von den Regierungen aller Staaten bei ähnlichen Ereignissen auf gleiche Art verfahren werden möchte. Auf diese Weise könnte sehr leicht eine ähnliche (gewiß sehr wichtige, und wie wir überzeugt zu sein glauben, in der Folge sicher noch zu sehr bedeutenden Aufschlüssen führende) Zusammenstellung der Producte (der ausgezeichnetsten, und in irgend einer Beziehung merkwürdigen Steine und Bruchstücke) eines jeden vorfallenden Ereignisses der Art, an einen bestimmten, zweckmaßigen Platz (an irgend einer öffentlichen wissenschaftlichen Anstalt im Staate), und eine ähnliche Verbreitung und Vertheilung der entbehrlichen Stücke an andere ähnliche Plätze (öffentliche Museen und Privat-Sammlungen) --- womit einerseits die nicht minder wichtige und nothwendige, größtmöglichste und vollständigste Zusammenstellung solcher Producte von verschiedenen Ereignissen, an verschiedenen Orten, und zur ausgebreitetsten Benutzung, andererseits eine sichere und dauernde Aufbewahrung derselben für Mit- und Nachwelt erzielt würde --- bewirkt, und damit am meisten zur seinerzeitigen Aufklärung dieser, in so vielfachen Bezichungen räthselhafen, Naturerscheinng beigetragen werden. Der bisherigen Vernachlassigung solcher Massregeln ist es zuzuschreiben, dass wir von achtzig bis hundert Tausend ahnlichen Ereignissen, die sich, nach einem hochst wahrscheinlichen Calcul, seit unserer Zeitrechnung bloß in Europa zugetragen haben möchten, kaum von einem Hundert derselben hinlänglich beglaubigte Nachrichten, und von diesem kaum von drei und dreissig (und diese beinahe ausschliesslich von Ereignissen aus der neuesten Zeit, von den letzten 70 Jahren) nachweisbare, materielle Belege besitzen, und dass wir, nach Jahrtausenden, jetzt in diesem Jahrhunderte erst, nicht nur die ersten Schritte zur Aufklärung zu machen, sondern selbst noch den Unglauben an die Realität dieser eben so auffallenden als wunderbaren Phänomene, die sich seit Menschengedenken, und keinesweges so selten, auf unserem Planeten ereigneten und immerfort ereignen, zu bekämpfen haben.
+
+Es ward derselbe erst gegen Ende des Monaths Julius jenes Jahres, also zwei Monathe nach dem Ereignisse, indem er in ein Kornfeld gefallen war und da verborgen blieb, von Katharina Pauser und ihrem Manne, einem Taglöhner von Neustift, im Beysein noch einiger Arbeitsleute, auf dem Felde des Neustifter Bauers, Jacob Achatzi, N. N. O. vom Markte Stannern, und zwar bei 3000 Klafter von der Kirche, fast am äußersten Ende (kaum 250 Klafter vom äußersten Puncte, wo noch ein Stein gefallen war) des befallenen Flächenraums gegen N. (Situations-Plan Nr. 59), zufällig während des Kornschneidens aufgefunden.
+
+Er steckte fest in der Erde, und nur eine Ecke desselben ragte hervor, welche die Aufmerksamkeit des Taglöhnerweibes auf sich zog, indem es das geschnittene Korn zusammenraffte und in Garben band. Die Erde war sehr trocken und fest, und der Mann hatte Mühe, den Stein heraus zu bringen. Im Herausheben brach die in der Erde stecken gebliebene Spitze, oder vielmehr die eine obere Ecke ab. Das Gewicht desselben ward beiläufig auf 9 3/4 Pfund geschätzt, wie es sich auch im Plane angegeben findet; der Stein wiegt aber wirklich 11 Pfund und 10 Loth Wiener Commercial-Gewicht.
+
+Außer einigen feinen und seichten Rissen, und hie und da etwas abgeschlagenen Kanten und Ecken, ist derselbe vollkommen ganz und durchaus mit Rinde bedeckt.
+
 Es stellt derselbe eine wenig verschobene, und beynahe gleichseitig vierseitige Pyramide vor, deren etwas aus der
 Mitte gerückte Endspitze durch drei neue, auf den Seitenflächen aufsitzende, unvollkommene Flächen schief zugespitzt
 ist. Die Grundfläche ist fast eben, und hat wenige große, seichte, breit verlaufende Eindrücke. Die von ihr mit den
