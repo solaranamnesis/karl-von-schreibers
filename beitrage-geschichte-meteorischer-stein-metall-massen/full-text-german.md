@@ -16,9 +16,11 @@ Horat.
 
 [Erste Tafel.](#erste-tafel)
 
-[Zeite Tafel.](#zweite-tafel)  
+[Zweite Tafel.](#zweite-tafel)  
 |  
-|--> [Tabor.](#tabor)
+|--> [Tabor.](#tabor)  
+|  
+|--> [L'Aigle](#laigle)
 
 # Vorrede.
 
