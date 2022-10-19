@@ -17,7 +17,7 @@ Horat.
 [Erste Tafel.](#erste-tafel)
 
 [Zeite Tafel.](#zweite-tafel)  
-|
+|  
 |--> [Tabor.](#tabor)
 
 # Vorrede.
