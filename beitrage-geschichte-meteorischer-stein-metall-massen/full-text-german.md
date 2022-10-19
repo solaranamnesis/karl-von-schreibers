@@ -12,6 +12,14 @@ Segnius irritant animos demissa per aures,
 Quam quae sunt oculis subjecta fidelibus.  
 Horat.
 
+[Vorrede.](#vorrede)
+
+[Erste Tafel.](#erste-tafel)
+
+[Zeite Tafel.](#zweite-tafel)
+|
+|--> [Tabor.](#tabor)
+
 # Vorrede.
 
 Die seltene Gelegenheit, sich von der Realität und den nähern Umständen eines eben so wunderbaren als lange und vielfach bestrittenen Naturereignisses --- eines so genannten Steinregens persönlich überzeugen zu können, both sich mir, eben so unerwartet als höchst erwünscht, im Jahre 1808 bei dem Steinfalle um Stannern in Mähren dar. Wenn gleich nicht als Augenzeuge bei dem Vorfalle selbst zugegen, machten es mir doch die günstigen Umstände einer geringen Entfernung des Schauplatzes von Wien, und einer sehr frühzeitigen und verläßlichen Kuude davon, besonders aber die höhern Ortes erhaltene, in solchen Fällen höchst nöthige Vollmacht und die kräftige Unterstützung von Seite der Behörden, möglich, eine allen Wünschen und Forderungen entsprechende Untersuchung an Ort und Stelle, und wenige Tage unmittelbar nach dem Vorfalle selbst, vorzunehmen. Es konnte demnach um so weniger fehlen, daß ein in so vielfacher Bezichung höchst anziehender Gegenstand der Physik meine ganze Aufmerksamkeit, die bisher immer nur schwach und bloß durch von Zeit zu Zeit bekannt gewordene, mehr oder weniger befriedigende Nachrichten von, in der Ferne vorgefallenen, ähnlichen Begebenheiten angeregt wurde, auf sich zog, als derselbe vor Kurzem eben lebhaft und nachdrücklich wieder zur Sprache gebracht und das Interesse dafür durch die mannigfaltigen, von vielen angesehenen Physikern darüber vorgebrachten, eben so seltsamen als widersprechenden Meinungen und Hypothesen, so allgemein und mächtig in Anspruch genommen worden war.
