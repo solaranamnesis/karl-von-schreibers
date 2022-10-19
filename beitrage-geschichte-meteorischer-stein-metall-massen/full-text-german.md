@@ -12,31 +12,31 @@ Segnius irritant animos demissa per aures,
 Quam quae sunt oculis subjecta fidelibus.  
 Horat.
 
-## [Vorrede.](#vorrede)
+## [Vorrede.](#vorrede-1)
 
-## [Erste Tafel.](#erste-tafel)
+## [Erste Tafel.](#erste-tafel-1)
 
-## [Zweite Tafel.](#zweite-tafel)
+## [Zweite Tafel.](#zweite-tafel-1)
 
-### [Tabor.](#tabor)
+### [Tabor.](#tabor-1)
 
-### [L'Aigle.](#laigle)
+### [L'Aigle.](#laigle-1)
 
-### [Eichstädt.](#eichstädt)
+### [Eichstädt.](#eichstädt-1)
 
-### [Siena.](#siena)
+### [Siena.](#siena-1)
 
-## [Dritte Tafel.](#dritte-tafel)
+## [Dritte Tafel.](#dritte-tafel-1)
 
-### [Lissa.](#lissa)
+### [Lissa.](#lissa-1)
 
-## [Vierte Tafel.](#vierte-tafel)
+## [Vierte Tafel.](#vierte-tafel-1)
 
-### [Stannern.](#stannern)
+### [Stannern.](#stannern-1)
 
-## [Fünfte Tafel.](#fünfte-tafel)
+## [Fünfte Tafel.](#fünfte-tafel-1)
 
-### [Erste Figur.](#erste-figur)
+### [Erste Figur.](#erste-figur-1)
 
 # Vorrede.
 
