@@ -293,738 +293,255 @@ Er steckte fest in der Erde, und nur eine Ecke desselben ragte hervor, welche di
 
 Außer einigen feinen und seichten Rissen, und hie und da etwas abgeschlagenen Kanten und Ecken, ist derselbe vollkommen ganz und durchaus mit Rinde bedeckt.
 
-Es stellt derselbe eine wenig verschobene, und beynahe gleichseitig vierseitige Pyramide vor, deren etwas aus der
-Mitte gerückte Endspitze durch drei neue, auf den Seitenflächen aufsitzende, unvollkommene Flächen schief zugespitzt
-ist. Die Grundfläche ist fast eben, und hat wenige große, seichte, breit verlaufende Eindrücke. Die von ihr mit den
-fast senkrecht aufsteigenden Seitenflächen gebildeten Kanten sind meistens etwas verdrückt und abgerundet, eine jedoch ist
-sehr scharf, und bildet einen Winkel von 90. Eine Seitenecke ist besonders hervor springend, und nur wenig abge-
-rundet und auffallend ist die Aehnlichkeit der Grundfläche dieses Steines, zumahl in Hinsicht dieses Umstandes, mit je-
-ner der zuvor beschriebenen Steine von Tabor, L'Aigle, und selbst von Lissa, so wie die der Form des Steines
-im Ganzen, mit jener des Steines von Siena.
-Zwey Seitenflächen, welche unter einem Winkel von beyläufig 100 in eine ziemlich scharfe Kante zusammen sto-
-ßen, die mit den Kanten der Grundfläche jene hervor springende Ecke bildet, sind fast ganz flach und eben, nur etwas
-vertieft, und haben sehr wenige seichte, sanft verlaufende Eindrücke. Die zwei entgegen gesetzten Seitenflächen stoßen
-in eine stumpfere und verdrückte gemeinschaftliche Kante zusammen, und bilden ähnliche Kanten mit den vorigen Sei-
-tenflächen und mit der Grundfläche. Sie sind convex, zumahl die eine derselben, und durch häufigere, zum Theil tiefe
-Eindrücke, sehr uneben.
-Die drei unvollkommenen Zuspitzungsflächen, wovon die eine, größere, fast gerade auf der einen gewölbteren Sei-
-tenfläche aufsitzt, und mit derselben eine sehr verdrückte, undeutliche Kante unter einem sehr stumpfen Winkel bildet,
-die beyden andern, kleineren, aber auf den etwas vertieften Seitenflächen schief, und so aufgesetzt sind, daß sie mit
-jener eine außer die Mitte fallende Zuspitzungs-Endkante bilden, --- wovon die abgebrochene Spitze die eine Ecke aus-
-machte, - haben die Beschaffenheit der Oberfläche mit den correspondirenden Seitenflächen gemein.
-Die Ninde (1) ist fast durchaus über den ganzen Stein von gleicher, und zwar von der gewöhnlichsten Beschaf-
-fenheit, wie sie an diesen Steinen überhaupt zu sein pflegt, ziemlich gleich dick, dicht und fest, etwas fettig, und
-ziemlich stark glänzend, rein dunkelschwarz, und von der rauhen, einfach und verworrenen, runzlicht-aderigen Art (A. a. 2.
-Gilberts Annalen Bd. 31, S. 56); nur an den gewölbteren, unebenern Flächen nähert sie sich der blattförmig ge-
-zeichneten (ebendas. A. a. 3), und ist hier matter, etwas weniger schwarz, und, wie es scheint, etwas dünner.
-Sie ist nirgends abgesprungen, aber auch an keiner Stelle zeigt sich, trotz der bedeutenden Oberfläche dieser gro-
-ßen Masse, eine Spur von der unvollkommenen Art (ebendas. S. 58. D.).
-Viele Runzeln und Adern, zumahl an den Kanten, sind stark erhaben, scharf und faltenähnlich. Säume der
-Rinde finden sich an diesem Steine nirgendwo, wohl aber an den schärfern Kanten, wo die stark aderige Rinde von
-zwei Flächen zusammen stoßt, deutliche Nähte.
-Die Dicke derselben weicht, so wie überhaupt bey diesen Steinen im Allgemeinen, nicht von der gewöhnlichen
-Dicke der Rinde an andern Meteor-Steinen ab, und beträgt im Ganzen bis , Linie.
-Ihre Härte ist nur sehr gering, und nur schwer, und bloß an einzelnen Stellen (an diesem Steine wohl an gar
-keiner) lassen sich der Rinde dieser Steine überhaupt mit dem Stahle einzelne schwache Funken entlocken; eben so we-
-nig zeigt sie eine merkliche Wirkung auf die Magnetnadel; nur gepülvert bleiben einzelne Atome an der Spitze hängen.
-Es zeigt sich zwar allenthalben an diesem Steine, in den Furchen und Vertiefungen des Adergeflechtes der Rinde,
-etwas Erde (2) eingedrückt, --- was bey dem tiefen und gewaltsamen Eindringen des Steines in das Erdreich, und bey
-den wiederhohlten Regengüssen, welche in der ziemlich langen Zwischenzeit bis zu dessen Auffinden Statt hatten, wohl
-(1) Was die merkwürdige Beschaffenheit der Rinde an den Meteor-Steinen von Stannern im Allgemeinen, die auffallende Ver-
-schiedenheit derselben, nicht nur an verschiedenen einzelnen Steinen, sondern selbst oft, und zwar sogar gewöhnlich an einem
-nn denselten Steine, und die große niguanigteit hinschelich der besondern Beschafenheit ihrer dbersiache, und was end-
-ich die doigennngen betrint, ie sih I nalen vetrachtung deseben ien n aen ss ch an
-das, was Herr Professor von Scherer und ich im 31. Bande von Gilberts Annalen darüber umständlich vorgebracht ha-
-ben, u d w die gegenwärtigen Darsteunngen (zumahl die Figuren der fünften und sechsten Tafel) gewisser Maßen als ver-
-sinnlichende Belege dienen sollen.
-(2) Diese Erde läßt sich inzwischen selbst da, wo sie am festesten an- und eingedrückt zu sein scheint, doch ziemlich leicht und ohne
-Verletzung der zartenten dern und Runzeln, mit einer schareen urste wegbürsten, und mit einem nasen Schwanne onend-
-ein wegwaschener Beiehun, von ihrem früheren Dasein zuruck bleibt. Ein umstand, der
-wohl, mit manchen andern Beobachtungen, sehr gegen die nnahme des flüssigen oder doch weichen Zustandes der Rinde,
-selbst noch im Momente des Auffallens der Steine, streitet.
-3
+Es stellt derselbe eine wenig verschobene, und beinahe gleichseitig vierseitige Pyramide vor, deren etwas aus der Mitte gerückte Endspitze durch drei neue, auf den Seitenflächen aufsitzende, unvollkommene Flächen schief zugespitzt ist. Die Grundfläche ist fast eben, und hat wenige große, seichte, breit verlaufende Eindrücke. Die von ihr mit den fast senkrecht aufsteigenden Seitenflächen gebildeten Kanten sind meistens etwas verdrückt und abgerundet, eine jedoch ist sehr scharf, und bildet einen Winkel von 90°. Eine Seitenecke ist besonders hervor springend, und nur wenig abgerundet und auffallend ist die Aehnlichkeit der Grundfläche dieses Steines, zumahl in Hinsicht dieses Umstandes, mit jener der zuvor beschriebenen Steine von Tabor, L'Aigle, und selbst von Lissa, so wie die der Form des Steines im Ganzen, mit jener des Steines von Siena.
 
+Zwei Seitenflächen, welche unter einem Winkel von beiläufig 100° in eine ziemlich scharfe Kante zusammen stoßen, die mit den Kanten der Grundfläche jene hervor springende Ecke bildet, sind fast ganz flach und eben, nur etwas vertieft, und haben sehr wenige seichte, sanft verlaufende Eindrücke. Die zwei entgegen gesetzten Seitenflächen stoßen in eine stumpfere und verdrückte gemeinschaftliche Kante zusammen, und bilden ähnliche Kanten mit den vorigen Seitenflächen und mit der Grundfläche. Sie sind convex, zumahl die eine derselben, und durch häufigere, zum Theil tiefe Eindrücke, sehr uneben.
 
-### 0037
+Die drei unvollkommenen Zuspitzungsflächen, wovon die eine, größere, fast gerade auf der einen gewölbteren Seitenfläche aufsitzt, und mit derselben eine sehr verdrückte, undeutliche Kante unter einem sehr stumpfen Winkel bildet, die beiden andern, kleineren, aber auf den etwas vertieften Seitenflächen schief, und so aufgesetzt sind, daß sie mit jener eine außer die Mitte fallende Zuspitzungs-Endkante bilden, --- wovon die abgebrochene Spitze die eine Ecke ausmachte, --- haben die Beschaffenheit der Oberfläche mit den correspondirenden Seitenflächen gemein.
 
-22
-nicht anders sein konnte, --- am meisten jedoch an den convexen Flächen, auf welche der Stein auch, vermöge seines
-Schwerpunctes, aufgefallen sein mußte, falls dieser nicht etwa durch eine rotirende Bewegung des Steins im Falle, ---
-welcher inzwischen einerseits die Beschaffenheit der Ninde, wenn diese als flüssig, andererseits die Form des Steines,
-wenn die Masse weich gedacht werden soll, --- widerspräche, turbirt worden wäre (1).
-Der Stein ist, auf der Grundfläche liegend, so dargestellt, daß sich die eine Seitenfläche mit der aufsitzenden Zu-
-spitzungsfläche in gerader, die zwei anstoßenden Seitenflächen aber, wovon die eine mit ersterer die etwas verlängerte
-Seitenkante und die vorspringende Ecke bildet, in schiefer Ansicht zeigen.
-(1) Ich bemerke das noch sichtliche Ankleben von Erde an diesem, wie insbesondere an allen folgenden ganzen Steinen von Stan-
-nern, absichtlich mit Genauigkeit, weil dasselbe hier - wo es sich übrigens, der eigenthümlichen Rauhigkeit der Oberfläche
-wen, s erncber tei-n n sncnine-
-tisti, sisise. sts e sscsl. si s f-c eeles-ts ieren-e-
-dringen derselen in den Grund nebenher noch ii Se in Beraseenn aanen, eeichnet, inden die meisten dieser
-Sieine ne den esen debenen nsdie seßeen sl enden rngen sgensnmnmen unserse "hrend der Begebenheit,
-oder doch nur wenige Tage nach dem Ereignisse, in welcher Zwischenzeit noch keine Abänderung in der ursprünglichen La-
-gerung derselben, noch eine zufällige Veränderung mit der umgebenden Erde Statt gefunden haben konnte, aufgehoben und
-unmittelbar aus der ersten Hand, von dem Auffinder selbst, erhalten worden waren.
+Die Rinde* ist fast durchaus über den ganzen Stein von gleicher, und zwar von der gewöhnlichsten Beschaffenheit, wie sie an diesen Steinen überhaupt zu sein pflegt, ziemlich gleich dick, dicht und fest, etwas fettig, und ziemlich stark glänzend, rein dunkelschwarz, und von der rauhen, einfach und verworrenen, runzlicht-aderigen Art (A. a. 2. Gilberts Annalen Bd. 31, S. 56); nur an den gewölbteren, unebenern Flächen nähert sie sich der blattförmig gezeichneten (ebendas. A. a. 3), und ist hier matter, etwas weniger schwarz, und, wie es scheint, etwas dünner.
 
+*) Was die merkwürdige Beschaffenheit der Rinde an den Meteor-Steinen von Stannern im Allgemeinen, die auffallende Verschiedenheit derselben, nicht nur an verschiedenen einzelnen Steinen, sondern selbst oft, und zwar sogar gewöhnlich an einem und demselben Steine, und die große Mannigfaltigkeit hinsichtlich der besondern Beschaffenheit ihrer Oberflache, und was endlich die Folgerungen betrifft, die sich aus der genauen vergleichenden Betrachtung derselben ziehen lassen; so verweise ich auf das, was Herr Professor von Scherer und ich im 31. Bande von Gilberts Annalen darüber umständlich vorgebracht haben, und wozu die gegenwärtigen Darstellungen (zumahl die Figuren der fünften und sechsten Tafel) gewisser Maßen als versinnlichende Belege dienen sollen.
 
-### 0038
+Sie ist nirgends abgesprungen, aber auch an keiner Stelle zeigt sich, trotz der bedeutenden Oberfläche dieser großen Masse, eine Spur von der unvollkommenen Art (ebendas. S. 58. D.).
 
-Fünfte Tafel.
-Erste Figur.
-25
-S, der kleinern, aber vollkommen ganz erhaltenen Steine von dem Ereignisse bey Stannern, der 5 Loth
-1 Quentchen wiegt, und sich durch eine besonders regelmäßige Form auszeichnet.
-Er ward durch das von der Untersuchungs-Commission veranlaßte absichtliche Aufsuchen der gefallenen Steine,
-am 28. May von einem Landmanne zwischen dem Markte Stannern und dem Dorfe Lang-Pirnitz, oder viel-
-mehr ganz nahe an diesem letzteren Orte, im südlichen Theile des befallenen Flächenraums (und zwar etwa 2600 süd-
-lich von der Kirche von Stannern, und kaum 1500 vom äußersten Puncte, wo noch ein Stein in diesem Theile
-gefallen war, dagegen über 5000 von der Fallstelle des vorhin beschriebenen Steines entfernt) aufgefunden. (Situa-
-tions-Plan Nr. 19.)
-Es ist derselbe vollkommen ganz, um und um überrindet, und bildet eine unvollkommene, dreiseitige Pyramide,
-deren Aehnlichkeit, obgleich sie sich, durch Abrundung und Abstumpfung der Ecken und Kanten zum Theil beynahe ei-
-ner Kugelform nähert, mit der Form des großen, zuvor beschriebenen Steines unverkennbar, und um so auffallender
-ist, als sich an der Grundfläche dieses Steines, durch Abplattung und Breitdrückung einer Ecke, die Tendenz zu einer
-ähnlichen (vielleicht ursprünglich gewesenen und nur abgeänderten) verschoben und ungleichseitig vierseitigen Pyramidal-
-Form, die an jenem ausgesprochen ist (an den Figur 2 und s dieser Tafel vorgestellten Steinen aber auch nur in einem
-ähnlichen Grade angedeutet erscheint), nicht verkennen läßt.
-Die stark convexe und unebene Grundfläche des Steines stellt nähmlich ein ungleichschenkliches Dreyeck vor, dessen
-Nänder mit den drei ziemlich senkrecht aufsteigenden, fast ganz ebenen, nur etwas vertieften Seitenflächen stumpfe Kan-
-ten bilden, und dessen stumpfe Ecken den abgerundeten Seitenkanten entsprechen. Die eine dieser Ecken ist aber gleich-
-sam platt und breit gedrückt, und geht, zugerundet, unmittelbar in eine ebenfalls breit gedrückte und abgerundete, bey-
-nahe zu einer vierten Seitenfläche gestaltete Seitenkante über, die bogenförmig, allmählich sich verdünnend, gegen die
-Endspitze verläuft.
-Nach dem andern Ende des Steines verschmälern sich die Seitenflächen, und endigen sich in eine etwas nach ei-
-ner Fläche hin- und selbst etwas übergebogene (folglich ebenfalls, und zwar sehr stark, außer das Mittel der Grund-
-fläche fallende) dreiseitige, ziemlich scharfe Spitze, die durch zwei sehr unvollkommene und ungleiche, schief auf die
-Seitenflächen aufgesetzte Flächen zugespitzt, und gewisser Maßen kantig zugeschärft wird (1).
+Viele Runzeln und Adern, zumahl an den Kanten, sind stark erhaben, scharf und faltenähnlich. Säume der Rinde finden sich an diesem Steine nirgendwo, wohl aber an den schärfern Kanten, wo die stark aderige Rinde von zwei Flächen zusammen stoßt, deutliche Nähte.
+
+Die Dicke derselben weicht, so wie überhaupt bei diesen Steinen im Allgemeinen, nicht von der gewöhnlichen Dicke der Rinde an andern Meteor-Steinen ab, und beträgt im Ganzen 1/12 bis 2/12 Linie.
+
+Ihre Härte ist nur sehr gering, und nur schwer, und bloß an einzelnen Stellen (an diesem Steine wohl an gar keiner) lassen sich der Rinde dieser Steine überhaupt mit dem Stahle einzelne schwache Funken entlocken; eben so wenig zeigt sie eine merkliche Wirkung auf die Magnetnadel; nur gepülvert bleiben einzelne Atome an der Spitze hängen.
+
+Es zeigt sich zwar allenthalben an diesem Steine, in den Furchen und Vertiefungen des Adergeflechtes der Rinde, etwas Erde* eingedrückt, --- was bei dem tiefen und gewaltsamen Eindringen des Steines in das Erdreich, und bei den wiederhohlten Regengüssen, welche in der ziemlich langen Zwischenzeit bis zu dessen Auffinden Statt hatten, wohl nicht anders sein konnte, --- am meisten jedoch an den convexen Flächen, auf welche der Stein auch, vermöge seines Schwerpunctes, aufgefallen sein mußte, falls dieser nicht etwa durch eine rotirende Bewegung des Steins im Falle, --- welcher inzwischen einerseits die Beschaffenheit der Rinde, wenn diese als flüssig, andererseits die Form des Steines, wenn die Masse weich gedacht werden soll, --- widerspräche, turbirt worden wäre.*
+
+*) Diese Erde läßt sich inzwischen selbst da, wo sie am festesten an- und eingedrückt zu sein scheint, doch ziemlich leicht und ohne Verletzung der zartesten Adern und Runzeln, mit einer scharfen Bürste wegbürsten, und mit einem nassen Schwamme vollends rein wegwaschen, so dass keine Spur in irgend einer Beziehung von ihrem früheren Dasein zurück bleibt. Ein Umstand, der wohl, mit manchen andern Beobachtungen, sehr gegen die Annahme des flüssigen oder doch weichen Zustandes der Rinde, selbst noch im Momente des Auffallens der Steine, streitet.
+
+*) Ich bemerke das noch sichtliche Ankleben von Erde an diesem, wie insbesondere an allen folgenden ganzen Steinen von Stannern, absichtlich mit Genauigkeit, weil dasselbe hier --- wo es sich übrigens, der eigenthümlichen Rauhigkeit der Oberfläche wegen, auch deutlicher zeigen und länger erhalten konnte als an irgend einem andern Meteor-Steine --- mit vollkommenster Verlasslichkeit, die wahren Auffallspuncte der einzelnen Steine --- inzwischen aber auch jene Stellen, welche bei tieferem Eindringen derselben in den Grund nebenher noch mit Erde in Beruhrung kamen, --- bezeichnet, indem die meisten dieser Steine (nur den eben beschriebenen und die beiden folgenden kleinsten ausgenommen) unmittelbar wahrend der Begebenheit, oder doch nur wenige Tage nach dem Ereignisse, in welcher Zwischenzeit noch keine Abänderung in der ursprünglichen Lagerung derselben, noch eine zufällige Veränderung mit der umgebenden Erde Statt gefunden haben konnte, aufgehoben und unmittelbar aus der ersten Hand, von dem Auffinder selbst, erhalten worden waren.
+
+Der Stein ist, auf der Grundfläche liegend, so dargestellt, daß sich die eine Seitenfläche mit der aufsitzenden Zuspitzungsfläche in gerader, die zwei anstoßenden Seitenflächen aber, wovon die eine mit ersterer die etwas verlängerte Seitenkante und die vorspringende Ecke bildet, in schiefer Ansicht zeigen.
+
+# Fünfte Tafel.
+
+## Erste Figur.
+
+Einer der kleinern, aber vollkommen ganz erhaltenen Steine von dem Ereignisse bei Stannern, der 5 Loth 1 Quentchen wiegt, und sich durch eine besonders regelmäßige Form auszeichnet.
+
+Er ward durch das von der Untersuchungs-Commission veranlaßte absichtliche Aufsuchen der gefallenen Steine, am 28. Mai von einem Landmanne zwischen dem Markte Stannern und dem Dorfe Lang-Pirnitz, oder vielmehr ganz nahe an diesem letzteren Orte, im südlichen Theile des befallenen Flächenraums (und zwar etwa 2600° südlich von der Kirche von Stannern, und kaum 1500° vom äußersten Puncte, wo noch ein Stein in diesem Theile gefallen war, dagegen über 5000° von der Fallstelle des vorhin beschriebenen Steines entfernt) aufgefunden. (Situations-Plan Nr. 19.)
+
+Es ist derselbe vollkommen ganz, um und um überrindet, und bildet eine unvollkommene, dreiseitige Pyramide, deren Aehnlichkeit, obgleich sie sich, durch Abrundung und Abstumpfung der Ecken und Kanten zum Theil beinahe einer Kugelform nähert, mit der Form des großen, zuvor beschriebenen Steines unverkennbar, und um so auffallender ist, als sich an der Grundfläche dieses Steines, durch Abplattung und Breitdrückung einer Ecke, die Tendenz zu einer ähnlichen (vielleicht ursprünglich gewesenen und nur abgeänderten) verschoben und ungleichseitig vierseitigen Pyramidal-Form, die an jenem ausgesprochen ist (an den Figur 2 und 5 dieser Tafel vorgestellten Steinen aber auch nur in einem ähnlichen Grade angedeutet erscheint), nicht verkennen läßt.
+
+Die stark convexe und unebene Grundfläche des Steines stellt nähmlich ein ungleichschenkliches Dreyeck vor, dessen Ränder mit den drei ziemlich senkrecht aufsteigenden, fast ganz ebenen, nur etwas vertieften Seitenflächen stumpfe Kanten bilden, und dessen stumpfe Ecken den abgerundeten Seitenkanten entsprechen. Die eine dieser Ecken ist aber gleichsam platt und breit gedrückt, und geht, zugerundet, unmittelbar in eine ebenfalls breit gedrückte und abgerundete, beinahe zu einer vierten Seitenfläche gestaltete Seitenkante über, die bogenförmig, allmählich sich verdünnend, gegen die Endspitze verläuft.
+
+Nach dem andern Ende des Steines verschmälern sich die Seitenflächen, und endigen sich in eine etwas nach einer Fläche hin- und selbst etwas übergebogene (folglich ebenfalls, und zwar sehr stark, außer das Mittel der Grundfläche fallende) dreiseitige, ziemlich scharfe Spitze, die durch zwei sehr unvollkommene und ungleiche, schief auf die Seitenflächen aufgesetzte Flächen zugespitzt, und gewisser Maßen kantig zugeschärft wird.*
+
+*) Die von mir in Gilberts Annalen von diesem Steine schon früher gegebene Beschreibung, B. 31, S. 36, D., spricht die Form desselben nicht deutlich genug aus.
+
 Nur auf der Grundfläche finden sich einige einzelne, ziemlich seichte und kleinr Eindrücke.
-Die Rinde ist über den größten Theil des Steines, und eigentlich durchaus eine und dieselbe, und zwar von glei-
-cher zart strahlig-aderige- Beschaffenheit (A.b. 1. Gilberts Annalen, Bd. 31, S. 57), und einem, mit dieser Be-
-schaffenheit stets verbundenen, stellenweise (wo nähmlich die oberste Schichte abgesprungen oder abgestoßen ist, was bey
-dieser Art Rinde gewöhnlich Statt findet) matten, im Ganzen aber starken, seidenartigen, schimmernden Glanze, und
-beynahe kohlschwarzer Farbe. Die feinen erhabenen Strahlen sind zwar kurz und oft unterbrochen, und verwirren sich
-oft hin und wieder, zumahl bey ihrem Ursprunge, wo sie ein Geflecht bilden; doch scheinen sie von der Spitze aus über
-die Seitenflächen gegen die Grundfläche hin ihre Hauptrichtung zu nehmen, an deren Kanten, zumahl von zwei Flä-
-chen her, sie sich verdicken, anhäufen und als ein gezakter, ziemlich scharf abgeschnittener Rand enden, ohne einen
-Saum oder eine Naht zu bilden.
-Auf der Grundfläche zeigt sich zwar dieselbe Rinde, ihrer Hauptbeschaffenheit nach, allein nur in Spuren, denn
-die oberste Schichte, die auf den Seitenflächen nur hie und da an kleinen Stellen abgestoßen ist, scheint hier ganz zu
-fehlen, und ihre Oberfläche erscheint beynahe matt, nur wenig schimmernd, und mehr braun als schwarz. Allein bey
-diesem Steine schon früher gegebene Beschreibung, B. 31, S. 36, D., spricht die
-Form desselben nicht dentlich genug aus.
-F 2
+
+Die Rinde ist über den größten Theil des Steines, und eigentlich durchaus eine und dieselbe, und zwar von gleicher zart strahlig-aderige- Beschaffenheit (A. b. 1. Gilberts Annalen, Bd. 31, S. 57), und einem, mit dieser Beschaffenheit stets verbundenen, stellenweise (wo nähmlich die oberste Schichte abgesprungen oder abgestoßen ist, was bei dieser Art Rinde gewöhnlich Statt findet) matten, im Ganzen aber starken, seidenartigen, schimmernden Glanze, und beinahe kohlschwarzer Farbe. Die feinen erhabenen Strahlen sind zwar kurz und oft unterbrochen, und verwirren sich oft hin und wieder, zumahl bei ihrem Ursprunge, wo sie ein Geflecht bilden; doch scheinen sie von der Spitze aus über die Seitenflächen gegen die Grundfläche hin ihre Hauptrichtung zu nehmen, an deren Kanten, zumahl von zwei Flächen her, sie sich verdicken, anhäufen und als ein gezakter, ziemlich scharf abgeschnittener Rand enden, ohne einen Saum oder eine Naht zu bilden.
+
+Auf der Grundfläche zeigt sich zwar dieselbe Rinde, ihrer Hauptbeschaffenheit nach, allein nur in Spuren, denn die oberste Schichte, die auf den Seitenflächen nur hie und da an kleinen Stellen abgestoßen ist, scheint hier ganz zu fehlen, und ihre Oberfläche erscheint beinahe matt, nur wenig schimmernd, und mehr braun als schwarz. Allein bei Betrachtung unter der Loupe zeigt sich, daß die obere Schichte doch nicht abgerieben oder abgestoßen ist, --- in welchem Falle solche Stellen ganz matt, porös und gleichsam schwammig erscheinen, --- sondern daß sie nur in einer andern Modification vorhanden ist, nähmlich Statt Runzeln und Adern, großen Theils bloß erhabene Puncte und Körner bildend.
+
+Von eingedrückter Erde zeigt sich an der schmählern, der gebogenen, breit gedrückten Seitenkante entgegen gesetzten Seitenfläche die meiste Spur, aber auch hier nur in den zarten Zwischenräumen der erhabenen, scharfen Adern, und, wie am gewöhnlichsten, in den vertieften mikroscopischen Puncten und Poren der Oberfläche.
+
+Die Abbildung, welche diesen Stein als Musterstück solcher von geringerer Größe bei vollkommener Integrität und von ausgezeichneter Form darstellen soll, zeigt denselben, auf einer Seitenfläche liegend und mit der Endspitze nach unten gekehrt, um mit dem so viel als möglich ganzen Umrisse die gewölbte Grundfläche, und die eine, breiteste, Seitenfläche --- gegen welche die Spitze gebogen ist --- mit ihren Seitenrändern --- wovon der eine die gebogene, breit gedrückte Kante bildet --- ersichtlich zu machen.
+
+## Zweite Figur. a. b.
+
+Ebenfalls einer von den kleineren, bei Stannern gefallenen Steinen, 4 Loth 1 Quentchen wiegend, welcher ganz erhalten worden ist, und eine auffallend regelmäßige Form zeigt.
+
+Es wurde derselbe, am andern Tage nach dem Ereignisse, von einem Landmanne auf einem Haberfelde zwischen Lang- und Klein-Pirnitz, ebenfalls im südlichen Theile des befallenen Flächenraums (und zwar etwa 2400° südlich von der Kirche von Stannern, beiläufig 700° östlich von der Fallstelle des vorhin beschriebenen ähnlichen Steines, und ziemlich in gleicher Entfernung vom äußersten Fallpuncte in S.), flach aufliegend und einen starken Zoll tief in das Erdreich eingedrungen gefunden, und am 28. Mai mir selbst zu Lang-Pirnitz, wo ich auf der Fahrt nach Stannern angehalten hatte, um vorläufige Erkundigungen einzuziehen, auf mein Verlangen überlassen. (Situations-Plan Nr. 16.)
+
+Er ist vollkommen ganz und durchaus überrindet, nur eine Ecke ist etwas abgestoßen, und ein kleines Stück der obern Endspitze abgeschlagen; der Verlust an Masse kann indeß kaum 2 Quentchen betragen.
+
+Es stellt derselbe eine etwas verschobene, aber ziemlich gleichseitig dreiseitige, oder vielmehr eine ungleichseitig vierseitige, etwas verlängerte Pyramide vor. Er zeigt nähmlich eigentlich zwar nur drei ziemlich gleich breite Seitenflächen; allein eine derselben ist, durch eine, obgleich nur unvollkommene Kante, die sich aber an der Grundfläche doch durch eine deutliche Ecke ausspricht, der Länge nach in zwei sehr ungleiche Hälften getheilt.
+
+Diese solcher Gestalt getheilte Seitenfläche ist im Ganzen etwas conver, und durch verhältnißmäßig sehr große Eindrücke sehr uneben, ja durch einen besonders großen und tiefen gegen die Basis hin, welcher beinahe einem Verluste an Masse, durch spätere Lostrennung oder Absprengung eines Stückes (wenn diesem nicht zum Theil die Gleichförmigkeit der Rinde widerspräche) zugeschrieben werden könnte, gewisser Maßen vernnstaltet. Die beiden andern Seitenflächen, welche mit dieser beiderseits unter einem ziemlich stumpfen Winkel, in eine sehr stumpfe, verdrückte und ausgeschweifte, unter sich aber in eine beinahe schneidend scharfe, aber im Verlaufe, durch Eindrücke von den Flächen her, mehrere Mahle gebogene gemeinschaftliche Kante, unter einem ziemlich spitzen Winkel zusammen stoßen, sind ziemlich flach, eher etwas vertieft, und haben zwar ziemlich viele, aber nur seichte und breit verlaufende Eindrücke, die mehr den Unebenheiten einer natürlichen Bruchfläche des Steines, als den gewöhnlichen Eindrücken gleichen. Nach dem einen Ende zu verschmälern sich die Seitenflächen allmählich, und gehen, nachdem sich die eine unvollkommnere Kante, welche die convere Seitenfläche theilte, mit der nächsten zu vereinigen scheint, in die Spitze über, welche, obgleich sie abgebrochen ist und ursprünglich fehlt, nach der Richtung der Flächen stumpf und dreiseitig, und etwas gegen die convexe Fläche gebogen gewesen sein dürfte.
+
+Die Grundfläche ist fast flach, nur etwas vertieft, sonst vollkommen eben, und bildet ein sehr ungleichseitiges, verschobenes Viereck, indem jeder Seitenfläche --- selbst den beiden sehr ungleich getheilten Hälften der einen convexen --- eine Kante, und jeder Seitenkante --- selbst der unvollkommenen, jene Fläche theilenden --- eine, wenn gleich stumpfe, Ecke entspricht. Die mit den beiden Hälften der convexen Seitenflächen gebildeten Kanten sind sehr stumpf, jene mit den zwei andern Seitenflächen aber ziemlich scharf, und da diese Seitenflächen mit ihrer gemeinschaftlichen Kante sich nach diesem Ende des Steines hin beträchtlich verlängern; so erhält die Grundfläche dadurch eine ganz schiefe Richtung gegen die viel kürzere convexe Seitenfläche, und die durch jene verlängerte Seitenkante mit den beiden Grundkanten der Seitenflächen gebildete Ecke springt bedeutend vor, und scheint (da sie verbrochen ist) ziemlich scharf gewesen zu sein.
+
+Die Rinde ist an diesem Steine besonders merkwürdig, und zeigt eine wesentliche und auffallende Verschiedenheit nach den verschiedenen Flächen desselben.
+
+Auf der convexen Seiten- und der mit dieser auch im Uebrigen übereinstimmenden Grundfläche ist sie von der sehr rauhen, runzlicht-aderigen Art (A. a. 1. Gilberts Annalen Bd. 31, S. 56), mit dem gewöhnlichen Glanze, der durch matte Stellen --- wo nähmlich die oberste Schicht abgesprungen ist --- unterbrochen wird, und von mehr brauner als schwarzer Farbe. Auf den beiden andern Flächen dagegen ist sie ganz glatt, sehr dicht, fest und gleichförmig, sehr schwach aderig, und nur sehr undeutlich und unvollkommen blattförmig gezeichnet, pechschwarz und sehr fettig glänzend. (B. 2. ebendas. S. 57.) Von der converen Seiten- und der Grundfläche über die Kanten her, bildet die dortige rauhere Rinde auf die Rinde dieser Flächen herüber undeutliche und nicht scharf begränzte Säume.*
+
+*) Diese höchst merkwürdige, und, wie mir däucht, für die Erklärung der Bildung der Rinde sowohl, als der Formirung (Vereinzelung) der Steine sehr wichtige Eigenheit derselben, Säume zu bilden, spricht sich am deutlichsten an dem gleich zu beschreibenden, und vorzugsweise desshalb (ubrigens auch der Grosse, Vollkommenheit und Form wegen) auf derselben Tafel Figur 5 abgebildeten Steine aus, mit welchem dieser, und zwar nicht nur in der Form, --- sogar in den einzelnen Unregelmaßigkeiten derselben, --- sondern auch in der ganzen Beschaffenheit und Art der Ueberrindung, die auffallendste Aehnlichkeit und Uebereinstimmung zeigt.
+
+Von unvollkommener Rinde zeigt sich keine Spur an diesem Steine, und von eingedrückter Erde nur etwas an der Grundfläche, auf welche der Stein, vermöge seines natürlichen Schwerpunctes auch aufgefallen sein mußte.
+
+Figur 2. a. stellt diesen merkwürdigen Stein, auf den beiden glatten Seitenflächen und ihrer gemeinschaftlichen Kante liegend, von der convexen, unebenen und unvollkommen getheilten Seitenfläche, und der mit derselben in schiefer Richtung verbundenen Grundfläche vor;
+
+Figur 2. b. zeigt denselben aber, auf jener Seitenfläche ruhend, von der gemeinschaftlichen, schneidend scharfen Kante, in welche die beiden andern Seitenflächen zusammenstoßen.
+
+## Dritte Figur.
+
+Einer der kleinsten, und doch vollkommen überrindeten Steine von dem Ereignisse bei Stannern, von kaum 2 1/2 Quentchen am Gewichte.
+
+Es ward derselbe einige Zeit nach der Begebenheit, in Folge nachträglicher ämtlicher Aufforderung an das Landvolk jener Gegend, die etwa noch verborgen liegenden Steine aufzusuchen und abzuliefern, an das k. k. Kreisamt zu Iglau eingebracht, und von diesem mit mehreren andern eingesendet.
+
+Da dieser Stein zu klein und unbedeutend schien, so ward weder der Finder nahmentlich angezeigt, noch in dem späterhin aufgenommenen Situations-Plane die Stelle angedeutet, wo derselbe aufgefunden wurde; indessen doch in dem Einbegleitungsschreiben bemerkt: daß derselbe aus der Gegend von Lang-Pirnitz, demnach aus dem südlichen Theile des befallenen Flächenraums, eingebracht worden sei.
+
+Er ist vollkommen ganz, und nur an einer Seite etwas abgeschlagen, so daß der Verlust an Masse etwa ein halbes Quentchen betragen haben möchte; außer dieser Stelle ist er um und um mit Rinde bedeckt.
+
+Er bildet eine etwas verdrückte, verschoben aber ziemlich gleichseitig vierseitige, sehr abgestumpfte und niedere Pyramide, und gleicht mit dieser Form, die sich ziemlich deutlich auf den ersten Blick ausspricht, und im Kleinen, sehr dem Steine von Tabor; nur ist die Grundfläche (so wie bei den Steinen von Lissa und L'Aigle) durch eine sehr starke schiefe Abstumpfung einer Kante, wodurch die Fläche gleichsam in zwei Hälften getheilt wird, verunstaltet, wodurch sich die Form von dieser Seite mehr jener des Steines von L'Aigle nähert. Die beiden Endflächen, den Stein in dieser Haltung betrachtet, sind sehr uneben, sonst ziemlich flach; die obere kleinere und etwas aus dem Mittel gerückte zeigt einige kleine, aber ziemlich tiefe Eindrücke; die untere größere, mehr länglicht viereckigte, wird durch die neue, durch die Abstumpfung gebildete, sehr stumpfe Kante, welche die Fläche der Quere nach in zwei ziemlich gleiche Hälften theilt, gewölbt gemacht. Eine der Seitenflächen ist beinahe senkrecht aufgesetzt, ganz flach und eben; die gegen über stehende etwas schief, convex und uneben; die dritte sehr schief aufsteigende etwas concav, und dieß eigentlich durch ein paar verhältnißmäßig sehr große, aber seichte und sehr breit verlaufende Eindrücke; und die vierte, dieser gegen über stehende, ist die verbrochene. Alle diese Flächen bilden sowohl unter sich als vorzüglich mit der Grundfläche, am wenigsten mit der oberen Endfläche, ziemlich scharfe Kanten. Die Rinde scheint auf den ersten Anblick über den ganzen Stein durchaus von ganz gleicher Beschaffenheit zu sein, ist es wohl auch im Wesentlichen, zeigt aber doch bei näherer Betrachtung einige untergeordnete Modificationen.*
+
+*) Wenn man sich die Rinde bei ihrer Entstehung, während ihrer Bildung, und wenigstens einige Zeit während des Falles des Steines, in einem mehr oder weniger flüssigen Zustande denken will (und das muß man wohl, wenigstens bei den Meteor-Steinen von Stannern), und zumahl, wenn man (was man, wie mir däucht, weniger muß noch soll) die Rinde-bildende Potenz aus der Luft selbst (den durch Condensation ausgepreßten und durch Reibung erzeugten Wärmestoff) nehmen will; so muß jeder Stein an seinen verschiedenen Flächen oder Seiten, je nachdem sie, nach dessen Richtung im Falle (wenn auch eine Achsenbewegung dabei Statt fände, welcher jedoch, ohne der Form zu erwähnen, die Beschaffenheit der Rinde, diese als flüssig angenommen, an den meisten Steinen offenbar widerspricht), mehr oder weniger dem Luftstrome entgegen gestellt waren, wenigstens eine zwei-, ja wohl dreifache kleine, untergeordnete Modification der Rinde, wenn diese auch über den ganzen Stein von einer und derselben Hauptbeschaffenheit sein sollte --- was sie in einzelnen Fällen auch wohl sein kann --- erkennen lassen. Und dieß scheinen wirklich die Meteor-Steine von Stannern, deren Rinde, vermöge ihrer ganz eigenthümlichen Natur und Beschaffenheit, vorzugsweise, ja bis jetzt beinahe ausschließlich geeignet ist diese Modificationen auszusprechen, zu bestätigen. Ein anderes ist es um jene Hauptverschiedenheiten der Rinde, deren ich in meinem Aufsatze, in Gilberts Annalen Bd. 31, erwähnt und vier aufgestellt habe; diese rühren von ganz anderen Ursachen her (von der ursprünglichen Form und der individuellen Beschaffenheit der Oberflache der Steine; von der Kraft und der Dauer des Rinde-bildenden Prozesses, die durch Hohe, Richtung und Schnelligkeit des Falles bei den verschiedenen einzelnen Steinen mannigfaltig verschieden sein, ja selbst bei ein und demselben Steine durch wiederhohlte Zerplatzungen oder Lostrennung einzelner Stucke im Falle wieder abgeändert werden können u. s. w.); und es können deren an einem und demselben Steine (wie dieß der vorhin beschriebene bewährt, und die Figur 5 und Tafel 6 Figur 3 und 4 abgebildeten noch deutlicher zeigen) ebenfalls zwei auch drei vorkommen. Daß jede derselben nach obigem ihre eigenen Modificationen haben müsse, ergibt sich von selbst, und welche Complicationen aus dem zufälligen Zusammentreffen mehrerer von diesen und jenen nothwendig entstehen müssen, dieß läßt sich denken.
+
+An der obern End- und der einen schiefen Seitenfläche ist sie nähmlich von einer ganz eigenen Art, die gleichsam das Mittel hält zwischen der strahlig und runzlich-aderigen. Der Grund ist matt und etwas graulich-schwarz, und die Adern, welche mehr vereinzelt stehen, verlängert und nur selten etwas ramificirt sind, wenig zusammen hängen, und daher kein eigentliches Netz oder Geflecht bilden, sind pechschwarz oder pechbraun, mit einem ähnlichen fettigen Glanze. Sie sind ziemlich stark und grob, so daß die Oberfläche ziemlich rauh erscheint; unter der Loupe erscheinen sie aber wie gekörnt, und aus einzelnen mehr oder weniger dicht an einander gereiheten und zusammen fließenden Kügelchen oder Tröpfchen gebildet, wie kleine Perlenschnüre (sehr ähnlich der unvollkommenen Rinde D. 2; aber nicht auf frischer Bruchfläche, sondern auf schon überrindetem Grunde; eine Anomalie, die ich bei keinem Steine von Stannern wieder finde). An der untern End- oder Grundfläche und an der convexen Seitenfläche zeigt sich dagegen die Rinde zwar von einer ähnlichen, aber schon mehr ausgesprochnen, dichter strahlig-aderigen Beschaffenheit, von dunkelschwarzer Farbe, und starkem, etwas seidenartigem Glanze (fast genau so, wie die Rinde an den Seitenflächen des zuvor beschriebenen, und Figur 1 abgebildeten Steines), und zeigt offenbar einen Uebergang in oder vielmehr aus jener zuvor beschriebenen. An der ebenen Seitenfläche endlich erscheint sie beinahe kohlschwarz, von fettigem, etwas schillerndem Glanze, und zart runzlicht und verworren, klein und sehr dicht-aderig, unverkennbar als Modification oder höherer Grad der letzteren.
+
+Sie bildet übrigens nirgendwo Säume oder Nähte, aber unvollkommen, und zwar im höchsten Grade (D. 3), findet sie sich an ein paar äußerst kleinen Stellen, und auf einem, verhältnißmäßig, bedeutend großen Flecke an der oberen Endfläche. An allen diesen Stellen scheint aber bloß die bereits gebildet gewesene Rinde, nicht aber ein Stück der Masse des Steines, abgesprungen zu sein. Nur an der Grundfläche zeigt sich etwas Spur von Erde.
+
+Dieser höchst merkwürdige Stein ist auf seiner Grundfläche liegend vorgestellt, um dessen obere Endfläche --- welche am regelmäßigsten ist, und seine Form am besten ausspricht --- die eine gewölbte Seitenfläche von vorne, und die schiefe von der einen Seite, zur Ansicht zu bringen.
+
+## Vierte Figur.
+
+Der kleinste, und doch vollkommen ganze und durchaus überrindete, bei Stannern gefallene Stein, der kaum 56 Gran wiegt.
+
+Auch dieser ward erst einige Zeit nach dem Ereignisse eingebracht, und vom k. k. Kreisamte zu Iglau mit der Anzeige, daß er ebenfalls in der Nähe des Dorfes Lang-Pirnitz, also im südlichen Theile des befallenen Flächenraums, aufgefunden worden sei, hierher eingesendet; im Situations-Plane aber eben so wenig, wie vom vorigen Steine, der scheinbaren Unbedeutenheit wegen, der Finder genannt, oder die Fallstelle angegeben.
+
+Es zeigt derselbe einen eyförmigen Umriß, da er aber sehr platt gedrückt, und bei einer Länge von 11 und einer Breite von 8 Linien, im größten Durchmesser, an der dickesten Stelle kaum 4 1/2 Linie mißt, eine mandelförmige Gestalt. Diese Gestalt nähert sich jedoch --- indem die beiden Flächen auf der einen Seite in eine scharfe Kante zusammen stoßen, an der entgegen gesetzten aber durch einen ziemlich breiten Rand verbunden sind, der eine dritte, obgleich weit schmälere, Fläche bildet --- einem ungleichseitigen Prisma, und damit auffallend, obgleich im winzig Kleinen, der Form des nächst zu beschreibenden, Figur 5 abgebildeten, Steines; nur daß an diesem Steine das Prisma von zwei Flächen her stark zusammen gedrückt, und die dritte Fläche die schmälste ist, und daß diese sich allmählich in den Rand der andern Seite, der gemeinschaftlichen Kante der beiden andern Flächen, verliert, ohne mit denselben Endflächen zu bilden.
+
+Die beiden größern Flächen sind etwas conver, allmählich gegen ihre gemeinschaftliche, fast schneidend scharfe, Kante schief abnehmend, und, zumahl die eine, durch ziemlich tiefe ungleichförmige Eindrücke, die eben so, wie an den gleichartigen Flächen jenes Steines, mehr den Unebenheiten einer natürlichen Bruchfläche als gewöhnlichen Eindrücken gleichen, sehr uneben; die schmale Fläche ist noch weit gewölbter und unebener, zumahl nach einem Ende hin, wo ein verhältnißmäßig beträchtliches Stück der Steinmasse sich gleichzeitig losgetrennt zu haben scheint, und eine bedeutende Vertiefung zurück ließ.
+
+Die Rinde scheint auch an diesem Steine durchaus von einerlei Beschaffenheit zu sein, und ist auch wirklich von einerlei, und zwar von der glatten Art, von dunkelschwarzer Farbe und starkem fettigem Glanze, ganz ähnlich jener an den concaven Flächen des zuvor beschriebenen und Figur 2 b, und des nächst zu beschreibenden, Figur 5 abgebildeten, Steines; nur scheint sie fast durchaus dünner zu sein; denn sie zeigt einen Grad von Durchscheinenheit, der selten vorkömmt, so daß der, wie es scheint, schwerer in Rinde umwandelbare weiße Gemengtheil der Steinmasse in Gestalt einzelner gelblicher und bräunlicher Körner durchscheint; und die Adern sind etwas stärker und faltenartiger, doch ohne die Oberfläche rauh zu machen oder ein Netz zu bilden. Offenbar zeigt sich aber auch an diesem, doch so kleinen Steine eine Modification oder Abstufung der Hauptbeschaffenheit der Rinde; denn unverkennbar ist sie an der einen breiten Fläche, dichter, dunkler und glänzender, und von hier ist sie auch in Gestalt eines unvollkommenen Saumes über den scharfen Rand auf die entgegen gesetzte Fläche, und zum Theil auch über den stumpfern Rand der auf einer Seite an dieselbe gränzenden schmalen Fläche, welche in allen Beziehungen mehr mit jener übereinstimmt, übergeflossen. Von unvollkommener Rinde findet sich keine Spur, und nur gegen das eine etwas dickere und breitere Ende des Steines zeigt sich etwas Erde an der schmalen Fläche.
+
+Die Abbildung zeigt den Stein im ganzen Umrisse auf der einen breiten, stärker überrindeten Fläche liegend, mit dem scharfen --- der schmalen Fläche entgegen gestellten --- Nande nach vorne gekehrt, um den Rindensaum auf der einen einiger Maßen ersichtlich zu machen.
+
+## Fünfte Figur.
+
+Einer der größten Steine von dem Ereignisse bei Stannern, 3 Pfund 18 Loth wiegend.
+
+Er ward am Tage (29. Mai) der an Ort und Stelle abgehaltenen Untersuchungs-Commission, bei angeordneter Aufsuchung der gefallenen und ganz außer Acht gelassenen Steine, von einem Bauersweibe auf einem Felde zwischen Stannern und dem Dorfe Falkenau, beinahe im Mittelpuncte des befallenen Flächenraums (und zwar etwa 600° östlich von der Kirche von Stannern, und etwa 3000° vom äußersten Puncte in N., und etwa 4000° vom äußersten Puncte in S., wo die entferntesten Steine gefallen waren), auf ziemlich festem Boden, flach aufliegend und nur sehr wenig in die Erde eingedrungen, gefunden. (Situations-Plan Nr. 45.)
+
+Es ist derselbe vollkommen ganz, und durchaus mit Rinde bedeckt; nur an ein paar kleinen Stellen ist diese etwas abgeschlagen, und an dem einen Ende ist ein kleines Stück ausgebrochen, doch so, daß der Verlust an Masse kaum auf 1 Loth angeschlagen werden kann.
+
+Der Umriß des Steines ist eyförmig, mit stark abgestumpften Enden; er bildet aber eigentlich ein vollkommenes, nur etwas ungleichseitig dreiseitiges, gegen die beiden Enden verschmälertes Prisma, und stellt solcher Gestalt ein Segment eines Eies vor.
+
+Er zeigt nähmlich drei Hauptflächen, die unter ziemlich spitzen Winkeln zusammen stoßen, und ziemlich scharfe Kanten bilden, und von welchen die etwas breitere convex, und die beiden andern ein wenig vertieft sind. Nach den beiden Enden hin verschmälern sich diese Flächen, aber ungleich, so daß die convexe mit einer der concaven mehr nach dem einen, die andere concave mehr nach dem andern Ende zu abnimmt. Die beiden Enden sind stark abgestumpft, und durch eine Fläche geschlossen, so daß man diese als End-, jene als Seitenflächen betrachten kann.
+
+Die eine dieser Endflächen, die man als die größere und regelmäßigere, als die Grundfläche dieses Steines ansehen mag, ist flach, nur etwas vertieft, und bildet ein vollkommenes, aber stark verschobenes, und sehr ungleichseitiges Viereck; drei Ecken desselben entsprechen den Seitenkanten, und folglich die Ränder den Seitenflächen, die vierte Ecke aber, welche etwas stumpfer ist, fällt gegen die Mitte der breiteren Seitenfläche, von deren Theilung durch eine Kante sich der Anfang zeigt. (Die Tendenz zur vierseitigen Säule, oder, da das andere Ende schmäler zuläuft, und dort die Endfläche kleiner und ganz unregelmäßig ist, zur ungleichseitig vierseitigen Pyramide, ist unverkennbar, und besonders auffallend die Aehnlichkeit und Uebereinstinmung dieses Steines mit dem zuvor beschriebenen, und Figur 2. a. b. abgebildeten, ungleich kleineren, nur mit dem Unterschiede, daß dieser gegen das eine Ende ungleich mehr verschmälert ist, und daher eine vollkommen konische Gestalt hat.)
+
+Die beiden etwas vertieften Seitenflächen, die in eine gemeinschaftliche, scharfe, etwas verdrückte und wellenförmig ausgeschweifte Kante (genau so wie an jenem Steine; auch ist sie länger als wenigstens eine der beiden andern Seitenkanten, und bildet an der Grundfläche die vorspringendste Ecke) zusammen stoßen, haben nur wenige, und sehr seichte, aber ziemlich große und breit verlaufende, unförmliche Eindrücke, die (eben so) mehr den Unebenheiten einer natürlichen Bruchfläche, als den gewöhnlichen Eindrücken gleichen, und bilden zum Theil, oder liegen in größeren, stärkeren Vertiefungen, welche von ungleichförmiger, aber gleichzeitiger Lostrennung einzelner Stücke der Masse herzurühren scheinen.
+
+Die breitere, convexe Seitenfläche, welche mit jenen Flächen ziemlich scharfe, und hie und da besonders dünne, übrigens sehr verdrückte und ausgeschweifte Kanten bildet, zeigt weit wenigere und noch seichtere Eindrücke von gewöhnlicher Art, so daß sie fast eben erscheint; nur gegen das obere Ende hin ist sie durch beträchtliche Vertiefungen (die wahrscheinlich ebenfalls durch eine ungleichförmige, aber auch mit der Entstehung der ganzen Fläche gleichzeitige Lostrennung einzelner Stücke entstanden sein mögen) gewisser Maßen verunstaltet.
+
+Die obere Endfläche, welche mit den Seitenflächen sehr undeutliche und unvollkommene Kanten bildet, entspricht der Beschaffenheit der Oberfläche nach, vollkommen dem obern, verunstalteten Theile der convexen Seitenfläche; die untere Endfläche aber (die mit den Seitenflächen ziemlich scharfe, und nur mit der einen sehr schmalen concaven eine platt und sehr breit gedrückte Kante bildet), hat nur einige sehr seichte Eindrücke, und zeigt in jeder Beziehung eine, obgleich nur wenig bedeutende Abweichung von allen übrigen Flächen.
+
+Die Rinde ist an diesem Steine (so wie an jenem Fig. 2. a. b.) ganz besonders merkwürdig, und zeigt (genau so wie an diesem in jeder Hinsicht) eine sehr wesentliche und auffallende Verschiedenheit nach den verschiedenen Flächen, oder vielmehr nach den Seiten des Steines.
+
+An den beiden concaven Seitenflächen ist sie nähmlich von gleicher, und zwar von der (in Gilberts Annalen Bd. 31, S. 57, sub B. 2. beschriebenen) glatten, nur sehr schwach aderigen Art; sehr dicht, fest und gleichförmig, pechschwarz und sehr fettig glänzend. Nur hie und da zeigen sich wenig erhabene kleine Adern und Ramificationen, die nur selten zusammen hangen, und nur eine Anlage zu blattförmigen Zeichnungen, ohne bestimmte Richtung, bemerken lassen. Sie bildet weder Nahte noch Saume.
+
+An der convexen Seitenfläche dagegen, auch an dem obern, verunstalteten Theil derselben, ist die Rinde besonders ausgezeichnet, von der sehr rauhen, runzlicht und faltig-aderigen Art (ebendas. S. 56, A. a. 1.), zwar dicht und fest, aber sehr ungleichförmig, da fleck- und stellenweise die oberste, rauhe Schichte derselben fehlt, wo sie lockerer, porös, matt, und mehr braun als schwarz erscheint; sonst beinahe kohlschwarz, und von ziemlich starkem, nur durch jene Stellen unterbrochenen, aber mehr seidenartigen, schillernden Glanze. Abgesehen von der Erhabenheit einzelner starker Runzeln und Falten, hat sie im Ganzen keine beträchtlichere Dicke als jene an den entgegen gesetzten Flächen. Die erhabenen, ziemlich scharfen Adern, Runzeln und Falten, bilden ein ziemlich enges, unregelmäßiges Netz, oder ein verworrenes Adergeflecht; aber, obgleich einige mehr verlängerte Adern, zumahl hie und da auf den Rücken der Erhabenheiten, welche einige Vertiefungen begränzen, ausgezeichnet und besonders scharf sind; so sind dieses doch keine Nähte, da sie immer nur von einer Seite her gebildet werden, und keine bestimmte Richtung haben. Dagegen ist die Rinde an allen Kanten dieser Fläche, sowohl gegen die beiden andern Seitenflächen, als auch gegen die untere End- oder Grundfläche hin, obgleich hier schwächer und undeutlicher, angehäuft, verdickt, und über die Kanten selbst geflossen, so daß sie an jenen Flächen eine Art von Saum bildet, der wie eine doppelte Lage von Rindenmasse, über eine Linie breit, sich auf dieselben und über die denselben eigenthümliche Rinde hinein zieht, genau dem Laufe der Kanten folgt, und ziemlich scharf abgeschnitten endigt. An einer der Seitenkanten ist diese Saumrinde, und zwar gerade an den zwei hervorragendsten Stellen, auf einen halben Zoll Länge, wieder gegen die Fläche zurück gedrückt, gerade als wenn der Stein mit diesen Puncten gegen einen harten Körper gestoßen wäre, der die (noch nicht ganz erstarrte ?) Rinde zurück gebogen hätte. Die Beschafsenheit der Rinde an der obern Endfläche stimmt ganz, so wie die übrige Beschaffenheit der Oberfläche des Steines hier, mit der Beschaffenheit beider an dieser convexen Fläche überein; jene dagegen an der untern End- oder Grundfläche weicht hierin, obgleich nicht sehr auffallend, von jener an beiden Seiten des Steines ab. Sie ist nähmlich bei weitem nicht so glatt und fettig glänzend, wie die an den concaven Seitenflächen; aber auch nicht so rauh und runzlicht-aderig und schimmernd, wie die an der convexen, sondern überhaupt mehr von der gemein-aderigen, an den Steinen von Stannern am gewöhnlichsten vorkommenden Art (A. a. 2). Von der convexen Fläche her bildet die dortige, über die Kante auf diese Fläche nur etwas übergeflossene Rinde, auch nur einen undeutlichen, unvollkommenen Saum; von den beiden concaven Flächen her aber steht die Rinde gleichsam an den Rand der gemeinschaftlichen Kante frey an, und von jener dieser Fläche geschieden.
+
+Von unvollkommener Rinde findet sich an diesem ganzen großen Steine nur eine und selbst etwas zweideutige Spur, an einer kleinen Stelle auf der scharfen gemeinschaftlichen Kante der concaven Seitenflächen.
+
+Nur an diesen letztern Flächen, auf welche der Stein auch wirklich aufgefallen zu sein scheint, da er nahmentlich auf denselben liegend gefunden wurde, und zum Theil an den beiden Endflächen, findet sich Erde in die kleinen, seichten, ohne dieselbe kaum sichtbaren, Zwischenräume des schwachen Adergeflechtes, und in die vertieften Puncte und Poren der Rinde an- und eingedrückt; auf der convexen Fläche dagegen, die bei dem geringen Eindringen des, doch über 3 Zoll dicken, Steines in das Erdreich hoch genug über dasselbe hinausragte, so daß nicht leicht ein Regenguß Erde darüber schlemmen konnte, zeigt sich trotz der Rauhigkeit der Oberfläche keine Spur davon. (An dem Steine Fig. 2 finden sich erstere, sonst ganz gleich beschaffene Flächen, ganz rein von Erde, wovon sich hier überhaupt nur etwas an der Grundfläche zeigt.)
+
+Die Abbildung zeigt diesen besonders ausgezeichneten Stein, auf der convexen Seitenfläche liegend (wie Figur 2. b. den ähnlichen), von den beiden glatten, concaven Seitenflächen und ihrer gemeinschaftlichen Kante (nur gestürzt, die Grundfläche nach oben, und etwas gewendet), um den merkwürdigen Rindensaum, von der convexen Fläche her, an einem Seitenrande (in das nöthige Licht gebracht) ersichtlich zu machen.
+
+# Sechste Tafel.
+
+## Erste Figur.
+
+Einer von den großen Steinen von dem Steinfalle bei Stannern, 2 Pfund 12 Loth schwer.* Vollkommen ganz, und durchaus überrindet.
+
+*) In dem, dem Situations-Plane angeschlossenen Verzeichnisse der aufgefundenen Steine, wird das Gewicht, wahrscheinlich weil nur nach Erinnerung geschatzt, da das Verzeichniss mehrere Monathe spater aufgenommen wurde, nur auf 2 Pfund angegeben.
+
+Es ward derselbe am 29. Mai im Verfolg des angeordneten Aufsuchens der gefallenen Steine, ganz nahe an dem Marktflecken Stannern selbst, ziemlich im Mittelpuncte des befallenen Flächenraumes (und zwar kaum 500° westlich von der Kirche von Stannern, und bei 3000° vom äußersten Puncte in N., und bei 4000° vom äußersten Puncte in S., wo die entferntesten Steine gefallen waren) aufgefunden, und an die Untersuchungs-Commission abgegeben. (Situations-Plan Nr. 26.)
+
+Die Gestalt dieses Steines scheint beim ersten Anblicke höchst unregelmäßig zu sein, denn viele große, unförmliche und zum Theil ziemlich tiefe Eindrücke, die offenbar vom Verlust an Masse durch spätere Zersprengung und gleichzeitige Lostrennung mehrerer Stücke, vor der Rindebildung im Ganzen, herrühren, verunstalten die Flächen, verdrücken die Kanten und unterbrechen deren Richtung, so daß der Stein, zumahl derselbe gegen das eine Ende hin etwas verschmälert, und hier von zwei Seiten her stark zusammen gedrückt ist, keilförmig erscheint. Inzwischen ist doch die verschoben dreiseitige oder die unvollkommen und sehr ungleichseitig vierseitige prismatische Grundgestalt unverkennbar, und an der einen Endfläche deutlich ausgesprochen, und die Aehnlichkeit mit den oben beschriebenen und Figur 2 und 5 auf der vorigen Tafel abgebildeten Steinen nachweisbar. Man kann nähmlich vier Seiten- und zwei Endflächen, die zum Theil von ziemlich scharfen, wenn gleich sehr ausgeschweiften, und hie und da unterbrochenen Kanten begränzt werden, deutlich unterscheiden.
+
+Zwei der Seitenflächen, die sich gegen über stehen, sind sich fast ganz gleich; sie sind breiter als die übrigen, und länglich-viereckig. Gegen das eine, obere Ende sind sie nur wenig verschmälert, aber vertieft und abgeplattet, weil der Stein hier so zusammen gedrückt ist, daß er kaum einen Zoll dick erscheint; gegen das andere, untere Ende sind sie etwas mehr verschmälert, aber convexer, wie denn der Stein hier 3 Zoll dick ist. Sie sind sehr uneben, voll großer, zum Theil ziemlich tiefer, aber sanft sich verlaufender Eindrücke.
+
+Die dritte, zwischen jenen liegende Seitenfläche ist gegen das untere Ende fast so breit, wie die beiden vorhergehenden, nach oben aber sehr verschmälert, weil der Stein von den andern Seiten her so stark zusammen gedrückt ist. In der Mitte ist sie etwas vertieft, sonst flach und ebener als jene, da sie nur wenige, zwar große, aber sehr seichte Eindrücke von gewöhnlicher Art hat. Die vierte, der letztern gegen über liegende Seitenfläche endlich ist unvollkommen, oder gleicht vielmehr einem breit gedrückten Rande. Sie ist sehr schmal, sehr uneben und convex, und bildet mit den beiden breiten Seitenflächen, zwischen welchen sie liegt, undeutliche, sehr verdrückte, unterbrochene und abgerundete Kanten. Sie gleicht sehr der unvollkommenen vierten Fläche des Figur 2 a auf der vorigen Tafel dargestellten Steines, und noch mehr, ihrer ganzen Beschaffenheit nach, der schmalen Fläche an dem daselbst Figur 4 abgebildeten Steine.
+
+Die obere Endfläche ist undeutlich und unbestimmbar, oder vielmehr sie erscheint, weil der Stein von zwei Seiten her so sehr zusammen gedrückt ist, bloß als ein breiter, abgerundeter Rand. Die untere Endfläche dagegen bildet eine vollkommene, etwas verschobene und ungleichseitig vierseitige Fläche, deren ziemlich spitze Ecken den Seitenkanten, und die ziemlich scharfen Kanten den Seitenflächen entsprechen, und die mit der gleichnahmigen Fläche der oben beschriebenen Steine, Figur 2 und 5, große Aehnlichkeit zeigt. Sie ist ziemlich stark ausgehöhlt, und durch etwas kleinere, aber stärkere Vertiefungen als die übrigen Flächen, uneben gemacht.
+
+Nach dieser Beschaffenheit der Oberfläche läßt dieser Stein drei Verschiedenheiten nach seinen verschiedenen Flächen erkennen, wovon die eine Seitenfläche für sich die eine, die derselben entgegen gesetzte, schmale, in Verbindung mit der untern Endfläche, die andere, und die beiden breiten, sich gegen über stehenden Seitenflächen zusammen, die dritte zeigen.
+
+Die Rinde ist an diesem Steine ganz besonders ausgezeichnet und merkwürdig. Sie ist durchaus von derselben Hauptbeschaffenheit und von gleicher, und zwar von der rauhen, ganz vollkommen blattförmig gezeichneten Art (A. a. 3. Gilberts Annalen Bd. 31, S. 56), zeigt aber doch, nach den verschiedenen Flächen, die sie bedeckt, unverkennbar eine zwei-, zum Theil dreifache Modification.
+
+An der untern Endfläche, von wo aus die blattförmigen Zeichnungen ihre Richtung nach aufwärts über die Seitenflächen nehmen, erscheint sie noch sehr unvollkommen und undeutlich blattförmig, mehr verworren, runzlicht-aderig, von etwas graulich-schwarzer Farbe, und etwas mattem, fettigem Glanze; an der schmalen, convexen Seitenfläche ist sie von gleicher Farbe und ähnlichem Glanze, aber schon deutlich blattförmig gezeichnet, und die Blätter streichen gerade nach aufwärts gegen das obere Ende, und bald schlagen sie, bald die Blätter der angränzenden breiten Seitenflächen über die abgerundeten Kanten. An den beiden breiten Seitenflächen ist sie schon ausgezeichnet blattförmig, und die Richtung der Blätter geht von der Grundfläche nach aufwärts und etwas schief, größten Theils gegen die schmale Seitenfläche hin. Ihre Farbe zieht sich mehr ins Pechschwarze, und ihr Glanz ist etwas stärker und mehr fettig, und beides um so mehr, je mehr sie sich dem obern Ende und der vierten Seitenfläche des Steines nähert. Auf dieser letzteren endlich ist sie besonders ausgezeichnet und großblätterig, und die Blätter streichen, wie vom Mittel der untern Endfläche aus, schief aufwärts in entgegen gesetzter Richtung nach den angränzenden breitern Seitenflächen, und mehr oder weniger selbst über die gemeinschaftlichen scharfen Kanten, so daß sie hier theils am Rande frey anstehen, theils, auf jene Flächen ganz überschlagend, einen mehr oder weniger deutlichen und unterbrochenen Saum auf denselben bilden. Die Rinde ist übrigens auf dieser Fläche von einer sehr dunkel-, fast kohlschwarzen Farbe, mehr seidenartigem, schimmerndem Glanze, und von zarterer Beschaffenheit (die Adern sind nähmlich viel feiner und schärfer), und nähert sich überhaupt sehr der strahlig-aderigen Art; auch scheint sie, wo nicht im Ganzen, dünner, doch gleichförmiger zu sein, wenigstens ist sie nicht so, wie an den übrigen Flächen, stellenweise, am Rande der Blätter --- zumahl wo sich dieser über den Rücken von Erhabenheiten zieht --- verdickt, angehäuft, und gleichsam wie Oehlfarbe mit einem groben Pinsel hingeschmiert. An der obern Endfläche, die eigentlich, wie bereits erwähnt, bloß einen stumpfen, abgerundeten Rand bildet, ist die Rinde bis gegen das Mittel derselben hin dick, fast wulstig (hie und da wohl auf eine halbe Linie) angehäuft, besonders glatt, und von den breiten Flächen her, wie erstarrendes Pech, gleichsam angeflossen, und zwar scheint es, den abgestoßenen Stellen nach, die obere glatte Schichte zu sein, welche sich hier verdickt hat.
+
+Von unvollkommener Rinde findet sich nur an einer äußerst kleinen, kaum bemerkbaren Stelle, auf jeder der breiten Seitenflächen, eine Spur, wo offenbar die Rinde nicht zusammen geflossen war.
+
+Angedrückte Erde zeigt sich nur an der schmalen convexen Fläche, und gegen die untere Hälfte der an sie gränzenden breiten Seitenflächen, welches auch die Stellen sind, auf welche der Stein, kraft seines natürlichen Schwerpunctes, gefallen sein sollte.*
+
+*) Und dieser Richtung im Falle scheint die Modification der Rinde auf den verschiedenen Flächen sehr zu entsprechen.
+
+Die Abbildung stellt diesen ausgezeichneten Stein, auf der schmalen Seitenfläche liegend, etwas schief gewendet vor, und zeigt die eine ebenere Seitenfläche fast in gerader, eine der breitern in schiefer, und die untere Endfläche in seurcirter Richtung.*
+
+*) In Gilberts Annalen Bd. 31 ist von diesem Steine Tafel 1 Fig. 2 bereits eine verkleinerte und skizzirte Abbildung, aber von einer der breiten Seitenflächen, gegeben worden; ich habe daher absichtlich hier eine andere Fläche zur Darstellung gewählt.
+
+## Zweite Figur.
+
+Einer der größeren von den bei Stannern gefallenen Steinen, 1 Pfund 12 Loth wiegend. Vollkommen ganz und um und um mit Rinde bekleidet.
+
+Dieser wurde am 28. Mai in Folge der gemachten Aufforderung, die gefallenen Steine aufzusuchen, von einem Landmanne ebenfalls in der Nähe des Marktes Stannern, eigentlich bei dem Dorfe Sorez, noch mehr im Mittelpuncte des befallenen Flächenraumes, als der vorhin beschriebene (und zwar kaum 1000° O. S. O. von diesem, und etwa 600° in gleicher Richtung von der Kirche von Stannern, und beinahe in ganz gleichem Abstande von den beiden äußersten Fallstellen in N. und S.), aufgefunden. (Situations-Plan Nr. 35.)
+
+Er stellt eine zwar etwas unvollkommene, aber nur wenig verschobene, ungleichseitig vierseitige Pyramide vor, deren abgeflächte Spitze stark aus dem Mittel gedrückt und auf eine Seite übergebogen ist.
+
+Die Grundfläche, welche ganz flach und beinahe vollkommen eben und platt, ohne alle Eindrücke und Vertiefungen ist (ein Fall, der dey einer Fläche von solcher Ausdehnung höchst selten an einem Steine vorkommt), bildet ein etwas verschobenes und ungleichseitiges Viereck, dessen ziemlich, und gewisser Maßen ausgezeichnet gerade laufende scharfe, fast schneidende Kanten, eben so vielen, ziemlich senkrecht aufgesetzten, nach oben verschmälerten und nach einer Seite hingebogenen Seitenflächen, und dessen Ecken eben so vielen, ziemlich scharfen, aber sehr verdrückten und ausgeschweiften Seitenkanten entsprechen. Eine Ecke der Grundfläche ist ziemlich spitzig, und die ihr diagonal gegen über stehende etwas abgestutzt; eine dritte Ecke ist stärker, und die ihr entgegen gesetzte vierte noch mehr abgestutzt, so daß durch letztere die Grundfläche beinahe fünfseitig gemacht wird. Diese Abstumpfungen gehen etwas schief von unten nach aufwärts und außen, und bilden Dreyecke, deren Basis auf der Grundfläche ruht, und deren spitzer oberer Winkel sich allmählich in die Seitenkante verliert. Solcher Gestalt wird die vierseitige Form der Pyramide durch sie nicht verändert, und die Grundfläche zeigt immer noch eine große Aehnlichkeit mit jener der meisten bereits beschriebenen Steine, so wie die Form im Ganzen, welche den Grund-Typus deutlich genug ausspricht, mit jener mehrerer derselben.
+
+Die obere Endfläche ist nur unvollkommen, und eigentlich die horizontale Fortsetzung einer schief aufsteigenden Seitenfläche.
+
+Zwei an einander gränzende Seitenflächen sind, zumahl die eine, breiter als die andern, und ziemlich stark gewölbt; die beiden andern, gegen deren gemeinschaftliche, sehr verdrückte und beinahe ganz verschwundene Kante (welcher auch die am stärksten abgestutzte Ecke der Grundfläche entspricht) die abgeflächte Endspitze hingedrückt und übergebogen ist, sind bedeutend schmäler und etwas vertieft.
+
+Die an diesem Steine auf allen Flächen, außer der ganz ebenen Grundfläche, vorkommenden Eindrücke, sind von ganz eigener Art, wie ich sie an keinem Steine von Stannern (deren ich doch, mit Inbegriff der größern Bruchstücke, bei 100 zu Gesicht bekam), noch an irgend einem Meteor-Steine, wieder fand, ausgenommen --- obgleich nicht ganz so deutlich ausgesprochen --- an der Grundfläche des nächst zu beschreibenden. Sie sind nähmlich verhältnißmäßig sehr klein, aber tief und grubenartig, nicht so breit wie gewöhnliche Eindrücke und sanft verlaufend, sondern ziemlich scharf gerandet, gleichsam kantig, wie von grobkörnigen oder bröckligen Absonderungen entstanden, und geben der Oberfläche, da sie ziemlich häufig sind, ein klein-wellenförmiges Ansehen. Auf den beiden schmälern, concaven Seitenflächen zeigen sie schon eine Modification; sie sind nähmlich hier größer, aber seichter und mehr breit verlaufend, auch minder zahlreich. Die obere Endfläche stimmt hierin mit den andern Seitenflächen überein.
+
+Auch die Rinde ist an diesem Steine von eigenthümlicher, und der seltenen, strahlig- und netzartig-aderigen Art, aber durchaus, über den ganzen Stein, von einerlei Hauptbeschaffenheit, die nur eine Haupt- und eine dieser letztern untergeordnete Modification erkennen läßt.*
+
+*) Und diese Modificationen zeigen eine Uebereinstimmung mit der Beschaffenheit der Oberfläche und mit der Richtung, welche die Flächen im Niederfallen des Steines, kraft dessen individuellen Schwerpunctes, höchst wahrscheinlich gehabt haben möchten.
+
+Auf der ebenen Grundfläche ist sie nähmlich ausgezeichnet aus einander laufend strahlig; die ziemlich erhabenen, zarten und scharfen runzelartigen Adern laufen, wenig geschlängelt und fast gar nicht ramificirt, von einem körnig-rauhen Mittelpuncte --- der aber nicht ganz im Mittel der Fläche liegt --- strahlenförmig aus einander und gegen die Kanten hin. Die Zwischenräume zwischen diesen, eben nicht sehr gedrängten Strahlen, sind durch zartere Runzeln und Adern, die zum Theil Aeste derselben sind, und durch erhabene Puncte und Tröpfchen rauh. Uebrigens ist die Rinde hier beinahe kohlschwarz, und von einem ziemlich starken, schimmernden, seidenartigen Glanze. An allen übrigen Flächen dagegen erscheint sie netzartig-aderig, das ist, die sehr erhabenen und scharfen, zwar strahlenförmig verlängerten, aber als Folge der Unebenheiten verschiedentlich und stark gebogenen und gekrümmten Adern bilden durch ihre Verbindung unter sich ein unregelmäßiges, weitschichtiges Netz, dessen Maschen oder Zwischenräume ebenfalls durch zartere, kürzere Adern und Runzeln rauh sind. An den Erhabenheiten, welche die Vertiefungen begränzen, so wie an den meisten Kanten, bildet die Rinde ziemlich hohe und scharfe, zart gefaltete Nähte, welche der Oberfläche ein ganz eigenthümliches und besonders rauhes Ansehen geben.* Uebrigens hat die Rinde hier eine mehr ins Graue ziehende schwarze Farbe, und einen etwas schwächern, aber noch mehr schimmernden, seidenartigen Glanz.
+
+*) Die Erhabenheit und Schärfe der Adern und Nähte der Rinde, insbesondere an diesem Steine, sprechen wohl sehr gegen die vermeintliche Flussigkeit derselben, die selbst noch im Momente des Auffallens der Steine Statt haben soll; so wie andererseits die Form und die Schärfe der Kanten, nicht nur an diesem, sondern an den meisten Steinen, gegen die präsumirte Weichheit, Plasticitat, teigige Schmelzung (_fusion pateuse_) der Steinmasse in demselben Momente zu streiten scheinen; obgleich nicht in Abrede zu stellen ist, das sie sich eben so wenig mit dem höchst spröden, leicht brüchigen und fast zerreiblichen Zustande, in welchem, wenigstens die Steine von Stannern, selbst sehr kurze Zeit nach ihrem Falle befunden worden sind, und sich noch befinden, vereinbaren lassen, und mit welchem letzteren uberhaupt die vollkommene Integrität so vieler, mitunter ansehnlicher und ziemlich gewichtiger Steine im offenbarsten Widerspruche steht.
 
 
-### 0039
+An den beiden concaven Flächen zeigt sich in so ferne eine kleine Modification von dieser letztern Beschaffenheit der Rinde, daß sie hier etwas dunkler schwarz ist (gleichsam im Uebergange von jener der Grundfläche in jene der andern Seitenflächen), schwächere Nähte, minder rauhe Zwischenräume, und, wenigstens gegen die Endspitze hin, eine schwache Anlage zu blattförmigen Zeichnungen zeigt.
 
-24
-Betrachtung unter der Loupe zeigt sich, daß die obere Schichte doch nicht abgerieben oder abgestoßen ist, --- in welchem
-Falle solche Stellen ganz matt, porös und gleichsam schwammig erscheinen, - sondern daß sie nur in einer andern
-Modification vorhanden ist, nähmlich Statt Runzeln und Adern, großen Theils bloß erhabene Puncte und Körner
-bildend.
-Von eingedrückter Erde zeigt sich an der schmählern, der gebogenen, breit gedrückten Seitenkante entgegen gesetz-
-ten Seitenfläche die meiste Spur, aber auch hier nur in den zarten Zwischenräumen der erhabenen, scharfen Adern,
-und, wie am gewöhnlichsten, in den vertieften mikroscopischen Puncten und Poren der Oberfläche.
-Die Abbildung, welche diesen Stein als Musterstück solcher von geringerer Größe bey vollkommener Integrität und
-von ausgezeichneter Form darstellen soll, zeigt denselben, auf einer Seitenfläche liegend und mit der Endspitze nach un-
-ten gekehrt, um mit dem so viel als möglich ganzen Umrisse die gewölbte Grundfläche, und die eine, breiteste, Seiten-
-fläche -- gegen welche die Spitze gebogen ist --- mit ihren Seitenrändern --- wovon der eine die gebogene, breit ge-
-drückte Kante bildet --- ersichtlich zu machen.
-Zweyte Figur. a. b.
-(Esalls einer von den kleineren, bey Stannern gefallenen Steinen, 4 Loth 1 Quentchen wiegend, welcher ganz
-erhalten worden ist, und eine auffallend regelmäßige Form zeigt.
-Es wurde derselbe, am andern Tage nach dem Ereignisse, von einem Landmanne auf einem Haberfelde zwischen
-Lang- und Klein-Pirnitz, ebenfalls im südlichen Theile des befallenen Flächenraums (und zwar etwa 2400
-südlich von der Kirche von Stannern, beyläufig 700 östlich von der Fallstelle des vorhin beschriebenen ähnlichen
-Steines, und ziemlich in gleicher Entfernung vom äußersten Fallpuncte in S.), flach aufliegend und einen starken
-Zoll tief in das Erdreich eingedrungen gefunden, und am 28. May mir selbst zu Lang-Pirnitz, wo ich auf der
-Fahrt nach Stannern angehalten hatte, um vorläufige Erkundigungen einzuziehen, auf mein Verlangen überlassen.
-(Situations-Plan Nr. 16.)
-Er ist vollkommen ganz und durchaus überrindet, nur eine Ecke ist etwas abgestoßen, und ein kleines Stück der
-obern Endspitze abgeschlagen; der Verlust an Masse kann indeß kaum 2 Quentchen betragen.
-Es stellt derselbe eine etwas verschobene, aber ziemlich gleichseitig dreiseitige, oder vielmehr eine ungleichseitig vier-
-seitige, etwas verlängerte Pyramide vor. Er zeigt nähmlich eigentlich zwar nur drei ziemlich gleich breite Seitenflächen;
-allein eine derselben ist, durch eine, obgleich nur unvollkommene Kante, die sich aber an der Grundfläche doch durch
-eine deutliche Ecke ausspricht, der Länge nach in zwei sehr ungleiche Hälften getheilt.
-Diese solcher Gestalt getheilte Seitenfläche ist im Ganzen etwas conver, und durch verhältnißmäßig sehr große Ein-
-drücke sehr uneben, ja durch einen besonders großen und tiefen gegen die Basis hin, welcher beynahe einem Verluste
-an Masse, durch spätere Lostrennung oder Absprengung eines Stückes (wenn diesem nicht zum Theil die Gleichförmig-
-keit der Rinde widerspräche) zugeschrieben werden könnte, gewisser Maßen vernnstaltet. Die beyden andern Seiten-
-flächen, welche mit dieser beyderseits unter einem ziemlich stumpfen Winkel, in eine sehr stumpfe, verdrückte und aus-
-geschweifte, unter sich aber in eine beynahe schneidend scharfe, aber im Verlaufe, durch Eindrücke von den Flächen her,
-mehrere Mahle gebogene gemeinschaftliche Kante, unter einem ziemlich spitzen Winkel zusammen stoßen, sind ziemlich
-flach, eher etwas vertieft, und haben zwar ziemlich viele, aber nur seichte und breit verlaufende Eindrücke, die mehr
-den Unebenheiten einer natürlichen Bruchfläche des Steines, als den gewöhnlichen Eindrücken gleichen. Nach dem einen
-Ende zu verschmälern sich die Seitenflächen allmählich, und gehen, nachdem sich die eine unvollkommnere Kante, wel-
-che die convere Seitenfläche theilte, mit der nächsten zu vereinigen scheint, in die Spitze über, welche, obgleich sie ab-
-gebrochen ist und ursprünglich fehlt, nach der Richtung der Flächen stumpf und dreiseitig, und etwas gegen die convexe
-Fläche gebogen gewesen sein dürfte.
-Die Grundfläche ist fast flach, nur etwas vertieft, sonst vollkommen eben, und bildet ein sehr ungleichseitiges, ver-
-schobenes Viereck, indem jeder Seitenfläche - selbst den beyden sehr ungleich getheilten Hälften der einen convexen
-- eine Kante, und jeder Seitenkante --- selbst der unvollkommenen, jene Fläche theilenden - eine, wenn gleich stumpfe,
+Uebergeflossen oder Säume bildend findet sich die Rinde an diesem Steine nirgendwo, und unvollkommen (und zwar im höchsten Grade, aber nur als Folge einer oberflächlichen Absprengung eines äußerst kleinen Stückes derselben) zeigt sie sich nur auf einer sehr kleinen Stelle auf einer der concaven Flächen.
 
+An der Grundfläche, an einer der convexen und an einer concaven Seitenfläche, gegen welche letztere die Endspitze gebogen ist, zeigt sich stellenweise etwas eingedrückte Erde.
 
-### 0040
+Dieser, durch die seltene Art von Ueberrindung besonders ausgezeichnete Stein, ist von seiner --- in dieser Beziehung merkwurdigsten --- Grundflache, die zugleich dessen Form am besten erkennen macht, dargestellt.*
 
-25
-Ecke entspricht. Die mit den beyden Hälften der convexen Seitenflächen gebildeten Kanten sind sehr stumpf, jene
-mit den zwei andern Seitenflächen aber ziemlich scharf, und da diese Seitenflächen mit ihrer gemeinschaftlichen Kante
-sich nach diesem Ende des Steines hin beträchtlich verlängern; so erhält die Grundfläche dadurch eine ganz schiefe Rich-
-tung gegen die viel kürzere convexe Seitenfläche, und die durch jene verlängerte Seitenkante mit den beyden Grundkan-
-ten der Seitenflächen gebildete Ecke springt bedeutend vor, und scheint (da sie verbrochen ist) ziemlich scharf gewesen zu
-sein.
-Die Rinde ist an diesem Steine besonders merkwürdig, und zeigt eine wesentliche und auffallende Verschiedenheit
-nach den verschiedenen Flächen desselben.
-Auf der convexen Seiten- und der mit dieser auch im Uebrigen übereinstimmenden Grundfläche ist sie von der sehr
-rauhen, runzlicht-aderigen Art (A. a. 1. Gilberts Annalen Bd. 31, S. 56), mit dem gewöhnlichen Glanze, der
-durch matte Stellen --- wo nähmlich die oberste Schicht abgesprungen ist - unterbrochen wird, und von mehr brauner
-als schwarzer Farbe. Auf den beyden andern Flächen dagegen ist sie ganz glatt, sehr dicht, fest und gleichförmig, sehr
-schwach aderig, und nur sehr undeutlich und unvollkommen blattförmig gezeichnet, pechschwarz und sehr fettig glänzend.
-(B. 2. ebendas. S. 57.) Von der converen Seiten- und der Grundfläche über die Kanten her, bildet die dortige rau-
-here Rinde auf die Rinde dieser Flächen herüber undeutliche und nicht scharf begränzte Säume (1).
-Von unvollkommener Rinde zeigt sich keine Spur an diesem Steine, und von eingedrückter Erde nur etwas an
-der Grundfläche, auf welche der Stein, vermöge seines natürlichen Schwerpunctes auch aufgefallen sein mußte.
-Figur 2. a. stellt diesen merkwürdigen Stein, auf den beyden glatten Seitenflächen und ihrer gemeinschaftlichen
-Kante liegend, von der convexen, unebenen und unvollkommen getheilten Seitenfläche, und der mit derselben in schie-
-fer Richtung verbundenen Grundfläche vor;
-Figur 2. b. zeigt denselben aber, auf jener Seitenfläche ruhend, von der gemeinschaftlichen, schneidend scharfen
-Kante, in welche die beyden andern Seitenflächen zusammenstoßen.
-Dritte Figur.
-z,, er kleinsten, und doch vollkommen überrindeten Steine von dem Ereignisse bey Stannern, von kaum 24
-Quentchen am Gewichte.
-Es ward derselbe einige Zeit nach der Begebenheit, in Folge nachträglicher ämtlicher Aufforderung an das Land-
-volk jener Gegend, die etwa noch verborgen liegenden Steine aufzusuchen und abzuliefern, an das k. k. Kreisamt zu Ig-
-lau eingebracht, und von diesem mit mehreren andern eingesendet.
-Da dieser Stein zu klein und unbedeutend schien, so ward weder der Finder nahmentlich angezeigt, noch in dem
-späterhin aufgenommenen Situations-Plane die Stelle angedeutet, wo derselbe aufgefunden wurde; indessen doch in
-dem Einbegleitungsschreiben bemerkt: daß derselbe aus der Gegend von Lang-Pirnitz, demnach aus dem südlichen Theile
-des befallenen Flächenraums, eingebracht worden sey.
-Er ist vollkommen ganz, und nur an einer Seite etwas abgeschlagen, so daß der Verlust an Masse etwa ein hal-
-bes Quentchen betragen haben möchte; außer dieser Stelle ist er um und um mit Rinde bedeckt.
-Er bildet eine etwas verdrückte, verschoben aber ziemlich gleichseitig vierseitige, sehr abgestumpfte und niedere Py-
-ramide, und gleicht mit dieser Form, die sich ziemlich deutlich auf den ersten Blick ausspricht, und im Kleinen, sehr
-dem Steine von Tabor; nur ist die Grundfläche (so wie bey den Steinen von Lissa und L'Aigle) durch eine sehr
-starke schiefe Abstumpfung einer Kante, wodurch die Fläche gleichsam in zwei Hälften getheilt wird, verunstaltet, wo-
-(1) Diese höchst merkwürdige, und, wie mir däucht, für die Erklärung der Bildung der Rinde sowohl, als der Formirung (Ver-
-einzelung) der Steine sehr wichtige Eigenheit derselben, Sanme zu bilden, spricht sich am deutlichsten an dem gleich zu be-
-siieleesien, "s nsäsnsime isss s . ss. isinlisit i l. is.nm en desetsnist-
-gur 5 abgebildeten Steine aus, mit welchem dieser, und zwar nicht nur in der Form, - sogar in den einzelnen unregelma-
-ßiateiten derselben, ondern auch in der ganzen Beschasenhen und Art der uerrindung, die auffallendste Aehnlichkeit und
-Uebereinstimmung zeig..
+*) In Gilberts Annalen Bd. 31, Tafel 2 Figur 1. 2., ist bereits von diesem Steine eine skizzirte Darstellung von zwei Ansichten gegeben worden, und zwar die eine von den beiden gewölbten Seitenflächen mit ihrer gemeinschaftlichen Kante, die andere von der Grundflache genommen.
 
+## Dritte Figur.
 
-### 0041
+Ebenfalls einer der größern von den bei Stannern gefallenen Steinen, von 1 Pfund 7 Loth am Gewichte, welcher am 29. Mai, auch nahe bei Stannern selbst, zwischen den Dörfern Sorez und Falkenau, demnach ebenfalls im Mittelpuncte des befallenen Flächenraumes (und zwar nur etwa 500° mehr nördlich als der letztbeschriebene, und etwa 300 östlich von der Kirche von Stannern) aufgefunden und der Commission übergeben wurde. (Situations-Plan Nr. 43.)
 
-durch sich die Form von dieser Seite mehr jener des Steines von L'Aigle nähert. Die beyden Endflächen, den Stein
-in dieser Haltung betrachtet, sind sehr uneben, sonst ziemlich flach; die obere kleinere und etwas aus dem Mittel ge-
-rückte zeigt einige kleine, aber ziemlich tiefe Eindrücke; die untere größere, mehr länglicht viereckigte, wird durch die
-neue, durch die Abstumpfung gebildete, sehr stumpfe Kante, welche die Fläche der Quere nach in zwei ziemlich gleiche
-Hälften theilt, gewölbt gemacht. Eine der Seitenflächen ist beynahe senkrecht aufgesetzt, ganz flach und eben; die ge-
-gen über stehende etwas schief, convex und uneben; die dritte sehr schief aufsteigende etwas concav, und dieß eigentlich
-durch ein paar verhältnißmäßig sehr große, aber seichte und sehr breit verlaufende Eindrücke; und die vierte, dieser ge-
-gen über stehende, ist die verbrochene. Alle diese Flächen bilden sowohl unter sich als vorzüglich mit der Grundfläche,
-am wenigsten mit der oberen Endfläche, ziemlich scharfe Kanten. Die Rinde scheint auf den ersten Anblick über den
-ganzen Stein durchaus von ganz gleicher Beschaffenheit zu sein, ist es wohl auch im Wesentlichen, zeigt aber doch bey
-näherer Betrachtung einige untergeordnete Modificationen (1).
-An der obern End- und der einen schiefen Seitenfläche ist sie nähmlich von einer ganz eigenen Art, die gleichsam
-das Mittel hält zwischen der strahlig und runzlich-aderigen. Der Grund ist matt und etwas graulich-schwarz, und die
-Adern, welche mehr vereinzelt stehen, verlängert und nur selten etwas ramificirt sind, wenig zusammen hängen, und
-daher kein eigentliches Netz oder Geflecht bilden, sind pechschwarz oder pechbraun, mit einem ähnlichen fettigen Glanze.
-Sie sind ziemlich stark und grob, so daß die Oberfläche ziemlich rauh erscheint; unter der Loupe erscheinen sie aber wie
-gekörnt, und aus einzelnen mehr oder weniger dicht an einander gereiheten und zusammen fließenden Kügelchen oder
-Tröpfchen gebildet, wie kleine Perlenschnüre (sehr ähnlich der unvollkommenen Rinde D. 2; aber nicht auf frischer Bruch-
-fläche, sondern auf schon überrindetem Grunde; eine Anomalie, die ich bey keinem Steine von Stannern wieder
-finde). An der untern End- oder Grundfläche und an der convexen Seitenfläche zeigt sich dagegen die Rinde zwar von
-einer ähnlichen, aber schon mehr ausgesprochnen, dichter strahlig-aderigen Beschaffenheit, von dunkelschwarzer Farbe, und
-starkem, etwas seidenartigem Glanze (fast genau so, wie die Rinde an den Seitenflächen des zuvor beschriebenen, und
-Figur 1 abgebildeten Steines), und zeigt offenbar einen Uebergang in oder vielmehr aus jener zuvor beschriebenen. An
-der ebenen Seitenfläche endlich erscheint sie beynahe kohlschwarz, von fettigem, etwas schillerndem Glanze, und zart
-runzlicht und verworren, klein und sehr dicht-aderig, unverkennbar als Modification oder höherer Grad der letzteren.
-Sie bildet übrigens nirgendwo Säume oder Nähte, aber unvollkommen, und zwar im höchsten Grade (D. 3),
-findet sie sich an ein paar äußerst kleinen Stellen, und auf einem, verhältnißmäßig, bedeutend großen Flecke an der obe-
-ren Endfläche. An allen diesen Stellen scheint aber bloß die bereits gebildet gewesene Rinde, nicht aber ein Stück der
-Masse des Steines, abgesprungen zu sein. Nur an der Grundfläche zeigt sich etwas Spur von Erde.
-Dieser höchst merkwürdige Stein ist auf seiner Grundfläche liegend vorgestellt, um dessen obere Endfläche -- wel-
-che am regelmäßigsten ist, und seine Form am besten ausspricht --- die eine gewölbte Seitenfläche von vorne, und die
-schiefe von der einen Seite, zur Ansicht zu bringen.
-(1) Wenn man sich die Rinde bey ihrer Entstehung, während ihrer Bildung, und wenigstens einige Zeit während des Falles des
-Steines, in einem mehr oder weniger flüssigen Zustande denken will (und das muß man wohl, wenigstens bey den Meteor-
-Steinen von Stannern), und zumahl, wenn man (was man, wie mir däucht, weniger muß noch soll) die Rinde-bildende
-Potenz aus der Luft selbst (den durch Condensation ausgepreßten und durch Reibung erzeugten Wärmestoff) nehmen will; so
-muß jeder Stein an seinen verschiedenen Flächen oder Seiten, je nachdem sie, nach dessen Richtung im Falle (wenn auch eine
-Achsenbewegung dabey Statt fände, welcher jedoch, ohne der Form zu erwähnen, die Beschaffenheit der Rinde, diese als flüssig
-angenommen, an den meisten Steinen offenbar widerspricht), mehr oder weniger dem Luftstrome entgegen gestellt waren, we-
-nigstens eine zwei-, ja wohl dreifache kleine, untergeordnete Modification der Rinde, wenn diese auch über den ganzen Stein
-von einer und derselben Hauptbeschaffenheit sein sollte -- was sie in einzelnen Fällen auch wohl sein kann - erkennen lassen.
-Und dieß scheinen wirklich die Meteor-Steine von Stannern, deren Rinde, vermöge ihrer ganz eigenthümlichen Natur und
-Beschaffenheit, vorzugsweise, ja bis jetzt beynahe ausschließlich geeignet ist diese Modificationen auszusprechen, zu bestätigen.
-Ein anderes ist es um jene Hauptverschiedenheiten der Rinde, deren ich in meinem Aufsatze, in Gilberts Annalen Bd. 31,
-erwähnt und vier aufgestellt habe; diese rühren von ganz anderen Ursachen her (von der ursprünglichen Form und der individuel-
-ln Bechafenhei- der Stenn son der deler de- oinsessinen eesenes, die , ich-
-tung und Schnelligkeit des Falles bey den verschiedenen einzelnen Steinen mannigfaltig verschieden sein, ja selbst bey ein und
-demselben Steine durch wiederhohlte Zerplatzungen oder Lostrennung einzelner Seae i gaule wieder abgeändert werden kön-
-nen u. s. w.); und es können deren an einem und demselben Steine (wie dieß der vorhin beschriebene bewährt, und die Figur
-5 und Tafel 6 Figur 3 und 4 abgebildeten noch deutlicher zeigen) ebenfalls zwei auch drei vorkommen. Daß jede derselben nach
-obigem ihre eigenen Modificationen haben müsse, ergibt sich von selbst, und welche Complicationen aus dem zufälligen Zusam-
-mentreffen mehrerer von diesen und jenen nothwendig entstehen müssen, dieß läßt sich denken.
+Es ist derselbe vollkommen ganz, so, wie er wirklich zur Erde gefallen, obgleich er, bei oberflächlicher Betrachtung, das Ansehen hat, als wäre ein beträchtliches Stück davon nach der Hand gewaltsam abgeschlagen, und die künstlich erzeugte Bruchfläche durch absichtliche oder zufällige Beschmutzung so verändert worden, daß sie nicht mehr vollkommen einer ganz frischen der Masse gleichet. Diese Vermuthung findet noch überdieß in der offenbaren Verunstaltung der Form, deren ursprüngliche größere Regelmäßigkeit noch unverkennbar ist, durch Verlust an Masse, eine auffallende Bekräftigung. Es hat mit dieser Vermuthung in so weit auch die vollste Richtigkeit, daß jenes Bruchansehen und diese Formverunstaltung wirklich von einem spätern, nach der ursprünglichen Bildung (Individualisirung) dieses Steines und nach dessen totaler Incrustirung Statt gehabten Verluste an Masse herrühre; allem es zeigt sich bei näherer Betrachtung unwiderleglich, daß dieser Verlust noch vor dem wirklichen Niederfallen oder Auffallen des Steines, und während seines Zuges durch die Luft, durch natürliche Absprengung und Lostrennung eines Stückes entstanden sein müsse, indem die vermeintlich künstliche Bruchfläche wirklich mit wahrer, obgleich nicht vollkommen ausgebildeter Rinde bedeckt erscheint.*
 
+*) Dieser Stein war es auch, an dem ich jene, für die in jeder Beziehung so schwierige Erklärung der Bildung der Rinde an den Meteor-Steinen, gewiß sehr wichtige Beobachtung, nähmlich über das Vorkommen derselben in verschiedenen Graden von Unvollkommenheit, oft selbst an ein und demselben Steine, zuerst machte, und zu machen nicht wohl verfehlen konnte, da sie an diesem Steine so ausgesprochen und in die Augen springend ist, und welche so wie die eben so vorkommenden Hauptverschiedenheiten und Modificationen derselben, wie mir deucht wohl unbestreitbar, eine stufenweise und allmähliche --- ich will gerade nicht behaupten, langsame, aber doch wiederhohlte, fortgesetzte, und während der ganzen Periode des Falles der einzelnen Steine fortdauernde --- Bildung der Rinde voraussetzen. Es war mir dann ein Leichtes, dieses, gar nicht ungewöhnliche Vorkommen der Rinde, in an sich schwerer erkennbaren Graden, nicht nur an den meisten Meteor-Steinen von Stannern, sondern auch an jenen von andern Ereignissen, deren Rinde, ihrer Natur nach, weit weniger geeignet ist, diesen Zustand erkennen zu lassen --- daher er auch bis dahin (1808), und wie es scheint, noch bis jetzt von niemand beobachtet wurde --- aufzufinden und nachzuweisen.
 
-### 0042
+So unregelmäßig die Form dieses Steines nun auch ist, so ist doch in seiner Begränzung durch wahre Flächen, und in deren Verbindung, Ausdehnung und Richtung, der Grund-Typus zur verschoben vierseitigen Pyramide, und damit die Aehnlichkeit mit den meisten der beschriebenen Steine deutlich genug noch ausgesprochen, und man müßte diesen Stein, trotz dessen starker Abplattung und anscheinender Zurundung, nach zwei End- und vier Seitenflächen beschreiben, zöge man auch nur die verschiedene Beschaffenheit seiner Oberfläche und die Modificationen der Rinde in Betrachtung.
 
-Vierte Figur.
-, kleinste, und doch vollkommen ganze und durchaus überrindete, bey Stannern gefallene Stein, der kaum
-56 Gran wiegt.
-Auch dieser ward erst einige Zeit nach dem Ereignisse eingebracht, und vom k. k. Kreisamte zu Iglau mit der
-Anzeige, daß er ebenfalls in der Nähe des Dorfes Lang-Pirnitz, also im südlichen Theile des befallenen Flächen-
-raums, aufgefunden worden sey, hierher eingesendet; im Situations-Plane aber eben so wenig, wie vom vorigen
-Steine, der scheinbaren Unbedeutenheit wegen, der Finder genannt, oder die Fallstelle angegeben.
-Es zeigt derselbe einen eyförmigen Umriß, da er aber sehr platt gedrückt, und bey einer Länge von 11 und einer
-Breite von 8 Linien, im größten Durchmesser, an der dickesten Stelle kaum 44 Linie mißt, eine mandelförmige Gestalt.
-Diese Gestalt nähert sich jedoch - indem die beyden Flächen auf der einen Seite in eine scharfe Kante zusammen sto-
-ßen, an der entgegen gesetzten aber durch einen ziemlich breiten Rand verbunden sind, der eine dritte, obgleich weit
-schmälere, Fläche bildet -- einem ungleichseitigen Prisma, und damit auffallend, obgleich im winzig Kleinen, der
-Form des nächst zu beschreibenden, Figur 5 abgebildeten, Steines; nur daß an diesem Steine das Prisma von zwei
-Flächen her stark zusammen gedrückt, und die dritte Fläche die schmälste ist, und daß diese sich allmählich in den Rand
-der andern Seite, der gemeinschaftlichen Kante der beyden andern Flächen, verliert, ohne mit denselben Endflächen
-zu bilden.
-Die beyden größern Flächen sind etwas conver, allmählich gegen ihre gemeinschaftliche, fast schneidend scharfe, Kante
-schief abnehmend, und, zumahl die eine, durch ziemlich tiefe ungleichförmige Eindrücke, die eben so, wie an den gleich-
-artigen Flächen jenes Steines, mehr den Unebenheiten einer natürlichen Bruchfläche als gewöhnlichen Eindrücken glei-
-chen, sehr uneben; die schmale Fläche ist noch weit gewölbter und unebener, zumahl nach einem Ende hin, wo ein
-verhältnißmäßig beträchtliches Stück ve1 Steinmasse sich gleichzeitig losgetrennt zu haben scheint, und eine bedeutende
-Vertiefung zurück ueß.
-Die Ninde scheint auch an diesem Steine durchaus von einerley Beschaffenheit zu sein, und ist auch wirklich von
-einerley, und zwar von der glatten Art, von dunkelschwarzer Farbe und starkem fettigem Glanze, ganz ähnlich jener
-an den concaven Flächen des zuvor beschriebenen und Figur 2 b, und des nächst zu beschreibenden, Figur 5 abgebilde-
-ten, Steines; nur scheint sie fast durchaus dünner zu sein; denn sie zeigt einen Grad von Durchscheinenheit, der selten
-vorkömmt, so daß der, wie es scheint, schwerer in Rinde umwandelbare weiße Gemengtheil der Steinmasse in Gestalt
-einzelner gelblicher und bräunlicher Körner durchscheint; und die Adern sind etwas stärker und faltenartiger, doch ohne
-die Oberfläche rauh zu machen oder ein Netz zu bilden. Offenbar zeigt sich aber auch an diesem, doch so kleinen Steine eine
-Modification oder Abstufung der Hauptbeschaffenheit der Rinde; denn unverkennbar ist sie an der einen breiten Fläche,
-dichter, dunkler und glänzender, und von hier ist sie auch in Gestalt eines unvollkommenen Saumes über den scharfen
-Rand auf die entgegen gesetzte Fläche, und zum Theil auch über den stumpfern Rand der auf einer Seite an dieselbe
-gränzenden schmalen Fläche, welche in allen Beziehungen mehr mit jener übereinstimmt, übergeflossen. Von unvoll-
-kommener Rinde findet sich keine Spur, und nur gegen das eine etwas dickere und breitere Ende des Steines zeigt sich
-etwas Erde an der schmalen Fläche.
-Die Abbildung zeigt den Stein im ganzen Umrisse auf der einen breiten, stärker überrindeten Fläche liegend, mit
-dem scharfen -- der schmalen Fläche entgegen gestellten --- Nande nach vorne gekehrt, um den Rindensaum auf der
-27
-einen einiger Maßen ersichtlich zu machen.
-Fünfte Figur.
-Erzer der größten Steine von dem Ereignisse bey Stannern, 3 Pfund 18 Loth wiegend.
-Er ward am Tage (29. May) der an Ort und Stelle abgehaltenen Untersuchungs-Commission, bey angeordneter
-Aufsuchung der gefallenen und ganz außer Acht gelassenen Steine, von einem Bauersweibe auf einem Felde zwischen
-Stannern und dem Dorfe Falkenau, beynahe im Mittelpuncte des befallenen Flächenraums (und zwar etwa 600
-G 2
+Die eine, bedeutend größere Endfläche, stellt ein verschobenes, aber ziemlich gleichseitiges Viereck vor, dessen Ecken abgestumpft, und mehr oder weniger zugerundet, und dessen ziemlich gerade laufende Ränder, die mit den mehr oder weniger schief aufsteigenden Seitenflächen ziemlich scharfe Kanten bilden, ausgeschweift sind. Sie ist in der Mitte etwas gewölbt, sonst ziemlich flach, und durch sehr viele kleine, aber ziemlich tiefe, grubenartige Eindrücke auf eben die Art und eben so sehr uneben, wie die Seitenflächen des zuvor beschriebenen Steines.
 
+Drey an einander gränzende Seitenflächen sind sehr niedrig. Die eine steigt beinahe senkrecht; die andere, unter einem ziemlich spitzen Winkel in eine deutliche, ziemlich scharfe Kante mit ihr zusammen stoßende, etwas schief; die dritte, unter einem sehr stumpfen Winkel, mit ersterer eine sehr undeutliche, ganz abgerundete Kante bildende, noch mehr schief von der Grundfläche in die Höhe. Alle haben nur wenige, seichte, aber große und breit verlaufende Eindrücke von gewöhnlicher Art.
 
-### 0043
+Die vierte Seitenfläche ist, zumahl in ihrem Mittel, wo sich der obere Rand in eine stumpfe Spitze verliert --- von der eine ziemlich erhabene scharfe Kante bis zum Rande der Basis läuft, und diese Fläche der Länge nach in zwei Hälften theilt, auch gewisser Maßen eine fünfte unvollkommene Ecke an der Grundfläche bildet --- beträchtlich höher als jene, und erhebt sich zwischen den beiden schiefern Seitenflächen, mit welchen sie in etwas undeutliche Kanten zusammen stößt, beinahe senkrecht von der Grundfläche Sie ist sehr uneben, ihre Unebenheiten rühren aber nicht von gewöhnlichen Eindrücken her, sondern stellen natürliche Unebenheiten einer Bruchfläche der Steinmasse selbst vor.
 
-östlich von der Kirche von Stannern, und etwa 3000 vom äußersten Puncte in N., und etwa 4000 vom äu-
-ßersten Puncte in S., wo die entferntesten Steine gefallen waren), auf ziemlich festem Boden, flach aufliegend und
-nur sehr wenig in die Erde eingedrungen, gefunden. (Situations-Plan Nr. 45.)
-Es ist derselbe vollkommen ganz, und durchaus mit Rinde bedeckt; nur an ein paar kleinen Stellen ist diese et-
-was abgeschlagen, und an dem einen Ende ist ein kleines Stück ausgebrochen, doch so, daß der Verlust an Masse
-kaum auf 1 Loth angeschlagen werden kann.
-Der Umriß des Steines ist eyförmig, mit stark abgestumpften Enden; er bildet aber eigentlich ein vollkommenes,
-nur etwas ungleichseitig dreiseitiges, gegen die beyden Enden verschmälertes Prisma, und stellt solcher Gestalt ein Seg-
-ment eines Eyes vor.
-Er zeigt nähmlich drei Hauptflächen, die unter ziemlich spitzen Winkeln zusammen stoßen, und ziemlich scharfe Kan-
-ten bilden, und von welchen die etwas breitere convex, und die beyden andern ein wenig vertieft sind. Nach den bey-
-den Enden hin verschmälern sich diese Flächen, aber ungleich, so daß die convexe mit einer der concaven mehr nach
-dem einen, die andere concave mehr nach dem andern Ende zu abnimmt. Die beyden Enden sind stark abgestumpft,
-und durch eine Fläche geschlossen, so daß man diese als End-, jene als Seitenflächen betrachten kann.
-Die eine dieser Endflächen, die man als die größere und regelmäßigere, als die Grundfläche dieses Steines an-
-sehen mag, ist flach, nur etwas vertieft, und bildet ein vollkommenes, aber stark verschobenes, und sehr ungleichsei-
-tiges Viereck; drei Ecken desselben entsprechen den Seitenkanten, und folglich die Ränder den Seitenflächen, die vierte
-Ecke aber, welche etwas stumpfer ist, fällt gegen die Mitte der breiteren Seitenfläche, von deren Theilung durch eine
-Kante sich der Anfang zeigt. (Die Tendenz zur vierseitigen Säule, oder, da das andere Ende schmäler zuläuft,
-und dort die Endfläche kleiner und ganz unregelmäßig ist, zur ungleichseitig vierseitigen Pyramide, ist unverkennbar,
-und besonders auffallend die Aehnlichkeit und Uebereinstinmung dieses Steines mit dem zuvor beschriebenen, und Figur
-2. a. b. abgebildeten, ungleich kleineren, nur mit dem Unterschiede, daß dieser gegen das eine Ende ungleich mehr ver-
-schmälert ist, und daher eine vollkommen konische Gestalt hat.)
-Die beyden etwas vertieften Seitenflächen, die in eine gemeinschaftliche, scharfe, etwas verdrückte und wellenför-
-mig ausgeschweifte Kante (genau so wie an jenem Steine; auch ist sie länger als wenigstens eine der beyden andern
-Seitenkanten, und bildet an der Grundfläche die vorspringendste Ecke) zusammen stoßen, haben nur wenige, und sehr
-seichte, aber ziemlich große und breit verlaufende, unförmliche Eindrücke, die (eben so) mehr den Unebenheiten einer
-natürlichen Bruchfläche, als den gewöhnlichen Eindrücken gleichen, und bilden zum Theil, oder liegen in größeren, stär-
-keren Vertiefungen, welche von ungleichförmiger, aber gleichzeitiger Lostrennung einzelner Stücke der Masse herzu-
-rühren scheinen.
-Die breitere, convexe Seitenfläche, welche mit jenen Flächen ziemlich scharfe, und hie und da besonders dünne,
-übrigens sehr verdrückte und ausgeschweifte Kanten bildet, zeigt weit wenigere und noch seichtere Eindrücke von gewöhn-
-licher Art, so daß sie fast eben erscheint; nur gegen das obere Ende hin ist sie durch beträchtliche Vertiefungen (die
-wahrscheinlich ebenfalls durch eine ungleichförmige, aber auch mit der Entstehung der ganzen Fläche gleichzeitige Los-
-trennung einzelner Stücke entstanden sein mögen) gewisser Maßen verunstaltet.
-Die obere Endfläche, welche mit den Seitenflächen sehr undeutliche und unvollkommene Kanten bildet, entspricht
-der Beschaffenheit der Oberfläche nach, vollkommen dem obern, verunstalteten Theile der convexen Seitenfläche; die un-
-tere Endfläche aber (die mit den Seitenflächen ziemlich scharfe, und nur mit der einen sehr schmalen concaven eine
-platt und sehr breit gedrückte Kante bildet), hat nur einige sehr seichte Eindrücke, und zeigt in jeder Beziehung eine,
-obgleich nur wenig bedeutende Abweichung von allen übrigen Flächen.
-Die Rinde ist an diesem Steine (so wie an jenem Fig. 2. a. b.) ganz besonders merkwürdig, und zeigt (genau
-so wie an diesem in jeder Hinsicht) eine sehr wesentliche und auffallende Verschiedenheit nach den verschiedenen Flächen,
-oder vielmehr nach den Seiten des Steines.
-An den beyden concaven Seitenflächen ist sie nähmlich von gleicher, und zwar von der (in Gilberts Annalen
-Bd. 31, S. 57, sub B. 2. beschriebenen) glatten, nur sehr schwach aderigen Art; sehr dicht, fest und gleichförmig, pech-
-schwarz und sehr fettig glänzend. Nur hie und da zeigen sich wenig erhabene kleine Adern und Ramificationen, die
-nur selten zusammen hangen, und nur eine Anlage zu blattförmigen Zeichnungen, ohne bestimmte Richtung, bemerken
-lassen. Sie bile weoer zu- uoiy Säume.
+Die obere Endfläche endlich steigt von zwei Seitenflächen --- der einen etwas schiefen und der senkrechten, niedern --- mit welchen sie unter einem sehr stumpfen Winkel in etwas undeutliche Kanten zusammen stoßt, eine Strecke lang schief aufwärts, als wenn sie eine gewölbte Fläche bilden wollte, wird aber bald durch eine neue Fläche unterbrochen, die wie von einer zufälligen, spätern und gewaltsamen Abschlagung der Endspitze entstanden zu sein scheint. Diese Fläche hat einen rundlichen Umriß, der aber doch einiger Maßen den Seitenflächen und Kanten entspricht, erhebt sich schief gegen den Rand und die Spitze der einen senkrechten höhern, und stößt mit der vierten schiefen Seitenfläche mit einem ziemlich scharfen kantenartigen Rand zusammen. Sie sieht eben so rauh und uneben aus, wie die eine hohe Seitenfläche, und folglich wie eine gewöhnliche Bruchfläche der Steinmasse, indeß ihre Basis gegen die zwei erstern Seitenflächen hin, hinsichtlich ihrer Beschaffenheit und Eindrücke, ganz diesen gleicht. So verschieden solcher Gestalt die Oberfläche dieses Steines nach den verschiedenen Flächen desselben erscheint; so verschieden und offenbar in Uebereinstimmung mit jenen Verschiedenheiten zeigt sich auf eine höchst merkwürdige Weise die Beschaffenheit der Rinde an demselben.
 
+Auf der größern End- oder Grundfläche desselben ist sie nähmlich genau und in allen Beziehungen, so wie an den Seitenflächen des vorhin beschriebenen Steines, von der dichten, festen, rauhen, netzartig-aderigen Art (A. b. 2), mit sehr erhabenen Adern, häufigen, scharfen Nähten und sehr rauhen Zwischenräumen; nur zieht sich hier die Farbe mehr ins Pechschwarze, und der seidenartige Glanz nähert sich mehr dem fettigen; auch scheint die Rinde hier dünner zu sein, indem an einigen Stellen, zumahl gegen die eine rauhe Seitenfläche hin, die untere braune Schichte, und auf der ganzen Oberfläche der, wie es scheint, schwerer in Rinde umwandelbare, weiße Gemengtheil der Steinmasse (wie an dem Tab. 5 Fig. 4 vorgestellten Steine) in Gestalt einzelner und zusammen gehäufter, weißer, gelblicher und bräunlicher Körner, die kaum die Größe der Hanf- oder Hirsekörner haben, durchscheint.
 
-### 0044
+An den drei, an einander gränzenden, auch sonst gleichartigen Seitenflächen dagegen ist sie von der gewöhnlichsten einfach-aderigen Art (A. a. 2), von dunkelschwarzer Farbe und von dem gewöhnlichen fettigen Glanze. Doch zeigt sich auch hier eine kleine Modification, indem an einer derselben, und zwar an der am schiefsten aufsteigenden (auch unebneren) die Rinde glatter, glänzender, anscheinend dünner, und mit einer Anlage zur blätterigen Zeichnung sich zeigt; und was besonders merkwürdig ist, auf ihr, vom Rande der Grundfläche her, die Rinde übergeflossen erscheint und einen Saum bildet, indeß sie an den beiden andern Flächen von jener Fläche her gleichförmig über die Nänder oder Kanten fortläuft. An der obern, mit der neuen Bruchfläche gebildeten Endkante steht die Rinde dieser Fläche angehäuft, gleichsam als ein aufrecht stehender, ziemlich scharfer Rand an.
 
-29
-An der converen Seitenfläche dagegen, auch an dem obern, verunstalteten Theil derselben, ist die Rinde besonders
-ausgezeichnet, von der sehr rauhen, runzlicht und faltig-aderigen Art (ebendas. S. 56, A. a. 1.), zwar dicht und
-fest, aber sehr ungleichförmig, da fleck- und stellenweise die oberste, rauhe Schichte derselben fehlt, wo sie lockerer,
-porös, matt, und mehr braun als schwarz erscheint; sonst beynahe kohlschwarz, und von ziemlich starkem, nur durch
-jene Stellen unterbrochenen, aber mehr seidenartigen, schillernden Glanze. Abgesehen von der Erhabenheit einzelner
-starker Runzeln und Falten, hat sie im Ganzen keine beträchtlichere Dicke als jene an den entgegen gesetzten Flächen.
-Die erhabenen, ziemlich scharfen Adern, Runzeln und Falten, bilden ein ziemlich enges, unregelmäßiges Netz, oder
-ein verworrenes Adergeflecht; aber, obgleich einige mehr verlängerte Adern, zumahl hie und da auf den Rücken der
-Erhabenheiten, welche einige Vertiefungen begränzen, ausgezeichnet und besonders scharf sind; so sind dieses doch keine
-Nähte, da sie immer nur von einer Seite her gebildet werden, und keine bestimmte Richtung haben. Dagegen ist die
-Rinde an allen Kanten dieser Fläche, sowohl gegen die beyden andern Seitenflächen, als auch gegen die untere End-
-oder Grundfläche hin, obgleich hier schwächer und undeutlicher, angehäuft, verdickt, und über die Kanten selbst geflos-
-sen, so daß sie an jenen Flächen eine Art von Saum bildet, der wie eine doppelte Lage von Rindenmasse, über eine
-Linie breit, sich auf dieselben und über die denselben eigenthümliche Rinde hinein zieht, genau dem Laufe der Kanten
-folgt, und ziemlich scharf abgeschnitten endigt. An einer der Seitenkanten ist diese Saumrinde, und zwar gerade an
-den zwei hervorragendsten Stellen, auf einen halben Zoll Länge, wieder gegen die Fläche zurück gedrückt, gerade als
-wenn der Stein mit diesen Puncten gegen einen harten Körper gestoßen wäre, der die (noch nicht ganz erstarrte ?)
-Rinde zurück gebogen hätte. Die Beschafsenheit der Rinde an der obern Endfläche stimmt ganz, so wie die übrige Be-
-schaffenheit der Oberfläche des Steines hier, mit der Beschaffenheit beyder an dieser convexen Fläche überein; jene da-
-gegen an der untern End- oder Grundfläche weicht hierin, obgleich nicht sehr auffallend, von jener an beyden Seiten
-des Steines ab. Sie ist nähmlich bey weitem nicht so glatt und fettig glänzend, wie die an den concaven Seitenflä-
-chen; aber auch nicht so rauh und runzlicht-aderig und schimmernd, wie die an der convexen, sondern überhaupt mehr
-von der gemein-aderigen, an den Steinen von Stannern am gewöhnlichsten vorkommenden Art (A. a. 2). Von
-der convexen Fläche her bildet die dortige, über die Kante auf diese Fläche nur etwas übergeflossene Rinde, auch nur
-einen undeutlichen, unvollkommenen Saum; von den beyden concaven Flächen her aber steht die Rinde gleichsam an
-den Rand der gemeinschaftlichen Kante frey an, und von jener dieser Fläche geschieden.
-Von unvollkommener Rinde findet sich an diesem ganzen großen Steine nur eine und selbst etwas zweideutige
-Spur, an einer kleinen Stelle auf der scharfen gemeinschaftlichen Kante der concaven Seitenflächen.
-Nur an diesen letztern Flächen, auf welche der Stein auch wirklich aufgefallen zu sein scheint, da er nahmentlich
-auf denselben liegend gefunden wurde, und zum Theil an den beyden Endflächen, findet sich Erde in die kleinen, seich-
-ten, ohne dieselbe kaum sichtbaren, Zwischenräume des schwachen Adergeflechtes, und in die vertieften Puncte und Po-
-ren der Rinde an- und eingedrückt; auf der convexen Fläche dagegen, die bey dem geringen Eindringen des, doch über
-3 Zoll dicken, Steines in das Erdreich hoch genug über dasselbe hinausragte, so daß nicht leicht ein Regenguß Erde
-darüber schlemmen konnte, zeigt sich trotz der Rauhigkeit der Oberfläche keine Spur davon. (An dem Steine Fig. 2
-finden sich erstere, sonst ganz gleich beschaffene Flächen, ganz rein von Erde, wovon sich hier überhaupt nur etwas an
-der Grundfläche zeigt.)
-Die Abbildung zeigt diesen besonders ausgezeichneten Stein, auf der convexen Seitenfläche liegend (wie Figur
-2. b. den ähnlichen), von den beyden glatten, concaven Seitenflächen und ihrer gemeinschaftlichen Kante (nur gestürzt,
-die Grundfläche nach oben, und etwas gewendet), um den merkwürdigen Rindensaum, von der convexen Fläche her,
-an einem Seitenrande (in das nöthige Licht gebracht) ersichtlich zu machen.
+An der vierten höhern Seitenfläche erscheint die Rinde sehr ungleichförmig, da sie sehr oft in der Bildung unterbrochen worden zu sein scheint; hin und wieder ist sie deutlich aderig und rauh; hie und da aber, zumahl an der einen Hälfte, wo auch an der Endkante von der Grundfläche her ein Saum gebildet wird, zeigt sich eine Anlage zur blattförmig gezeichneten. Sie ist übrigens sehr dicht, schwarz und fettig-glänzend, und an den erhabensten Stellen und Puncten, so auch an der Theilungskante, dick und compact. An den tiefen Stellen ist sie dünner, und fehlt an manchen Plätzen sogar ganz, wo die Grundmasse mit bräunlicher Farbe zum Vorschein kommt. In dieser zeigt sich der weiße Gemengtheil der Steinmasse in Gestalt von weißen Körnern, und es werden auf ihr nur einzelne oder zusammen gruppirte, und mehr oder weniger in einander geflossene schwarze Tröpfchen Rinden-Substanz dem freyen Auge sichtbar. (Niedrigster Grad der unvollkommenen Rinde. D. 1.)
 
+An der obern Endfläche endlich, das ist, in so weit eine solche, außer der neuen Bruchfläche, vorhanden ist, und von den beiden Seitenflächen gebildet wird, ist die Rinde ganz genau von derselben Beschaffenheit in jeder Beziehung wie an diesen letzteren, und zieht sich auch von denselben geradezu, ohne alle Unterbrechung der Adern, auf diese Fläche herüber; nur daß sie hier hin und wieder etwas abgerieben ist.
 
-### 0045
+Ganz anders zeigt sich nun die Rinde an jener später entstandenen Bruchfläche, die im Ganzen ein rauhes, mattes, erdgrau-bräunliches Ansehen hat. Hier ist in dem bräunlichen Grunde der weiße Gemengtheil nicht nur noch der Farbe nach erkennbar, und nur selten gelblich oder bräunlich, sondern selbst hie und da noch ganz erdig und fast kreideweiß, und die Rinden-Substanz zeigt sich nur, vorzüglich auf dem Rücken der scharfen, gleichsam kantigen Erhabenheiten, wie ausgeschwitzte Tropfen, die entweder einzeln da stehen, oder zu Perlenschnüren, Adern oder kleinen Flecken und Streifen zusammen geflossen sind. Gegen die Ränder hin ist die Rinden-Substanz häufiger, an den Rändern selbst aber ist sie von den angränzenden Flächen her angehäuft, und bildet einen deutlichen Abschnitt, so daß gegen die beiden aderigen Seitenflächen hin, wo die convex sich erhebende Endfläche in diese Bruchfläche sich allmählich verliert, durch die Rinde selbst erst ein scheinbarer Rand gebildet wird. (Mittlerer Grad der unvollkommenen Rinde. D. 2.).*
 
-30
-Sechste Tafel.
-Erste Figur.
-er von den großen Steinen von dem Steinfalle bey Stannern, 2 Pfund 12 Loth schwer (1). Vollkommen
-ganz, und durchaus überrindet.
-Es ward derselbe am 29. May im Verfolg des angeordneten Aufsuchens der gefallenen Steine, ganz nahe an
-dem Marktflecken Stannern selbst, ziemlich im Mittelpuncte des befallenen Flächenraumes (und zwar kaum 500
-westlich von der Kirche von Stannern, und bey 3000 vom äußersten Puncte in N., und bey 4000 vom äußer-
-sten Puncte in S., wo die entferntesten Steine gefallen waren) aufgefunden, und an die Untersuchungs-Commission
-abgegeben. (Situations-Plan Nr. 26.)
-Die Gestalt dieses Steines scheint beym ersten Anblicke höchst unregelmäßig zu sein, denn viele große, unförm-
-liche und zum Theil ziemlich tiefe Eindrücke, die offenbar vom Verlust an Masse durch spätere Zersprengung und gleich-
-zeitige Lostrennung mehrerer Stücke, vor der Rindebildung im Ganzen, herrühren, verunstalten die Flächen, ver-
-drücken die Kanten und unterbrechen deren Richtung, so daß der Stein, zumahl derselbe gegen das eine Ende hin et-
-was verschmälert, und hier von zwei Seiten her stark zusammen gedrückt ist, keilförmig erscheint. Inzwischen ist doch
-die verschoben dreiseitige oder die unvollkommen und sehr ungleichseitig vierseitige prismatische Grundgestalt unverkennbar,
-und an der einen Endfläche deutlich ausgesprochen, und die Aehnlichkeit mit den oben beschriebenen und Figur 2 und 5
-auf der vorigen Tafel abgebildeten Steinen nachweisbar. Man kann nähmlich vier Seiten- und zwei Endflächen, die
-zum Theil von ziemlich scharfen, wenn gleich sehr ausgeschweiften, und hie und da unterbrochenen Kanten begränzt
-werden, deutlich unterscheiden.
-Zwey der Seitenflächen, die sich gegen über stehen, sind sich fast ganz gleich; sie sind breiter als die übrigen, und
-länglich-viereckig. Gegen das eine, obere Ende sind sie nur wenig verschmälert, aber vertieft und abgeplattet, weil
-der Stein hier so zusammen gedrückt ist, daß er kaum einen Zoll dick erscheint; gegen das andere, untere Ende sind
-sie etwas mehr verschmälert, aber convexer, wie denn der Stein hier 3 Zoll dick ist. Sie sind sehr uneben, voll gro-
-ßer, zum Theil ziemlich tiefer, aber sanft sich verlaufender Eindrücke.
-Die dritte, zwischen jenen liegende Seitenfläche ist gegen das untere Ende fast so breit, wie die beyden vorherge-
-henden, nach oben aber sehr verschmälert, weil der Stein von den andern Seiten her so stark zusammen gedrückt ist.
-In der Mitte ist sie etwas vertieft, sonst flach und ebener als jene, da sie nur wenige, zwar große, aber sehr seichte
-Eindrücke von gewöhnlicher Art hat. Die vierte, der letztern gegen über liegende Seitenfläche endlich ist unvollkom-
-men, oder gleicht vielmehr einem breit gedrückten Rande. Sie ist sehr schmal, sehr uneben und convex, und bildet
-mit den beyden breiten Seitenflächen, zwischen welchen sie liegt, undeutliche, sehr verdrückte, unterbrochene und abge-
-rundete Kanten. Sie gleicht sehr der unvollkommenen vierten Fläche des Figur 2 a auf der vorigen Tafel dargestell-
-ten Steines, und noch mehr, ihrer ganzen Beschaffenheit nach, der schmalen Fläche an dem daselbst Figur 4 abgebilde-
-ten Steine.
-Die obere Endfläche ist undeutlich und unbestimmbar, oder vielmehr sie erscheint, weil der Stein von zwei Sei-
-ten her so sehr zusammen gedrückt ist, bloß als ein breiter, abgerundeter Rand. Die untere Endfläche dagegen bildet
-eine vollkommene, etwas verschobene und ungleichseitig vierseitige Fläche, deren ziemlich spitze Ecken den Seitenkan-
-ten, und die ziemlich scharfen Kanten den Seitenflächen entsprechen, und die mit der gleichnahmigen Fläche der oben
-beschriebenen Steine, Figur 2 und 5, große Aehnlichkeit zeigt. Sie ist ziemlich stark ausgehöhlt, und durch etwas
-kleinere, aber stärkere Vertiefungen als die übrigen Flächen, uneben gemacht.
-()
-nn-h enneteus d-, eAnleidsis nehiret nonid- hein- tllkait
-gegeben.
+*) Es zeigt dieser Stein demnach eine fünffache Verschiedenheit der Rinde an seinen verschiedenen Flächen, wovon drei, nähmlich die an den drei niedern Seitenflächen und der Basis der obern Endflache; dann die der vierten hohen Seitenflache und der neuen Bruchfläche; endlich die der Grundfläche --- wenn sie nicht etwa Modification dieser letztern ist --- Hauptverschiedenheiten zu betrachten kommen, von welchen der Grund hauptsächlich in der ungleichzeitigen Entstehung der Flächen, und folglich der ungleichen Dauer des Rindebildungs-Prozesses zu suchen sein dürfte: --- zwei aber, nahmlich die an der einen schiefern Seitenflache von jener der beiden andern, und die an der vierten hohen Seitenflache von jener der neuen Bruchfläche, wohl nur Modificationen vorstellen, die von der Richtung des Steines im Falle, und von der dadurch abgeanderten Einwirkung des Luftstromes, herrühren möchten.
 
+An der Grundfläche sowohl als an allen Seitenflächen, ist hie und da etwas, obgleich nur äußerst wenig, Erde noch anklebend.
 
-### 0046
+Die Abbildung stellt diesen lehrreichen Stein auf seiner Grundfläche liegend und so vor, daß nebst den drei niedern Seitenflächen die obere Endfläche mit der unvollkommen überrindeten Bruchfläche ganz zur Ansicht kommt*.
 
-31
-Nach dieser Beschaffenheit der Oberfläche läßt dieser Stein drei Verschiedenheiten nach seinen verschiedenen Flächen
-erkennen, wovon die eine Seitenfläche für sich die eine, die derselben entgegen gesetzte, schmale, in Verbindung mit
-der untern Endfläche, die andere, und die beyden breiten, sich gegen über stehenden Seitenflächen zusammen, die dritte
-zeigen.
-Die Rinde ist an diesem Steine ganz besonders ausgezeichnet und merkwürdig. Sie ist durchaus von derselben
-Hauptbeschaffenheit und von gleicher, und zwar von der rauhen, ganz vollkommen blattförmig gezeichneten Art (A. a. 3.
-Gilberts Annalen Bd. 31, S. 56), zeigt aber doch, nach den verschiedenen Flächen, die sie bedeckt, unverkennbar
-eine zwei-, zum Theil dreifache Modification.
-An der untern Endfläche, von wo aus die blattförmigen Zeichnungen ihre Richtung nach aufwärts über die Sei-
-tenflächen nehmen, erscheint sie noch sehr unvollkommen und undeutlich blattförmig, mehr verworren, runzlicht-aderig,
-von etwas graulich-schwarzer Farbe, und etwas mattem, fettigem Glanze; an der schmalen, convexen Seitenfläche ist
-sie von gleicher Farbe und ähnlichem Glanze, aber schon deutlich blattförmig gezeichnet, und die Blätter streichen gerade
-nach aufwärts gegen das obere Ende, und bald schlagen sie, bald die Blätter der angränzenden breiten Seitenflächen
-über die abgerundeten Kanten. An den beyden breiten Seitenflächen ist sie schon ausgezeichnet blattförmig, und die
-Richtung der Blätter geht von der Grundfläche nach aufwärts und etwas schief, größten Theils gegen die schmale
-Seitenfläche hin. Ihre Farbe zieht sich mehr ins Pechschwarze, und ihr Glanz ist etwas stärker und mehr fettig, und
-beydes um so mehr, je mehr sie sich dem obern Ende und der vierten Seitenfläche des Steines nähert. Auf dieser letz-
-teren endlich ist sie besonders ausgezeichnet und großblätterig, und die Blätter streichen, wie vom Mittel der untern End-
-fläche aus, schief aufwärts in entgegen gesetzter Richtung nach den angränzenden breitern Seitenflächen, und mehr oder
-weniger selbst über die gemeinschaftlichen scharfen Kanten, so daß sie hier theils am Rande frey anstehen, theils, auf
-jene Flächen ganz überschlagend, einen mehr oder weniger deutlichen und unterbrochenen Saum auf denselben bilden.
-Die Rinde ist übrigens auf dieser Fläche von einer sehr dunkel-, fast kohlschwarzen Farbe, mehr seidenartigem, schim-
-merndem Glanze, und von zarterer Beschaffenheit ( die Adern sind nähmlich viel feiner und schärfer), und nähert sich
-überhaupt sehr der strahlig- aderigen Art; auch scheint sie, wo nicht im Gänzen, dünner, doch gleichförmiger zu sein,
-wenigstens ist sie nicht so, wie an den übrigen Flächen, stellenweise, am Rande der Blätter - zumahl wo sich dieser
-über den Rücken von Erhabenheiten zieht --- verdickt, angehäuft, und gleichsam wie Oehlfarbe mit einem groben Pinsel
-hingeschmiert. An der obern Endfläche, die eigentlich, wie bereits erwähnt, bloß einen stumpfen, abgerundeten Nand
-bildet, ist die Rinde bis gegen das Mittel derselben hin dick, fast wulstig (hie und da wohl auf eine halbe Linie) an-
-gehäuft, besonders glatt, und von den breiten Flächen her, wie erstarrendes Pech, gleichsam angeflossen, und zwar
-scheint es, den abgestoßenen Stellen nach, die obere glatte Schichte zu sein, welche sich hier verdickt hat.
-Von unvollkommener Rinde findet sich nur an einer äußerst kleinen, kaum bemerkbaren Stelle, auf jeder der brei-
-ten Seitenflächen, eine Spur, wo offenbar die Rinde nicht zusammen geflossen war.
-Angedrückte Erde zeigt sich nur an der schmalen convexen Fläche, und gegen die untere Hälfte der an sie gränzen-
-den breiten Seitenflächen, welches auch die Stellen sind, auf welche der Stein, kraft seines natürlichen Schwer-
-punctes, gefallen sein sollte (1).
-Die Abbildung stellt diesen ausgezeichneten Stein, auf der schmalen Seitenfläche liegend, etwas schief gewendet
-vor, und zeigt die eine ebenere Seitenfläche fast in gerader, eine der breitern in schiefer, und die untere Endfläche in
-seurcirter Richtung (2).
-(1) Und dieser Richtung im Falle scheint die Modification der Rinde auf den verschiedenen Flächen sehr zu entsprechen.
-( In iseres unnalen Bd. 31 ist von diesen Steine Tafel ia. bereits eine vertleinerte und seizzie biidung, aber
-von einer der eeiten Seitenslächen, gegeben worden; ich habe daher absichtlich hier eine andere Fläche zur Darstellung ge-
-wählt.
-H 2
+## Vierte Figur.
 
-
-### 0047
-
-T.s
-Zweyte Figur.
-Ce der größeren von den bey Stannern gefallenen Steinen, 1 Pfund 12 Loth wiegend. Vollkommen ganz und
-um und um mit Rinde bekleidet.
-Dieser wurde am 28. May in Folge der gemachten Aufforderung, die gefallenen Steine aufzusuchen, von einem
-Landmanne ebenfalls in der Nähe des Marktes Stannern, eigentlich bey dem Dorfe Sorez, noch mehr im Mit-
-telpuncte des befallenen Flächenraumes, als der vorhin beschriebene (und zwar kaum 10000 O. S. O. von diesem, und
-etwa 600 in gleicher Richtung von der Kirche von Stannern, und beynahe in ganz gleichem Abstande von den bey-
-den äußersten Fallstellen in N. und S.), aufgefunden. (Situations-Plan Nr. 35.)
-Er stellt eine zwar etwas unvollkommene, aber nur wenig verschobene, ungleichseitig vierseitige Pyramide vor,
-deren abgeflächte Spitze stark aus dem Mittel gedrückt und auf eine Seite übergebogen ist.
-Die Grundfläche, welche ganz flach und beynahe vollkommen eben und platt, ohne alle Eindrücke und Vertiefun-
-gen ist (ein Fall, der dey einer Fläche von solcher Ausdehnung höchst selten an einem Steine vorkommt), bildet ein
-etwas verschobenes und ungleichseitiges Viereck, dessen ziemlich, und gewisser Maßen ausgezeichnet gerade laufende
-scharfe, fast schneidende Kanten, eben so vielen, ziemlich senkrecht aufgesetzten, nach oben verschmälerten und nach
-einer Seite hingebogenen Seitenflächen, und dessen Ecken eben so vielen, ziemlich scharfen, aber sehr verdrückten und
-ausgeschweiften Seitenkanten entsprechen. Eine Ecke der Grundfläche ist ziemlich spitzig, und die ihr diagonal gegen
-über stehende etwas abgestutzt; eine dritte Ecke ist stärker, und die ihr entgegen gesetzte vierte noch mehr abgestutzt,
-so daß durch letztere die Grundfläche beynahe fünfseitig gemacht wird. Diese Abstumpfungen gehen etwas schief von un-
-ten nach aufwärts und außen, und bilden Dreyecke, deren Basis auf der Grundfläche ruht, und deren spitzer oberer
-Winkel sich allmählich in die Seitenkante verliert. Solcher Gestalt wird die vierseitige Form der Pyramide durch sie
-nicht verändert, und die Grundfläche zeigt immer noch eine große Aehnlichkeit mit jener der meisten bereits beschriebe-
-nen Steine, so wie die Form im Ganzen, welche den Grund-Typus deutlich genug ausspricht, mit jener mehrerer
-derselben.
-Die obere Endfläche ist nur unvollkommen, und eigentlich die horizontale Fortsetzung einer schief aufsteigenden
-Seitenfläche.
-Zwey an einander gränzende Seitenflächen sind, zumahl die eine, breiter als die andern, und ziemlich stark ge-
-wölbt; die beyden andern, gegen deren gemeinschaftliche, sehr verdrückte und beynahe ganz verschwundene Kante (wel-
-cher auch die am stärksten abgestutzte Ecke der Grundfläche entspricht) die abgeflächte Endspitze hingedrückt und über-
-gebogen ist, sind bedeutend schmäler und etwas vertieft.
-Die an diesem Steine auf allen Flächen, außer der ganz ebenen Grundfläche, vorkommenden Eindrücke, sind von
-ganz eigener Art, wie ich sie an keinem Steine von Stannern (deren ich doch, mit Inbegriff der größern Bruch-
-stücke, bey 100 zu Gesicht bekam), noch an irgend einem Meteor-Steine, wieder fand, ausgenommen --- obgleich
-nicht ganz so deutlich ausgesprochen -- an der Grundfläche des nächst zu beschreibenden. Sie sind nähmlich verhält-
-nißmäßig sehr klein, aber tief und grubenartig, nicht so breit wie gewöhnliche Eindrücke und sanft verlaufend, sondern
-ziemlich scharf gerandet, gleichsam kantig, wie von grobkörnigen oder bröckligen Absonderungen entstanden, und geben
-der Oberfläche, da sie ziemlich häufig sind, ein klein-wellenförmiges Ansehen. Auf den beyden schmälern, concaven
-Seitenflächen zeigen sie schon eine Modification; sie sind nähmlich hier größer, aber seichter und mehr breit verlaufend,
-auch minder zahlreich. Die obere Endfläche stimmt hierin mit den andern Seitenflächen überein.
-Auch die Rinde ist an diesem Steine von eigenthümlicher, und der seltenen, strahlig- und netzartig-aderigen Art,
-aber durchaus, über den ganzen Stein, von einerley Hauptbeschaffenheit, die nur eine Haupt- und eine dieser letztern
-untergeordnete Modification erkennen läßt (1).
-Auf der ebenen Grundfläche ist sie nähmlich ausgezeichnet aus einander laufend strahlig; die ziemlich erhabenen,
-zarten und scharfen runzelartigen Adern laufen, wenig geschlängelt und fast gar nicht ramificirt, von einem körnig-rauhen
-Mittelpuncte --- der aber nicht ganz im Mittel der Fläche liegt -- strahlenförmig aus einander und gegen die Kanten
-e die
-.-.- -.
-(1) 1
-
-
-### 0048
-
-33
-hin. Die Zwischenräume zwischen diesen, eben nicht sehr gedrängten Strahlen, sind durch zartere Runzeln und Adern,
-die zum Theil Aeste derselben sind, und durch erhabene Puncte und Tröpfchen rauh. Uebrigens ist die Rinde hier bey-
-nahe kohlschwarz, und von einem ziemlich starken, schimmernden, seidenartigen Glanze. An allen übrigen Flächen da-
-gegen erscheint sie netzartig-aderig, das ist, die sehr erhabenen und scharfen, zwar strahlenförmig verlängerten, aber
-als Folge der Unebenheiten verschiedentlich und stark gebogenen und gekrümmten Adern bilden durch ihre Verbindung
-unter sich ein unregelmäßiges, weitschichtiges Netz, dessen Maschen oder Zwischenräume ebenfalls durch zartere, kürzere
-Adern und Runzeln rauh sind. An den Erhabenheiten, welche die Vertiefungen begränzen, so wie an den meisten
-Kanten, bildet die Rinde ziemlich hohe und scharfe, zart gefaltete Nähte, welche der Oberfläche ein ganz eigenthümli-
-ches und besonders rauhes Ansehen geben (1). Uebrigens hat die Rinde hier eine mehr ins Graue ziehende schwarze
-Farbe, und einen etwas schwächern, aber noch mehr schimmernden, seidenartigen Glanz.
-An den beyden concaven Flächen zeigt sich in so ferne eine kleine Modification von dieser letztern Beschaffenheit
-der Rinde, daß sie hier etwas dunkler schwarz ist (gleichsam im Uebergange von jener der Grundfläche in jene der an-
-dern Seitenflächen), schwächere Nähte, minder rauhe Zwischenräume, und, wenigstens gegen die Endspitze hin, eine
-schwache Anlage zu blattförmigen Zeichnungen zeigt.
-Uebergeflossen oder Säume bildend findet sich die Ninde an diesem Steine nirgendwo, und unvollkommen (und
-zwar im höchsten Grade, aber nur als Folge einer oberflächlichen Absprengung eines äußerst kleinen Stückes derselben)
-zeigt sie sich nur auf einer sehr kleinen Stelle auf einer der concaven Flächen.
-An der Grundfläche, an einer der convexen und an einer concaven Seitenfläche, gegen welche letztere die End-
-spitze gebogen ist, zeigt sich stellenweise etwas eingedrückte Erde.
-Dieser, durch die seltene Art von Ueberrindung besonders ausgezeichnete Stein, ist von seiner --- in dieser Bezie-
-yung merrwuroguen runonaue, zugteuy dessen Form am besten erkennen macht, dargestellt (2).
-Dritte Figur.
-Eznfalls einer der größern von den bey Stannern gefallenen Steinen, von 1 Pfund 7 Loth am Gewichte, wel-
-cher am 29. May, auch nahe bey Stannern selbst, zwischen den Dörfern Sorez und Falkenau, demnach
-ebenfalls im Mittelpuncte des befallenen Flächenraumes (und zwar nur etwa 500 mehr nördlich als der letztbeschrie-
-bene, und etwa 300 östlich von der Kirche von Stannern) aufgefunden und der Commission übergeben wurde.
-(Situations-Plan Nr. 43.)
-Es ist derselbe vollkommen ganz, so, wie er wirklich zur Erde gefallen, obgleich er, bey oberflächlicher Betrach-
-tung, das Ansehen hat, als wäre ein beträchtliches Stück davon nach der Hand gewaltsam abgeschlagen, und die künst-
-lich erzeugte Bruchfläche durch absichtliche oder zufällige Beschmutzung so verändert worden, daß sie nicht mehr voll-
-kommen einer ganz frischen der Masse gleichet. Diese Vermuthung findet noch überdieß in der offenbaren Verunstaltung
-der Form, deren ursprüngliche größere Regelmäßigkeit noch unverkennbar ist, durch Verlust an Masse, eine auffallende
-Bekräftigung. Es hat mit dieser Vermuthung in so weit auch die vollste Richtigkeit, daß jenes Bruchansehen und diese
-Formverunstaltung wirklich von einem spätern, nach der ursprünglichen Bildung (Individualisirung) dieses Steines und
-(1) Die Erhabenheit und Schärfe der Adern und Nähte der Rinde, insbesondere an diesem Steine, sprechen wohl sehr gegen die
-"erneinetiche Fiäsigkeit derselben, die selge noch im Momente des Auffallens der Steine Statt haben son; so wie anderer-
-seits die Form und die Schärfe der Kanten, nicht nur an diesem, sondern an den meisten Steinen, gegen die präsumirte
-eichhee, psrte-, teieige S, teini e chon p-ten- s- einnase in demseben Monmente z elten scheinen.
-gleich nicht in Abrede zu stellen ist, das ie ach eben so wenig mit dem höchst spröden, leicht brüchigen und fast zerreiblichen Zu-
-stande, in welchem, wenigstens die Steine von Stannern, selbst sehr kurze Zeit nach ihrem Falle befunden worden sind, und
-sich noch befinden, vereinbaren lassen, und mit welchem lesteren uberhaupt die voulkommene Integrität so vieler, mitunter an-
-sehnlicher und ziemnuich gewichtiger Steine in sendarsten dieerspeuche steht.
-() In Gilberts Annalen Bd. 31, Tafel 2 Figur 1. 2., ist bereits von diesem Steine eine skizzirte Darstellung von zwei An-
-sichten gegeben worden, und zwar die eine von den beyden gewölbten Seitenflächen mit ihrer gemeinschaftlichen Kante, die
-andere von der Grundsiache genommnen.
-
-
-### 0049
-
-"g otaler Inerustirung Statt gehabten Verluste an Masse herrühre; alen es zeigt sich bey näherer Betrach-
-34
-tung unwiderleglich, daß dieser Verlust noch vor dem wirklichen Niederfallen oder Auffallen des Steines, und während
-seines Zuges durch die Luft, durch natürliche Absprengung und Lostrennung eines Stückes entstanden sein müsse, in-
-dem die vermeintlich künstliche Bruchfläche wirklich mit wahrer, obgleich nicht vollkommen ausgebildeter Rinde bedeckt
-erscheint (1).
-So unregelmäßig die Form dieses Steines nun auch ist, so ist doch in seiner Begränzung durch wahre Flächen, und
-in deren Verbindung, Ausdehnung und Richtung, der Grund-Typus zur verschoben vierseitigen Pyramide, und damit
-die Aehnlichkeit mit den meisten der beschriebenen Steine deutlich genug noch ausgesprochen, und man müßte diesen
-Stein, trotz dessen starker Abplattung und anscheinender Zurundung, nach zwei End- und vier Seitenflächen beschrei-
-ben, zöge man auch nur die verschiedene Beschaffenheit seiner Oberfläche und die Modificationen der Rinde in Betrachtung.
-Die eine, bedeutend größere Endfläche, stellt ein verschobenes, aber ziemlich gleichseitiges Viereck vor, dessen
-Ecken abgestumpft, und mehr oder weniger zugerundet, und dessen ziemlich gerade laufende Ränder, die mit den mehr
-oder weniger schief aufsteigenden Seitenflächen ziemlich scharfe Kanten bilden, ausgeschweift sind. Sie ist in der Mitte
-etwas gewölbt, sonst ziemlich flach, und durch sehr viele kleine, aber ziemlich tiefe, grubenartige Eindrücke auf eben die
-Art und eben so sehr uneben, wie die Seitenflächen des zuvor beschriebenen Steines.
-Drey an einander gränzende Seitenflächen sind sehr niedrig. Die eine steigt beynahe senkrecht; die andere, unter
-einem ziemlich spitzen Winkel in eine deutliche, ziemlich scharfe Kante mit ihr zusammen stoßende, etwas schief; die
-dritte, unter einem sehr stumpfen Winkel, mit ersterer eine sehr undeutliche, ganz abgerundete Kante bildende, noch mehr
-schief von der Grundfläche in die Höhe. Alle haben nur wenige, seichte, aber große und breit verlaufende Eindrücke von
-gewöhnlicher Art.
-Die vierte Seitenfläche ist, zumahl in ihrem Mittel, wo sich der obere Rand in eine stumpfe Spitze verliert ---
-von der eine ziemlich erhabene scharfe Kante bis zum Rande der Basis läuft, und diese Fläche der Länge nach in zwei
-Hälften theilt, auch gewisser Maßen eine fünfte unvollkommene Ecke an der Grundfläche bildet -- beträchtlich höher als
-jene, und erhebt sich zwischen den beyden schiefern Seitenflächen, mit welchen sie in etwas undeutliche Kanten zusammen
-stößt, beynahe senkrecht von der Grundfläche Sie ist sehr uneben, ihre Unebenheiten rühren aber nicht von gewöhnli-
-chen Eindrücken her, sondern stellen natürliche Unebenheiten einer Bruchfläche der Steinmasse selbst vor.
-Die obere Endfläche endlich steigt von zwei Seitenflächen --- der einen etwas schiefen und der senkrechten, nie-
-dern -- mit welchen sie unter einem sehr stumpfen Winkel in etwas undeutliche Kanten zusammen stoßt, eine Strecke
-lang schief aufwärts, als wenn sie eine gewölbte Fläche bilden wollte, wird aber bald durch eine neue Fläche unterbro-
-chen, die wie von einer zufälligen, spätern und gewaltsamen Abschlagung der Endspitze entstanden zu sein scheint. Diese
-Fläche hat einen rundlichen Umriß, der aber doch einiger Maßen den Seitenflächen und Kanten entspricht, erhebt sich
-schief gegen den Rand und die Spitze der einen senkrechten höhern, und stößt mit der vierten schiefen Seitenfläche mit
-einem ziemlich scharfen kantenartigen Rand zusammen. Sie sieht eben so rauh und uneben aus, wie die eine hohe
-Seitenfläche, und folglich wie eine gewöhnliche Bruchfläche der Steinmasse, indeß ihre Basis gegen die zwei erstern
-Seitenflächen hin, hinsichtlich ihrer Beschaffenheit und Eindrücke, ganz diesen gleicht. So verschieden solcher Gestalt die
-Oberfläche dieses Steines nach den verschiedenen Flächen desselben erscheint; so verschieden und offenbar in Ueberein-
-stimmung mit jenen Verschiedenheiten zeigt sich auf eine höchst merkwürdige Weise die Beschaffenheit der Rinde an dem-
-selben.
-(1) Dieser Stein war es auch, an dem ich jene, für die in jeder Beziehung so schwierige Erklärung der Bildung der Rinde an
-den Meteor-Steinen, gewiß sehr wichtige Beobachtung, nähmlich über das Vorkommen derselben in verschiedenen Graden
-von Unvollkommenheit, oft selbst an ein und demselben Steine, zuerst machte, und zu machen nicht wohl verfehlen konnte,
-da sie an diesem Steine so ausgesprochen und in die Augen springend ist, und welche so wie die eben so vorkommenden Haupt-
-verschiedenheiten und Modifeationen derselben, wie mir deucht wohl unbestreitbar, eine stufenweise und aumähliche - ich will
-gerade nicht behaupten, langsame, aber doch wiederhohlte, fortgesetzte, und während der ganzen Periode des Falles der ein-
-zelnen Steine fortdauernde --- Bildung der Rinde voraussetzen. Es war mir dann ein Leichtes, dieses, gar nicht ungewöhnliche
-Vorkommen der Rinde, in an sich schwerer erkennbaren Graden, nicht nur an den meisten Meteor-Steinen von Stannern, son-
-dern auch an jenen von andern Ereignissen, deren Rinde, ihrer Natur nach, weit weniger geeignet ist, diesen Zustand erkennen
-zu lassen - daher er auch bis dahin (1808), und wie es scheint, noch bis jetzt von niemand beobachtet wurde - aufzufinden
-und nachzuweisen.
-
-
-### 0050
-
-35
-Auf der größern End- oder Grundfläche desselben ist sie nähmlich genau und in allen Beziehungen, so wie an den
-Seitenflächen des vorhin beschriebenen Steines, von der dichten, festen, rauhen, netzartig-aderigen Art (A. b. 2),
-mit sehr erhabenen Adern, häufigen, scharfen Nähten und sehr rauhen Zwischenräumen; nur zieht sich hier die Farbe
-mehr ins Pechschwarze, und der seidenartige Glanz nähert sich mehr dem fettigen; auch scheint die Rinde hier dünner
-zu sein, indem an einigen Stellen, zumahl gegen die eine rauhe Seitenfläche hin, die untere braune Schichte, und
-auf der ganzen Oberfläche der, wie es scheint, schwerer in Rinde umwandelbare, weiße Gemengtheil der Steinmasse (wie
-an dem Tab. 5 Fig. 4 vorgestellten Steine) in Gestalt einzelner und zusammen gehäufter, weißer, gelblicher und bräun-
-licher Körner, die kaum die Größe der Hanf- oder Hirsekörner haben, durchscheint.
-An den drei, an einander gränzenden, auch sonst gleichartigen Seitenflächen dagegen ist sie von der gewöhnlichsten
-einfach-aderigen Art (A. a. 2), von dunkelschwarzer Farbe und von dem gewöhnlichen fettigen Glanze. Doch zeigt
-sich auch hier eine kleine Modification, indem an einer derselben, und zwar an der am schiefsten aufsteigenden (auch
-unebneren) die Rinde glatter, glänzender, anscheinend dünner, und mit einer Anlage zur blätterigen Zeichnung sich zeigt;
-und was besonders merkwürdig ist, auf ihr, vom Rande der Grundfläche her, die Ninde übergeflossen erscheint und ei-
-nen Saum bildet, indeß sie an den beyden andern Flächen von jener Fläche her gleichförmig über die Nänder oder Kan-
-ten fortläuft. An der obern, mit der neuen Bruchfläche gebildeten Endkante steht die Rinde dieser Fläche angehäuft,
-gleichsam als ein aufrecht stehender, ziemlich scharfer Rand an.
-An der vierten höhern Seitenfläche erscheint die Rinde sehr ungleichförmig, da sie sehr oft in der Bildung unter-
-brochen worden zu sein scheint; hin und wieder ist sie deutlich aderig und rauh; hie und da aber, zumahl an der einen
-Hälfte, wo auch an der Endkante von der Grundfläche her ein Saum gebildet wird, zeigt sich eine Anlage zur blatt-
-förmig gezeichneten. Sie ist übrigens sehr dicht, schwarz und fettig-glänzend, und an den erhabensten Stellen und
-Puncten, so auch an der Theilungskante, dick und compact. An den tiefen Stellen ist sie dünner, und fehlt an manchen
-Plätzen sogar ganz, wo die Grundmasse mit bräunlicher Farbe zum Vorschein kommt. In dieser zeigt sich der weiße
-Gemengtheil der Steinmasse in Gestalt von weißen Körnern, und es werden auf ihr nur einzelne oder zusammen grup-
-pirte, und mehr oder weniger in einander geflossene schwarze Tröpfchen Rinden-Substanz dem freyen Auge sichtbar.
-(Niedrigster Grad der unvollkommenen Rinde. D. 1.)
-An der obern Endfläche endlich, das ist, in so weit eine solche, außer der neuen Bruchfläche, vorhanden ist, und
-von den beyden Seitenflächen gebildet wird, ist die Ninde ganz genau von derselben Beschaffenheit in jeder Beziehung
-wie an diesen letzteren, und zieht sich auch von denselben geradezu, ohne alle Unterbrechung der Adern, auf diese Flä-
-che herüber; nur daß sie hier hin und wieder etwas abgerieben ist.
-Ganz anders zeigt sich nun die Rinde an jener später entstandenen Bruchfläche, die im Ganzen ein rauhes, mat-
-tes, erdgrau-bräunliches Ansehen hat. Hier ist in dem bräunlichen Grunde der weiße Gemengtheil nicht nur noch der
-Farbe nach erkennbar, und nur selten gelblich oder bräunlich, sondern selbst hie und da noch ganz erdig und fast kreideweiß,
-und die Rinden-Substanz zeigt sich nur, vorzüglich auf dem Rücken der scharfen, gleichsam kantigen Erhabenheiten,
-wie ausgeschwitzte Tropfen, die entweder einzeln da stehen, oder zu Perlenschnüren, Adern oder kleinen Flecken und Strei-
-fen zusammen geflossen sind. Gegen die Ränder hin ist die Rinden-Substanz häufiger, an den Rändern selbst aber ist
-sie von den angränzenden Flächen her angehäuft, und bildet einen deutlichen Abschnitt, so daß gegen die beyden aderigen
-Seitenflächen hin, wo die convex sich erhebende Endfläche in diese Bruchfläche sich allmählich verliert, durch die Rinde
-selbst erst ein scheinbarer Rand gebildet wird. (Mittlerer Grad der unvollkommenen Rinde. D. 2.) (1).
-An der Grundfläche sowohl als an allen Seitenflächen, ist hie und da etwas, obgleich nur äußerst wenig, Erde
-noch anklebend.
-(1) Es zeigt dieser Stein demnach eine fünffache Verschiedenheit der Rinde an seinen verschiedenen Flächen, wovon drei, nähmlich
-die an den dre iidern Seitenslächen un der Baiie der obern cndsache; dann die der vierten hohen enentache und der nene
-Bruchsläche: endlich die der Grundsläche - wenn sie nicht era Modisieation dieser lestern auptverschiedenheiten
-zu berrachten kommen, von welchen der Geund hauptsächtich in der ungleichzeitiaen Entnehung der Fiächen, und olglich der
-ungleichen Dauer des Rindebildungs-Prozesses zu suchen sein dürfte: - zwei aber, nahmich die an der einen schiefern Sei-
-tennache von iener der beyden andern, un . an der vierten hohen Seitenstache von jener der neuen Bruchsläache, wohl nur
-modinearionen vorseuen, die von des Steaine in Faule, uns ben dee dadec abgeänderten Einoirkung de-
-Luftstromes, herrühren möchten.
-I 2
-
-
-### 0051
-
-36
-Die Abbildung stellt diesen lehrreichen Stein auf seiner Grundfläche liegend und so vor, daß nebst den drei nie-
-dern Seitenflächen die obere Endfläche mit der unvollkommen überrindeten Bruchfläche ganz zur Ansicht kommt (1).
-Vierte Figur.
 S mittelgroßer Stein von der Begebenheit bey Stannern, 1 Pfund 1 Loth wiegend, welcher am Tage des Er-
 eignisses selbst, und zwar ebenfalls ganz nahe bey Stannern, auch zwischen den Dörfern Sorez und Falkenau,
 demnach ebenfalls im Mittelpuncte des befallenen Flächenraumes (und zwar kaum mehr als 100 südlich vom vorhin
