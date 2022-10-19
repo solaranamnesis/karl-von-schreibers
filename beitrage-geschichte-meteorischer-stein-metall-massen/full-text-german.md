@@ -540,212 +540,57 @@ An der Grundfläche sowohl als an allen Seitenflächen, ist hie und da etwas, ob
 
 Die Abbildung stellt diesen lehrreichen Stein auf seiner Grundfläche liegend und so vor, daß nebst den drei niedern Seitenflächen die obere Endfläche mit der unvollkommen überrindeten Bruchfläche ganz zur Ansicht kommt*.
 
+*) In Gilberts Annalen Bd. 31, Taf. 3, Fig. 2, ist bereits auch von diesem Steine eine Darstellung versucht worden, die aber durch die Colorirung sehr verunstaltet worden ist.
+
 ## Vierte Figur.
 
-S mittelgroßer Stein von der Begebenheit bey Stannern, 1 Pfund 1 Loth wiegend, welcher am Tage des Er-
-eignisses selbst, und zwar ebenfalls ganz nahe bey Stannern, auch zwischen den Dörfern Sorez und Falkenau,
-demnach ebenfalls im Mittelpuncte des befallenen Flächenraumes (und zwar kaum mehr als 100 südlich vom vorhin
-beschriebenen entfernt) aufgefunden, und dem Pater Caplan in Stannern überbracht wurde, der ihn am 29. May
-der Commission überreichte. (Situations-Plan Nr. 40.)
-Auch dieser Stein ist vollkommen ganz, und so wie er zur Erde gekommen, erhalten worden, obgleich derselbe
-noch ungleich mehr als der vorhin beschriebene, auch selbst bey näherer, ja wohl ganz naher Betrachtung, das Anse-
-hen eines großen Bruchstückes, oder der Hälfte eines entzwei geschlagenen Steines hat, wofür er auch lange Zeit von mir
-und jedermann gehalten wurde, indem eine ganze Seite desselben eine beynahe ganz frische, nur etwas dunkler ge-
-färbte, gleichsam beschmutzte, Bruchfläche zeigt (2).
-Seine Gestalt ist unregelmäßig und schwer zu beschreiben; doch bilden alle bestimmbaren Flächen, und selbst die
-scheinbar frische Bruchfläche, ein verschobenes Viereck, und am ganzen Steine lassen sich noch acht Ecken, acht End-
-und vier Seitenkanten am vollkommensten nachweisen, so daß sich die Grund- oder ursprüngliche Absonderungsgestal-
-tung leicht denken, und die Aehnlichkeit in der Total-Form mit den meisten der zuvor beschriebenen Steine wieder nicht
-verkennen läßt.
-Die Oberfläche aller vollkommen überrindeten Flächen --- wovon wieder zwei der an einander gränzenden Seiten-
-flächen etwas gewölbt, die zwei andern etwas vertieft sind, die als Grundfläche zu betrachtende aber, welche der neue-
-ren Bruchfläche gegen über gestellt ist, flach und ziemlich eben erscheint --- hat wenige, aber große und breit verlau-
-fende Eindrücke gewöhnlicher Art; ein paar tiefere, schärfer begränzte, sind nicht sowohl bloßen Eindrücken, als viel-
-mehr einem Verluste der Masse durch --- mit der Individualisirung des Steines und der Bildung der Rinde im Gan-
-zen -- gleichzeitige Lostrennung einzelner kleiner Stücke zuzuschreiben.
-Die Rinde ist fast durchaus dieselbe, wenigstens von einer und derselben Hauptbeschassenheit an allen diesen Flä-
-chen, und ganz und in jeder Beziehung von der gewöhnlichsten, einfach und verworren-aderigen Art, wie z. B. an den
-Seitenflächen des vorhin beschriebenen Steines. Sie zeigt weder Säume noch Nähte, bildet aber hie und da ziemlich
-lange, scharfe und erhabene Adern, die eine ziemliche Strecke über eine Kante oder den Rücken von Erhabenheiten lau-
-fen, doch keine bestimmte Richtung haben.
-An einer ziemlich großen, stark hervorragenden, sehr unebenen Stelle, eigentlich an der ganzen einen gewölbten
-Seitenfläche, zeigt sich -- als Modification -- eine Anlage zur blattförmig gezeichneten Rinde; auch scheint da die
-matte untere Schichte bräunlich durch, und in ihrer Nähe zeigen sich an den Kanten der angränzenden Flächen Anhäu-
-fungen von Ninde, von diesen letztern her, die sich Säumen nähern. Uebrigens ist die Rinde von der gewöhnlichen
-dunkelschwarzen Farbe, und dem gemeinen, ziemlich starken, etwas fettigen Glanze.
-Das Merkwürdigste an diesem Steine ist nun jene dem unbewaffneten Auge ganz rindenlos erscheinende neuere Bruch-
-fläche, welche die größte und gewisser Maßen regelmäßigste am Steine ist.
-Es bildet dieselbe, obgleich sie sich auch über einen Theil einer angränzenden Fläche ausdehnt, ein ziemlich gleich-
-seitiges, nur etwas verschobenes Viereck, welches von drei Seiten her durch die anstehende Rinde der angränzenden
-(1) In Gilberts Annalen Bd. 31, Taf. 3, Fig. 2, ist bereits auch von diesem Steine eine Darstellung versucht worden, die
-aber durch die Colorirung sehr verunstaltet worden ist.
-icht der zuvor beschriebene
-en, un annch-, nancherles sttereen de- "essslsi äic. s s s asnesü.
-Stellen an vielen andern,
-mich aufmerksam gemacht harten.
+Ein mittelgroßer Stein von der Begebenheit bei Stannern, 1 Pfund 1 Loth wiegend, welcher am Tage des Ereignisses selbst, und zwar ebenfalls ganz nahe bei Stannern, auch zwischen den Dörfern Sorez und Falkenau, demnach ebenfalls im Mittelpuncte des befallenen Flächenraumes (und zwar kaum mehr als 100° südlich vom vorhin beschriebenen entfernt) aufgefunden, und dem Pater Caplan in Stannern überbracht wurde, der ihn am 29. Mai der Commission überreichte. (Situations-Plan Nr. 40.)
 
+Auch dieser Stein ist vollkommen ganz, und so wie er zur Erde gekommen, erhalten worden, obgleich derselbe noch ungleich mehr als der vorhin beschriebene, auch selbst bei näherer, ja wohl ganz naher Betrachtung, das Ansehen eines großen Bruchstückes, oder der Hälfte eines entzwei geschlagenen Steines hat, wofür er auch lange Zeit von mir und jedermann gehalten wurde, indem eine ganze Seite desselben eine beinahe ganz frische, nur etwas dunkler gefärbte, gleichsam beschmutzte, Bruchfläche zeigt.*
 
-### 0052
+*) Schwerlich würde ich selbst diese Fläche fur das, was sie wirklich ist, so bald erkannt haben, wenn nicht der zuvor beschriebene Stein, und ähnliche, mancherlei Abstufungen der unvollkommenen Rinde aufs klarste aussprechende Stellen an vielen andern, mich aufmerksam gemacht hätten.
 
-37
-Flächen, auf der vierten aber durch die scharfe Bruchkante der Steinmasse, ausgeschweift zwar nach den vorkommenden
-Unebenheiten der Flächen, aber scharf begränzt wird. Ihre ziemlich spitzen Ecken entsprechen den Seitenkanten, und die
-scharfen Ränder den Seitenflächen des Steines, und sie hat ganz das Ansehen, als wäre ein noch Mahl so großer
-Stein zerspalten worden, und habe durch einen besonders glücklichen, ziemiich ebenen und geraden Bruch diese Bruch-
-fläche gegeben. Sie ist sehr uneben, aber nicht von der Art, wie die überrindeten Flächen zu sein pflegen (durch meist
-rundlichte, allmählich sich erhebende, und sanft in die Erhabenheiten breit verlaufende, sondern durch sehr ungleichför-
-mige und winklige, von senkrechten, oder nur wenig schiefen und ziemlich scharfkantigen Erhabenheiten begränzte Vertie-
-fungen), vielmehr sieht sie gerade so aus wie eine frische künstliche Bruchfläche der Steinmasse, hat aber weder das
-frische Ansehen, noch ganz die Farbe einer solchen, sondern ist schmutzig oder bräunlich-grau, hie und da mit bläulich-
-weiß und aschgrau gemischt. Die Masse scheint dichter, fester und weniger rauh zu sein, und wenn man sie mit der
-einfachen Loupe betrachtet, so sieht man hier und da, zumahl an den erhabenen Stellen, an den Kanten der scharfen
-Erhabenheiten, und der durch Risse getrennten Partien, die angefangene Erzeugung der schwarzen Rinden-Substanz
-in Gestalt kleiner Tropfen, Perlenschnüre oder Einfassungen. An den Rändern stößt die Rinde der vollkommen in-
-erustirten Seitenflächen cht an, so daß, wie gesagt, durch dieselbe eigentlich der wahre Rand dieser Fläche selbst erst
-gebildet wird; und obgleich diese Rinde hier scharf abgeschnitten und nicht viel dicker ist, als an einer künstlichen Bruch-
-fläche, so zeigt sie doch keine Spuren eines Bruches; denn sie ist da eben so dicht und glänzend, wie an der Ober-
-fläche, und läßt die zweite untere, poröse, matte Schichte nicht erkennen. (Haupt-Criterium eines solchen, vor dem
-wirklichen Niederfalle und noch in der Luft entstandenen, natürlichen Bruches von einem künstlichen.) Offenbar ist sie
-an einigen Stellen, zumahl gegen jene Seitenfläche hin, wo die Rinde sehr compact, schwarz und aderig ist, von da-
-her wie übergeflossen oder übergedrückt, wenigstens weiter fortschreitend, so daß sie einen beträchtlichen Saum oder eine
-Einfassung auf dieser Fläche, über die Kante her, bildet. An einer scharfen Ecke erstreckt sich diese Einfassung bis auf
-14 Linie weit auf diese Fläche hinein; die Steinmasse ist in der angränzenden Gegend auch dunkler, und zeigt häufi-
-gere Tropfen.
-Eine, dieser ganz ähnliche, aber ungleich kleinere Fläche, findet sich an demselben Steine gegen den untern
-Rand der einen Seitenfläche (die von jener Fläche unter einem Winkel von beyläufig 100 abweicht), mitten in der
-Rinde, gerade als wenn hier ein Zoll großes (aber allem Ansehen nach nur sehr dünnes) Stück der Steinmasse, das
-etwa ursprünglich eine hervor stehende Ecke oder eine Erhabenheit gebildet haben mochte --- nachdem die Hauptfläche und
-überhaupt der ganze Stein bereits überrindet war -- und zwar ganz gleichzeitig mit jenem Stücke, das obige neuere
-Bruchfläche bildete, mit Gewalt abgesprengt worden wäre, und als wenn, hier wie dort, das Rinden bildende Agens
-(der Rindenbildungs-Prozeß) nicht mehr Intensität oder Zeit genug gehabt hätte, die erzeugte Bruchfläche vollkommen
-zu incrustiren (was wohl unwiderleglich, wirklich und wörtlich der Fall gewesen sein muß).
-Diese beyden Flächen zeigen die unvollkommene Rinde in ihrem höchsten Grade (D. 3), und zwar von bedeuten-
-der Ausdehnung, wie ich sie, aber meistens nur auf sehr kleinen Stellen vorkommend, auf den meisten der beschriebe-
-nen Steine nachgewiesen habe (1).
-Von eingedrückter Erde zeigt sich etwas an der, der neuern Bruchfläche entgegen gesetzten, als Grundfläche be-
-trachteten, und an der größern, gewölbten Seitenfläche.
-Die Abbildung zeigt diesen belehrenden Stein, auf einer Seitenfläche aufgestellt, von jener merkwürdigen, gro-
-ßen, neueren Bruchfläche, und zwar so, daß das Licht von jener Seite einfällt, wo sich die scharfe Kante und Ecke
-mit dem übergeschlagenen Rindensaume befindet (2).
-(1) Dieser kostbare Stein zeigt demnach eine zweifache Hauptverschiedenheit der Rinde, und zwar gerade die extremsten Puncte von
-ihrer Ausbildung beysammen, die wohl die entferntesten Zeit-Momente der Rindebildungs-Periode, und die heterogensten
-Wirkungsgrade des Rindebildungs-Prozesses zu bezeichnen scheinen - und eine, auch wohl zwei Modificationen; erstere
-nähmlich an der einen gewölbtern Seitenfläche, als Modification der dunklern, rauhern, an den übrigen vollkommen überrin-
-deten Flächen vorkommenden Rinde; und letztere etwa an einer der, an jene große Bruchfläche angränzenden, obiger gerade
-entgegen gestellten Seitenflächen, worüber sich zum Theil jener Bruch fortsetzte, die Masse aber schon weit dunkler, und die
-oine dereits in Fiecken und Streifen (d. sch zeigt.
-(2) Auch von diesem Steine, und von derselben Ansicht genommen, findet sich in Gilberts Annalen Bd. 31, Taf. 3, Fig. 1,
-eine frühere Abbildung, die aber durch die Colorirung gar sehr an Deutlichkeit verloren hat.
-K
+Seine Gestalt ist unregelmäßig und schwer zu beschreiben; doch bilden alle bestimmbaren Flächen, und selbst die scheinbar frische Bruchfläche, ein verschobenes Viereck, und am ganzen Steine lassen sich noch acht Ecken, acht End- und vier Seitenkanten am vollkommensten nachweisen, so daß sich die Grund- oder ursprüngliche Absonderungsgestaltung leicht denken, und die Aehnlichkeit in der Total-Form mit den meisten der zuvor beschriebenen Steine wieder nicht verkennen läßt.
 
+Die Oberfläche aller vollkommen überrindeten Flächen --- wovon wieder zwei der an einander gränzenden Seitenflächen etwas gewölbt, die zwei andern etwas vertieft sind, die als Grundfläche zu betrachtende aber, welche der neueren Bruchfläche gegen über gestellt ist, flach und ziemlich eben erscheint --- hat wenige, aber große und breit verlaufende Eindrücke gewöhnlicher Art; ein paar tiefere, schärfer begränzte, sind nicht sowohl bloßen Eindrücken, als vielmehr einem Verluste der Masse durch --- mit der Individualisirung des Steines und der Bildung der Rinde im Ganzen --- gleichzeitige Lostrennung einzelner kleiner Stücke zuzuschreiben.
 
-### 0053
+Die Rinde ist fast durchaus dieselbe, wenigstens von einer und derselben Hauptbeschassenheit an allen diesen Flächen, und ganz und in jeder Beziehung von der gewöhnlichsten, einfach und verworren-aderigen Art, wie z. B. an den Seitenflächen des vorhin beschriebenen Steines. Sie zeigt weder Säume noch Nähte, bildet aber hie und da ziemlich lange, scharfe und erhabene Adern, die eine ziemliche Strecke über eine Kante oder den Rücken von Erhabenheiten laufen, doch keine bestimmte Richtung haben.
 
-38
-Fünfte Figur.
-z, 4 Loth wiegendes Bruchstück eines großen, ursprünglich 4 Pfund schwer gewesenen Steines von Stannern,
-welcher am Tage der Begebenheit selbst, von dem Oberjäger von Iglau, gegen den Ort Teschen zu, am westlichen
-Theile des befallenen Flächenraumes von dessen Mittelpuncte, und zwar am entferntesten Puncte daselbst (etwa 1300
-westlich von der Kirche von Stannern, und bey 3400 süd-westlich vom äußersten Puncte in N., und bey 4500
-nord-westlich vom äußersten Puncte in S., wo die entferntesten Steine gefallen waren) gefunden, aber zerschlagen,
-und wovon nur die größere Hälfte, von 2 Pfund 12 Loth am Gewichte, am 29. May an die Untersuchungs-Commis-
-sion abgegeben wurde. (Situations-Plan Nr. 63.)
-Es zeigte diese größere Hälfte des Steines, außer den frischen Bruchflächen, größten Theils eine sehr rauhe, grob-
-runzlicht-aderige Rinde von dunkelschwarzer Farbe, und dem gewöhnlichen fettigen Glanze, die aber sehr häufig und be-
-deutend fleck- und stellenweise abgerieben oder abgesprungen, das ist, von der obersten schwarzen, glänzenden Schichte
-entblößt, und hier braun, matt und zart porös war (A. a. 1. Gilberts Annalen Bd. 31, S. 56 im ausgezeichnet-
-sten Grade). Da dieses Stück übrigens nichts Auszeichnendes hatte, so ward dasselbe zum Behufe der beabsichtigten
-Versuche, und um mehrere Mittheilungen machen zu können, in viele Bruchstücke zerschlagen, wovon nun dieses eines
-ist, welches für die Sammlung zurück behalten wurde.
-Es zeigt dasselbe, von der einen convexen Außenseite, die oben beschriebene Ninde im vollkommensten Grade, von
-der andern aber eine frische Bruchfläche von der gewöhnlichen Beschaffenheit der Masse dieser Steine; nur mit dem Be-
-sondern, daß auf derselben, zwar nur gegen den Rand des Bruches, und folglich gegen die äußere Rinde hin, aber
-doch hie und da beynahe einen halben Zoll tief von der Oberfläche einwärts, und zwar an Stellen, wo an dieser vor
-dem Zerbrechen des Steines gar keine Nisse oder Sprünge der Masse zu beobachten waren, ziemlich große Flecke von
-Rinden-Substanz mitten in oder dermahl vielmehr auf der ganz unveränderten Steinmasse zur Ansicht kommen.
-Diese Flecke liegen zum Theil dicht an der Oberfläche, und hängen mit der äußern Rinde wirklich zusammen,
-als wenn diese hineingeflossen wäre; einige liegen aber weiter ab, ganz isolirt, und sind von durchaus unveränderter
-Steinmasse, selbst von eingestreuten, metallisch glänzenden Kies-Bröckeln und Puncten umgeben. Einige derselben sind
-glänzend schwarz, wie die äußere Rinde, viele matt schwarz, wie die untere Schichte derselben zu sein pflegt, die mei-
-sten aber sind mehr oder weniger von der Steinmasse bedeckt, die beym Zerschlagen des Steines daran fest blieb.
-Die Größe und Gestalt dieser Flecke ist sehr verschieden, ihr Umriß ist aber nie rundlich, sondern vielmehr winke-
-lig und vieleckig; ihr Rand scharf begränzt und wie gebrochen, und ihre Dicke beträgt nicht mehr als die der Außen-
-rinde. Eingeknetet in die Masse sind diese Flecke keineswegs, denn sie erscheinen nur als dünne Lagen, und verursa-
-chen, dort wo sie sich finden, eine gleichsam schalige oder schiefrige Absonderung der Steinmasse (1).
-(1) Obgleich ich mich zur Zeit außer Stande fühle, von der Bildung der Rinde an den Meteor-Steinen überhaupt, und insbe-
-sondere von der Entstehung derselben im Innern der Steinmasse, sowohl in Gestalt solcher Flecken (in welcher sie jedoch am
-seltensten, und wohl nie weit von der Oberfläche entfernt vorkommen, und füglich noch der Einwirkung des Rinde bildenden
-Agens von Außen her zuzuschreiben sein dürfte), als in Gestalt eingestreuter Puncte (in welcher sie inzwischen nur bey sehr
-lockeren Meteor-Steinen, z. B. bey jenen von Chassigny (Langres) deutlich, weniger bey den Steinen von Stannern, und
-bey beyden selbst höchst problematisch (ob nicht Chrom-Eisen oder Eisen-Oxyd?), bey Meteor-Steinen von festem Cohäsions-
-Zustande und dichtem Gefüge meinen Untersuchungen nach, selbst nicht als Spur erscheint), als vollends in Form von Adern,
-Gängen, Schichten und Lagen (deren Substanz man für einerley mit jener der Rinde zu halten geneigt scheint, und von wel-
-cher bey Erklärung der nächsten Tafel die Rede sein wird), eine befriedigende Erklärung zu geben; so muß ich doch freymüthig
-gestehen, daß ich der Ansicht meines Freundes Chladni, von der Bildung der Rinde überhaupt, und dieser im Innern (in
-so ferne ihr Vorkommen darin wirklich Statt findet) insbesondere, durchaus nicht beystimmen kann. Die Gegenwart des Schwe-
-fels (dessen Anwesenheit in der Steinmasse, wenigstens in gebundenem Zustande, übrigens nicht in Abrede gestellt werden
-kann), den Hr. Chladni als das Haupt-Material betrachtet, aus welchem die Rinde gebildet wurde, gibt sich in derselben
-auf keine Weise zu erkennen; weder durch die chemische Analyse, noch durch eine leichte Schmelzbarkeit (die im Gegentheile
-sehr schwer ist, da sie wenigstens 6 bis 9 Wedgwd. Hitze fordert, und die wohl, wenn man den Rindebildungs-Prozeß durch
-Hitze geschehen lassen wollte, sehr gegen die, obgleich nur durch ein paar Fälle, in Anregung gebrachte Abfärbung der Steine,
-streiten möchte), weder durch den Geruch bey Erhitzung, noch durch den geringsten Grad von Wirkung auf das Elektrometer,
-wenn gerieben oder erwärmt; so wie andererseits die Mannigfaltigkeit der Rinde bey verschiedenen Meteor-Steinen, und die
-offenbare Abhängigkeit derselben von den Gemeng- und Bestandtheilen der Steinmasse, gegen ein solches allgemeines Haupt-
-Material streitet. Die Gleichförmigkeit der Rinde, zumahl hinsichtlich der Dicke, auf sonst gleichartigen, wenn gleich sich
+An einer ziemlich großen, stark hervorragenden, sehr unebenen Stelle, eigentlich an der ganzen einen gewölbten Seitenfläche, zeigt sich --- als Modification --- eine Anlage zur blattförmig gezeichneten Rinde; auch scheint da die matte untere Schichte bräunlich durch, und in ihrer Nähe zeigen sich an den Kanten der angränzenden Flächen Anhäufungen von Rinde, von diesen letztern her, die sich Säumen nähern. Uebrigens ist die Rinde von der gewöhnlichen dunkelschwarzen Farbe, und dem gemeinen, ziemlich starken, etwas fettigen Glanze.
 
+Das Merkwürdigste an diesem Steine ist nun jene dem unbewaffneten Auge ganz rindenlos erscheinende neuere Bruchfläche, welche die größte und gewisser Maßen regelmäßigste am Steine ist.
 
-### 0054
+Es bildet dieselbe, obgleich sie sich auch über einen Theil einer angränzenden Fläche ausdehnt, ein ziemlich gleichseitiges, nur etwas verschobenes Viereck, welches von drei Seiten her durch die anstehende Rinde der angränzenden Flächen, auf der vierten aber durch die scharfe Bruchkante der Steinmasse, ausgeschweift zwar nach den vorkommenden Unebenheiten der Flächen, aber scharf begränzt wird. Ihre ziemlich spitzen Ecken entsprechen den Seitenkanten, und die scharfen Ränder den Seitenflächen des Steines, und sie hat ganz das Ansehen, als wäre ein noch Mahl so großer Stein zerspalten worden, und habe durch einen besonders glücklichen, ziemiich ebenen und geraden Bruch diese Bruchfläche gegeben. Sie ist sehr uneben, aber nicht von der Art, wie die überrindeten Flächen zu sein pflegen (durch meist rundlichte, allmählich sich erhebende, und sanft in die Erhabenheiten breit verlaufende, sondern durch sehr ungleichförmige und winklige, von senkrechten, oder nur wenig schiefen und ziemlich scharfkantigen Erhabenheiten begränzte Vertiefungen), vielmehr sieht sie gerade so aus wie eine frische künstliche Bruchfläche der Steinmasse, hat aber weder das frische Ansehen, noch ganz die Farbe einer solchen, sondern ist schmutzig oder bräunlich-grau, hie und da mit bläulichweiß und aschgrau gemischt. Die Masse scheint dichter, fester und weniger rauh zu sein, und wenn man sie mit der einfachen Loupe betrachtet, so sieht man hier und da, zumahl an den erhabenen Stellen, an den Kanten der scharfen Erhabenheiten, und der durch Risse getrennten Partien, die angefangene Erzeugung der schwarzen Rinden-Substanz in Gestalt kleiner Tropfen, Perlenschnüre oder Einfassungen. An den Rändern stößt die Rinde der vollkommen incrustirten Seitenflächen cht an, so daß, wie gesagt, durch dieselbe eigentlich der wahre Rand dieser Fläche selbst erst gebildet wird; und obgleich diese Rinde hier scharf abgeschnitten und nicht viel dicker ist, als an einer künstlichen Bruchfläche, so zeigt sie doch keine Spuren eines Bruches; denn sie ist da eben so dicht und glänzend, wie an der Oberfläche, und läßt die zweite untere, poröse, matte Schichte nicht erkennen. (Haupt-Criterium eines solchen, vor dem wirklichen Niederfalle und noch in der Luft entstandenen, natürlichen Bruches von einem künstlichen.) Offenbar ist sie an einigen Stellen, zumahl gegen jene Seitenfläche hin, wo die Rinde sehr compact, schwarz und aderig ist, von daher wie übergeflossen oder übergedrückt, wenigstens weiter fortschreitend, so daß sie einen beträchtlichen Saum oder eine Einfassung auf dieser Fläche, über die Kante her, bildet. An einer scharfen Ecke erstreckt sich diese Einfassung bis auf 1 1/2 Linie weit auf diese Fläche hinein; die Steinmasse ist in der angränzenden Gegend auch dunkler, und zeigt häufigere Tropfen.
 
-39
-noch so sehr entgegen gesetzten Flächen, an ein und demselben Steine, und die Uebereinstimmung hierin bey allen Meteor-
-Steinen im Augemeinen; die unwiderleglich von der Beschaffenheit der Oberfläche abhängigen Hauptverschiedenheiten derselben
-an ein und demselben Steine; die offenbare, allmähliche und stufenweise Ausbildung derselben; und der unverkennbare Ueber-
-gang ihrer Massentheilchen in jene der Steinmasse, und umgekehrt, wo beyde sich im Contacte befinden (wie sich aus der mi
-eroseopischen Betrachtung ergibt) u. s. w., lassen sich wohl schlechterdings nicht durch eine Uebergießung oder Bespritzung von
-gn he ,cgen. en eniich iane sich das, nach meinen Beodachtungen nur höchs seten dmein- ueberzeugung nach sisher
-nur an diesem einzigen beschriebenen Bruchstücke) und nie tief im Innern eines Steines sich zeigende wirkliche Vorkommen von
-n. i ceaaie on geeten, deren Forn, Beschafenhei uns usammenhang mie de ennnane nach bigen, so e
-die nn des mehr als probtemotischen Vorkommens derselben in Adern, Gangen und Lagen (wovon seines Ortes wohl niche
-mit der Idee einer Einknetung und Zusammenklebung vereinigen, als welche einerseits einen ziemlich tumultuarischen (Gäh-
-rungs-) Prozeß bey iedem einzelnen Steine nach dessen Individualisirung, Bildung und bereits schon ein Mahl vollendeter
-Incrustirung, andererseits ein häusges Zusammentreffen, Zusammenpassen und Wiedervereinen der bereits mit Gewalt losge-
-trennten und weit weg und aus einander geschleuderten Steine und Bruchstücke voraussetzen, mit welchen die Regelnaßigkeit
-und Uebereinstimmung so vieler Steine in der Form (der Grund-Typus), die Beschaffenheit der Flächen und Kanen(welche
-dende unann- schiechterdings keinen solchen Gas on Weichhein nach einmahl gescheheneh ner snernn öente, etae, e-
-entfernte Niederfall der einzelnen Steine von einander (der meistens einen Zwischenraum von 2 bis 300, oft 1000 und mehr
-gafter beträgt) u. s. w., im offenbarsten Widerspruch zu stehen scheinen.
-Eher könne ich der genm, rof. Scherer (welcher fraher gleichzeitig und zum Tbeit
-gemeinschaftlich mit mir über diesen Gegenstand arbeitete, und seine Bemerkungen über die Beschaffenheit und wahrscheinliche
-Entstehung der Rinde an den Steinen von Stannern, in einem gleichzeitigen Aufsatze in Gilberts Annalen Bd. 31 be-
-innen mn, in i, iaesschneue, und war imn onente-
-nesistseilics, sesssissics ii it äesiss. s ti esen nsen inens i.i nsi, nit
-verschiedener Intensität der wirtenden Potenz, demnach mie einigen Modißeationen, gebildet wurde, und iene Potenz in der
-rneelcneti silchen en msche, nn sa aenäcs esege enenhelten deiseben, d- ielen un nsianenden anchesr
-schiedenheiten und häufigen stufenweisen Modificationen und Uebergänge der Rinde (deren, wie gezeigt worden ist, immer an
-einem und demselben, oft sehr kleinen Steine, mehrere, 2 bis 5, deutlich unterschieden, aber nicht wohl begreiflich von einer
-so vielfachen Verschiedenheit der Intensität, der sie auf ein Mahl erzeugenden Potenz, abgeleitet werden können), befriedi-
-gend erklären ließen; wenn ihr nicht ferner einige Erscheinungen bey dem Ereignise selbst, z. B. das bey diesem, so wie uber-
-iße des arn sninen, "s bs ssi- ien, san inen nnn n.
-, enser nniche Gersse nach den Haupt- Detonationen (welche- wohl nut von einem wiederhohlten,
-feeesisen r einneinen Stein- ihrend ihres Fales hergeleiter wvnden kanin, d s aenlis
-schiefe und sanfte Auffalen mancher einzelner, ziemlich großer Steine, so daß sie kaum mertuich die Erde sireiften ns iniden.
-Strecke fortrouten (elches eine horizontale Wurfbewegung voraussetzt, die sich mit der Höhe, auf welcher die Hauptzerpla-
-tzung vorging, der gegenwirkenden Schwerkraft wegen, schlechterdings nicht verträgt, daher eine spätere Zerplatzung eines
-einzenen Steines in Faue, auf minderer Höhe, und die Lossprengung eines Stckes davon in solcher icheung vorausgesetze
-werden muß, u. . in Wege stunden; und wenn es endlich nicht ganz an allen Wahrnehmungen fehlte (worauf insbe-
-sondere und mit Vorbedacht eh er untersuchung der Begebenheit zu Stannern aue Racksicht genommnen wurde,, die das
-Spie- diesen einisen Eeeggnsen beh-en tannten. Dgegen bin ich mi-
-diesen beyden scharfsinnigen Physikern vollkommen einverstanden, wenn sie behaupten, die Rinde der Meteor-Steine sey das
-äe Fäi säe öss enienenr - esnneen nat ichen ns taneluihen Schnen oore- denn
-nerdirse isen. n se meiße sstsher ee alun een seonte in lg en
-richtigen Begriff von ihrer Bildung machen können.
-K.
+Eine, dieser ganz ähnliche, aber ungleich kleinere Fläche, findet sich an demselben Steine gegen den untern Rand der einen Seitenfläche (die von jener Fläche unter einem Winkel von beiläufig 100° abweicht), mitten in der Rinde, gerade als wenn hier ein Zoll großes (aber allem Ansehen nach nur sehr dünnes) Stück der Steinmasse, das etwa ursprünglich eine hervor stehende Ecke oder eine Erhabenheit gebildet haben mochte --- nachdem die Hauptfläche und überhaupt der ganze Stein bereits überrindet war --- und zwar ganz gleichzeitig mit jenem Stücke, das obige neuere Bruchfläche bildete, mit Gewalt abgesprengt worden wäre, und als wenn, hier wie dort, das Rinden bildende Agens (der Rindenbildungs-Prozeß) nicht mehr Intensität oder Zeit genug gehabt hätte, die erzeugte Bruchfläche vollkommen zu incrustiren (was wohl unwiderleglich, wirklich und wörtlich der Fall gewesen sein muß).
 
+Diese beiden Flächen zeigen die unvollkommene Rinde in ihrem höchsten Grade (D. 3), und zwar von bedeutender Ausdehnung, wie ich sie, aber meistens nur auf sehr kleinen Stellen vorkommend, auf den meisten der beschriebenen Steine nachgewiesen habe.*
 
-### 0055
+*) Dieser kostbare Stein zeigt demnach eine zweifache Hauptverschiedenheit der Rinde, und zwar gerade die extremsten Puncte von ihrer Ausbildung beisammen, die wohl die entferntesten Zeit-Momente der Rindebildungs-Periode, und die heterogensten Wirkungsgrade des Rindebildungs-Prozesses zu bezeichnen scheinen --- und eine, auch wohl zwei Modificationen; erstere nähmlich an der einen gewölbtern Seitenfläche, als Modification der dunklern, rauhern, an den übrigen vollkommen überrindeten Flächen vorkommenden Rinde; und letztere etwa an einer der, an jene große Bruchfläche angränzenden, obiger gerade entgegen gestellten Seitenflächen, worüber sich zum Theil jener Bruch fortsetzte, die Masse aber schon weit dunkler, und die Rinde bereits in Flecken und Streifen (D. 1) sich zeigt.
 
-40
-Siebente u11.
+Von eingedrückter Erde zeigt sich etwas an der, der neuern Bruchfläche entgegen gesetzten, als Grundfläche betrachteten, und an der größern, gewölbten Seitenfläche.
+
+Die Abbildung zeigt diesen belehrenden Stein, auf einer Seitenfläche aufgestellt, von jener merkwürdigen, großen, neueren Bruchfläche, und zwar so, daß das Licht von jener Seite einfällt, wo sich die scharfe Kante und Ecke mit dem übergeschlagenen Rindensaume befindet.*
+
+*) Auch von diesem Steine, und von derselben Ansicht genommen, findet sich in Gilberts Annalen Bd. 31, Taf. 3, Fig. 1, eine frühere Abbildung, die aber durch die Colorirung gar sehr an Deutlichkeit verloren hat.
+
+## Fünfte Figur.
+
+Ein 3 1/2 Loth wiegendes Bruchstück eines großen, ursprünglich 4 Pfund schwer gewesenen Steines von Stannern, welcher am Tage der Begebenheit selbst, von dem Oberjäger von Iglau, gegen den Ort Teschen zu, am westlichen Theile des befallenen Flächenraumes von dessen Mittelpuncte, und zwar am entferntesten Puncte daselbst (etwa 1300° westlich von der Kirche von Stannern, und bei 3400° süd-westlich vom äußersten Puncte in N., und bei 4500° nord-westlich vom äußersten Puncte in S., wo die entferntesten Steine gefallen waren) gefunden, aber zerschlagen, und wovon nur die größere Hälfte, von 2 Pfund 12 Loth am Gewichte, am 29. Mai an die Untersuchungs-Commission abgegeben wurde. (Situations-Plan Nr. 63.)
+
+Es zeigte diese größere Hälfte des Steines, außer den frischen Bruchflächen, größten Theils eine sehr rauhe, grobrunzlicht-aderige Rinde von dunkelschwarzer Farbe, und dem gewöhnlichen fettigen Glanze, die aber sehr häufig und bedeutend fleck- und stellenweise abgerieben oder abgesprungen, das ist, von der obersten schwarzen, glänzenden Schichte entblößt, und hier braun, matt und zart porös war (A. a. 1. Gilberts Annalen Bd. 31, S. 56 im ausgezeichnetsten Grade). Da dieses Stück übrigens nichts Auszeichnendes hatte, so ward dasselbe zum Behufe der beabsichtigten Versuche, und um mehrere Mittheilungen machen zu können, in viele Bruchstücke zerschlagen, wovon nun dieses eines ist, welches für die Sammlung zurück behalten wurde.
+
+Es zeigt dasselbe, von der einen convexen Außenseite, die oben beschriebene Rinde im vollkommensten Grade, von der andern aber eine frische Bruchfläche von der gewöhnlichen Beschaffenheit der Masse dieser Steine; nur mit dem Besondern, daß auf derselben, zwar nur gegen den Rand des Bruches, und folglich gegen die äußere Rinde hin, aber doch hie und da beinahe einen halben Zoll tief von der Oberfläche einwärts, und zwar an Stellen, wo an dieser vor dem Zerbrechen des Steines gar keine Risse oder Sprünge der Masse zu beobachten waren, ziemlich große Flecke von Rinden-Substanz mitten in oder dermahl vielmehr auf der ganz unveränderten Steinmasse zur Ansicht kommen.
+
+Diese Flecke liegen zum Theil dicht an der Oberfläche, und hängen mit der äußern Rinde wirklich zusammen, als wenn diese hineingeflossen wäre; einige liegen aber weiter ab, ganz isolirt, und sind von durchaus unveränderter Steinmasse, selbst von eingestreuten, metallisch glänzenden Kies-Bröckeln und Puncten umgeben. Einige derselben sind glänzend schwarz, wie die äußere Rinde, viele matt schwarz, wie die untere Schichte derselben zu sein pflegt, die meisten aber sind mehr oder weniger von der Steinmasse bedeckt, die beim Zerschlagen des Steines daran fest blieb.
+
+Die Größe und Gestalt dieser Flecke ist sehr verschieden, ihr Umriß ist aber nie rundlich, sondern vielmehr winkelig und vieleckig; ihr Rand scharf begränzt und wie gebrochen, und ihre Dicke beträgt nicht mehr als die der Außenrinde. Eingeknetet in die Masse sind diese Flecke keineswegs, denn sie erscheinen nur als dünne Lagen, und verursachen, dort wo sie sich finden, eine gleichsam schalige oder schiefrige Absonderung der Steinmasse.*
+
+*) Obgleich ich mich zur Zeit außer Stande fühle, von der Bildung der Rinde an den Meteor-Steinen überhaupt, und insbesondere von der Entstehung derselben im Innern der Steinmasse, sowohl in Gestalt solcher Flecken (in welcher sie jedoch am seltensten, und wohl nie weit von der Oberfläche entfernt vorkommen, und füglich noch der Einwirkung des Rinde bildenden Agens von Außen her zuzuschreiben sein dürfte), als in Gestalt eingestreuter Puncte (in welcher sie inzwischen nur bei sehr lockeren Meteor-Steinen, z. B. bei jenen von Chassigny (Langres) deutlich, weniger bei den Steinen von Stannern, und bei beiden selbst höchst problematisch (ob nicht Chrom-Eisen oder Eisen-Oxyd?), bei Meteor-Steinen von festem Cohäsions-Zustande und dichtem Gefüge meinen Untersuchungen nach, selbst nicht als Spur erscheint), als vollends in Form von Adern, Gängen, Schichten und Lagen (deren Substanz man für einerlei mit jener der Rinde zu halten geneigt scheint, und von welcher bei Erklärung der nächsten Tafel die Rede sein wird), eine befriedigende Erklärung zu geben; so muß ich doch freimüthig gestehen, daß ich der Ansicht meines Freundes Chladni, von der Bildung der Rinde überhaupt, und dieser im Innern (in so ferne ihr Vorkommen darin wirklich Statt findet) insbesondere, durchaus nicht beistimmen kann. Die Gegenwart des Schwefels (dessen Anwesenheit in der Steinmasse, wenigstens in gebundenem Zustande, übrigens nicht in Abrede gestellt werden kann), den Hr. Chladni als das Haupt-Material betrachtet, aus welchem die Rinde gebildet wurde, gibt sich in derselben auf keine Weise zu erkennen; weder durch die chemische Analyse, noch durch eine leichte Schmelzbarkeit (die im Gegentheile sehr schwer ist, da sie wenigstens 6 bis 9° Wedgwd. Hitze fordert, und die wohl, wenn man den Rindebildungs-Prozeß durch Hitze geschehen lassen wollte, sehr gegen die, obgleich nur durch ein paar Fälle, in Anregung gebrachte Abfärbung der Steine, streiten möchte), weder durch den Geruch bei Erhitzung, noch durch den geringsten Grad von Wirkung auf das Elektrometer, wenn gerieben oder erwärmt; so wie andererseits die Mannigfaltigkeit der Rinde bei verschiedenen Meteor-Steinen, und die offenbare Abhängigkeit derselben von den Gemeng- und Bestandtheilen der Steinmasse, gegen ein solches allgemeines Haupt-Material streitet. Die Gleichförmigkeit der Rinde, zumahl hinsichtlich der Dicke, auf sonst gleichartigen, wenn gleich sich noch so sehr entgegen gesetzten Flächen, an ein und demselben Steine, und die Uebereinstimmung hierin bei allen Meteor-Steinen im Augemeinen; die unwiderleglich von der Beschaffenheit der Oberfläche abhängigen Hauptverschiedenheiten derselben an ein und demselben Steine; die offenbare, allmähliche und stufenweise Ausbildung derselben; und der unverkennbare Uebergang ihrer Massentheilchen in jene der Steinmasse, und umgekehrt, wo beide sich im Contacte befinden (wie sich aus der mikroscopischen Betrachtung ergibt) u. s. w., lassen sich wohl schlechterdings nicht durch eine Uebergießung oder Bespritzung von Aussen her erklaren. Endlich lasst sich das, nach meinen Beodachtungen nur höchst selten (meiner Ueberzeugung nach bisher nur an diesem einzigen beschriebenen Bruchstücke) und nie tief im Innern eines Steines sich zeigende wirkliche Vorkommen von Rinde in Gestalt von Flecken, deren Forin, Beschaffenheit und Zusammenhang mit der Steinmasse (nach obigem), so wie die Art des mehr als problematischen Vorkommens derselben in Adern, Gangen und Lagen (wovon seines Ortes) wohl nicht mit der Idee einer Einknetung und Zusammenklebung vereinigen, als welche einerseits einen ziemlich tumultuarischen (Gährungs-) Prozeß bei jedem einzelnen Steine nach dessen Individualisirung, Bildung und bereits schon ein Mahl vollendeter Incrustirung, andererseits ein häufiges Zusammentreffen, Zusammenpassen und Wiedervereinen der bereits mit Gewalt losgetrennten und weit weg und aus einander geschleuderten Steine und Bruchstücke voraussetzen, mit welchen die Regelmaßigkeit und Uebereinstimmung so vieler Steine in der Form (der Grund-Typus), die Beschaffenheit der Flächen und Kanten (welche beide Umstande schlechterdings keinen solchen Grad von Weichheit nach einmahl geschehener Incrustirung denken lassen), der entfernte Niederfall der einzelnen Steine von einander (der meistens einen Zwischenraum von 2 bis 300, oft 1000 und mehr Klafter beträgt) u. s. w., im offenbarsten Widerspruch zu stehen scheinen.  
+Eher könne ich der Meinung meines Freundes, des Hrn. Prof. v. Scherer (welcher fruher gleichzeitig und zum Theil gemeinschaftlich mit mir über diesen Gegenstand arbeitete, und seine Bemerkungen über die Beschaffenheit und wahrscheinliche Entstehung der Rinde an den Steinen von Stannern, in einem gleichzeitigen Aufsatze in Gilberts Annalen Bd. 31 bekannt machte), beipflichten, nach welcher die Rinde in einem Nu, und gleichsam mit Blitzesschnelle, und zwar im Momente der Vereinzelung, Individualisirung der Steine, uber alle zugleich, und uber deren ganzen Umfang auf ein Mahl, nur mit verschiedener Intensität der wirkenden Potenz, demnach mie einigen Modificationen, gebildet wurde, und jene Potenz in der Elektricitat zu suchen sein mochte; wenn sich darnach einige Eigenheiten derselben, z. B. die vielen und auffallenden Hauptverschiedenheiten und häufigen stufenweisen Modificationen und Uebergänge der Rinde (deren, wie gezeigt worden ist, immer an einem und demselben, oft sehr kleinen Steine, mehrere, 2 bis 5, deutlich unterschieden, aber nicht wohl begreiflich von einer so vielfachen Verschiedenheit der Intensität, der sie auf ein Mahl erzeugenden Potenz, abgeleitet werden können), befriedigend erklären ließen; wenn ihr nicht ferner einige Erscheinungen bei dem Ereignisse selbst, z. B. das bei diesem, so wie uberhaupt bei allen ahnlichen Ereignissen, wo viele Steine fielen, ganz einstimmig gleichartig beobachtete, fortgesetzte, einem kleinen Gewehr- oder Pelotonfeuer ahnliche Getose nach den Haupt-Detonationen (welches wohl nur von einem wiederhohlten, successiven Zerplatzen und Zerspringen der einzelnen Steine wahrend ihres Falles hergeleitet werden kann); das so ausnehmend schiefe und sanfte Auffalen mancher einzelner, ziemlich großer Steine, so daß sie kaum merklich die Erde streiften und eine Strecke fortrollten (welches eine horizontale Wurfbewegung voraussetzt, die sich mit der Höhe, auf welcher die Hauptzerplatzung vorging, der gegenwirkenden Schwerkraft wegen, schlechterdings nicht verträgt, daher eine spätere Zerplatzung eines einzelnen Steines im Falle, auf minderer Höhe, und die Lossprengung eines Stuckes davon in solcher Richtung vorausgesetze werden muß) u. s. f. --- in Wege stunden; und wenn es endlich nicht ganz an allen Wahrnehmungen fehlte (worauf insbesondere und mit Vorbedacht bei der Untersuchung der Begebenheit zu Stannern alle Rucksicht genommnen wurde), die das Spiel oder den Einfluss der Elektricitat bei diesen Ereignissen nur einiger Massen bewahren konnten. Dagegen bin ich mit diesen beiden scharfsinnigen Physikern vollkommen einverstanden, wenn sie behaupten, die Rinde der Meteor-Steine sei das Product eines Prozesses, das mit keinem Producte der uns bekannten naturlichen und kunstlichen Schmelz-Prozesse (wenn jener Rinde bildende ja in die Reihe solcher zu stellen sein sollte) einige Aehnlichkeit habe, wesshalb wir uns auch zur Zeit keinen richtigen Begriff von ihrer Bildung machen können.
+
+# Siebente Tafel.
+
 , hbildungen auf dieser Tafel haben die Darstellung und Versinnlichung der innern Beschaffenheit der Steinmasse
 einiger, der in dieser Beziehung ausgezeichnetsten Meteor-Steine, des Aggregats-Zustandes derselben und ihrer we-
 sentlichsten Gemengtheile zum Zwecke, und in Hinsicht dieser letztern insbesondere, die Darstellung des allgemeinsten,
