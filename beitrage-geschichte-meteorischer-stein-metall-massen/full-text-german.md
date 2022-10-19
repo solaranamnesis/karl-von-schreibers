@@ -591,14 +591,10 @@ Eher könne ich der Meinung meines Freundes, des Hrn. Prof. v. Scherer (welcher 
 
 # Siebente Tafel.
 
-, hbildungen auf dieser Tafel haben die Darstellung und Versinnlichung der innern Beschaffenheit der Steinmasse
-einiger, der in dieser Beziehung ausgezeichnetsten Meteor-Steine, des Aggregats-Zustandes derselben und ihrer we-
-sentlichsten Gemengtheile zum Zwecke, und in Hinsicht dieser letztern insbesondere, die Darstellung des allgemeinsten,
-auffallendsten und sehr wesentlichen, nähmlich des mehr oder weniger kugelichten, porphyrartig in der übrigen Stein-
-masse erscheinenden, erdigen Gemengtheiles, und zwar in den verschiedenen Graden seiner Ausbildnng, die von einer
-kaum erkennbaren Ausscheidung bis zu dessen ausgesprochenstem Zustande --- als olivinartige Substanz im sibirischen
-Eisen -- Uebergänge nachweisen lassen, und deren sich oft mehrere, nicht nur in verschiedenen Steinen eines und des-
-selben Niederfalles, sondern selbst in einem und demselben Bruchstücke, beysammen finden (1).
+Die Abbildungen auf dieser Tafel haben die Darstellung und Versinnlichung der innern Beschaffenheit der Steinmasse einiger, der in dieser Beziehung ausgezeichnetsten Meteor-Steine, des Aggregats-Zustandes derselben und ihrer wesentlichsten Gemengtheile zum Zwecke, und in Hinsicht dieser letztern insbesondere, die Darstellung des allgemeinsten, auffallendsten und sehr wesentlichen, nähmlich des mehr oder weniger kugelichten, porphyrartig in der übrigen Steinmasse erscheinenden, erdigen Gemengtheiles, und zwar in den verschiedenen Graden seiner Ausbildnng, die von einer kaum erkennbaren Ausscheidung bis zu dessen ausgesprochenstem Zustande --- als olivinartige Substanz im sibirischen Eisen --- Uebergänge nachweisen lassen, und deren sich oft mehrere, nicht nur in verschiedenen Steinen eines und desselben Niederfalles, sondern selbst in einem und demselben Bruchstücke, beisammen finden.*
+
+---
+
 Alle bisher bekannten, eigentlichen Meteor-Steine, sind gemengte Massen, und alle authoptisch mir davon be-
 kannten 34 (2), nach Zeit und Ort des Niederfallens verschiedene, nur mit Ausnahme jener von Alais, Erxle-
 ben, Chassigny (Langres), und zum Theil jener von Chantonnay, welche ein ganz eigenthümliches Anse-
