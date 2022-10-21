@@ -709,754 +709,153 @@ Mit Gewalt aus der Masse gebrochen, worin sie bei weitem größten Theils ohne V
 
 *) Diese scheinen oft mehr as sosernachtich anzutleben, und aus Bauauelins und Klaproths Beschreibung ihres Verfahrens bei den von ihnen vorgenommenen Anaiysen (inden ge gewöhnlich bei der nffsssng des aus der gepuloerten Meteor. Steinmasse mit dem Magnete ausgezogenen, und sorgfältig von allen erdigen Theilchen gereinigten Eisens, noch 10 bis 20 Percent erdige Bestandtheile erhielten, und wie ersterer sen Steine von cyarsonsiule ausdrücknich bemerkt, es sehr schwer hält, das Gediegeneisen ganz von der Talkerde zu reinigen), und vollends aus Laugiers neuester Zerlegung des sibirischen Eisens (nach welcher dieses, von allen erdigen Theilchen mechanisch vollkommen gereiniget, 16 Percent Kiesel- und 15 Percent Talkerde enthalten soll), scheint hervor zu gehen, daß die erdigen Bestandtheile als Metalle oder Metalloide mit dem metallischen Eisen in irgend einem Verhältnisse chemisch verbunden sind. Eine Muthmaßung, die durch das auffallend geringe specifische Gewicht, durch die, wie scheint, schwächere Wirkung auf den Magnet, und durch die Grunde, welche Klaproth bestimmt haben, alles in den Meteor-Steinen vorkommende Metall als regulinisch anzunehmen, wovon in der Folge die Rede sein wird, noch mehr Gewicht erhalt. Bekanntlich erhielt auch Daniell bei Untersuchung des Gußeisens, und Berzelius bei der Analyse eines gemeinen Schwefelkieses, Kieselerde (Silicium).
 
+*) Ich will diess vor der Hand noch nicht als ausgemacht behaupten, bis ich im Stande bin, durch genauere Versuche, die eine eigene Vorrichtung nothwendig machen, die Beobachtung zu bewahren.
+
+*) Und zwar stets mit Nickel legirt, so daß diese Verbindung als charakteristisch für alles Meteor-Eisen im regulinischen Zustande angenommen wird, und es daher sehr befremdend wäre, wenn die Steine von Agen, nach Vauquelin, da sie doch sichtlich bedeutend viel Gediegeneisen führen, keine Spur von jenem Metalle enthielten. Nach den neuesten, zum Theil absichtlich in dieser Beziehung vorgenommenen Analysen Stromeyers, scheint das Mischungsverhaltniß dieser Metall in den verschiedenen Meteor-Steinen und Eisenmassen ziemlich gleichförmig, nahmlich in ersteren von 7 bis 10, in letztern zwischen 10 und 11 Percent des Nickels zum Eisen, und im Allgemeinen jenes des Nickels bedeutend höher zu sein, als es bisher von den meisten Analytikern angegeben wurde. (So hatte Klaproth in der Total-Masse des Steines von Erxleben nur 1/4 Percent Nickel gefunden, indeß Stromeyer 1 1/2 Percent fand, und ersterer in der Masse eines Steines von Timochin, bei einem, selbst ausgewiesenen, Gehalte von 17 1/2 Gran regulinisch vorhanden gewesenen Eisens, kaum 1/2 Percent; so fand derselbe im sibirischen Eisen nur 1 1/2, im mexikanischen 3 1/4, im Elbogner 2 1/2, im Agramer 3 1/2 Percent Nickel. Howard, Vauquelin und N. A. Scherer geben bei den von ihnen vorgenommenen Analysen hochst ungleichformige, zum Theil viel zu groß, zum Theil viel zu gering scheinende Verhältnisse von diesem Metalle an.) Daß, wie Stromeyer meint, Nickel mit Eisen, als Oxyd, auch in den erdigen Gemengtheilen chemisch enthalten sei, ist deßhalb, im Allgemeinen wenigstens unwahrscheinlich, weil Vauquelin in den Steinen von Chassigny, und Moser und Klaproth in jenen von Stannern durchaus keine Spur davon auffinden konnten, jene aber, welche Vauquelin in letzteren bemerkte, wohl in dem vorhandenen Schwefeleisen, und der Gehalt, den Howard davon in den abgesondert zerlegten erdigen Gemengtheilen der Steine von Benares fand, ohne Zweifel in den mikroscopisch eingemengten Gediegeneisen- und Kiestheilchen enthalten gewesen sein dürfte.
+
 Das specifische Gewicht dieses Eisens ist bedeutend geringer als jenes vom Roh- und Stabeisen sowohl, als insbesondere vom derben Meteor-Eisen.* Graf Bournon fand es bei jenem aus einem Steine von Tabor = 6,146, und ich bei einem großen Korne und einem Blättchen aus einem Steine von L'Aigle zwischen 6,00 und 6,60.
 
-Auf geschliffenen und polierten Flächen erscheint dieser Gemengtheil noch ungleich deutlicher, da durch Schnitt und
-Politur die kleinsten Metalltheilchen rein und spiegelicht glänzend zur Ansicht kommen. Er zeigt sich hier nun erst in
-seiner wahren Menge (4), die gewöhnlich nicht gering ist, so daß er nach einer beyläufigen, oberflächlichen Abschätzung
-bisweilen oder , d. i. 0,20 bis 0,30 (wie z. B. in den Steinen von Eichstädt, Timochin, Tabor, Char-
-sonville zc.) der ganzen Masse beträgt, meistens aber doch nur den zehnten oder zwanzigsten Theil des Ganzen aus-
-machen möchte, d. i. 0, 10 bis 0,05 (wie in den Steinen von L'Aigle, Lissa zc.), und oft auch in äußerst gerin-
-ger Menge, so daß er kaum , der Masse beträgt, -- 0,02 (wie in den Steinen von Maurkirchen, Siena,
-Talkerde enthalten soll), scheint hervor zu gehen, daß die erdigen Bestandtheile als Metalle oder Metalloide mit dem metalli-
-schen Eisen in irgend einem Verhältnisse chemisch verbunden sind. Eine Muthmaßung, die durch das auffallend geringe spe-
-einische Gewicht, durch die, wie scheint, schwächere Wirkung auf den Magnet, und durch die eannde, welche laproth
-bestimmt haben, alles in den Meteor-Steinen vorkommende Metau als regulinisch anzunehmen, wovon in der Folge die
-Ree sein wird, noch mehr Gewicht erhaut. Bekanntlich erhielt auch Danielt bey untersuchung des Gußeisens, und Ber-
-zelius bey der Analyse eines gemeinen Schwece-, ieees. ceian,.
-ß i glä. is säe ä-eeeni he bsten, si- h in tande din-, dur genaue- ersuche, de ein-
-ihen. sencchaung nothwendig machen, die Beobachtung zu bewähren.
-(2) und zwar stets mit Nickel' legirt, so daß diese Verbindung als charakteristisch für alles Meteor-Eisen im regulinischen Zustande
-angenommen wird, und es daher sehr befremdend wäre, wenn die Steine von Agen, nach Vauauetin, da g. soch ghen
-bedeutend viel Gediegeneisen führen, keine Spur von jenem Metalle enthielten. Nach den neuesten, zum Theil absichtlich
-in dieser Beziehung vorgenommenen Analysen Stromeyers, scheint das Mischungsverhaltniß dieser Merane in den ver-
-schiedenen ee- Steinen nns isennasen ziennich gleichförnig, nahnich in ersteren vnn,bi 1, in levtern zwischen 10
-und 11 Percent des Nickels zum Eisen, und im Augemeinen jenes des Nickels bedeutend höher zu sein, als es bisher von
-den meisen Anayeirern angen nde. o hateiaroty n er otat Mase de- Seines on Errieben nurper-
-cent Nickel gefunden, indeß Stromeyer 1; Percent fand, und ersterer in der Masse eines Steines von Timochin, bey
-einem, selbst ausgewiesenen, Gehalte von 17; Gran regulinisch vorhanden gewesenen Eisens, kaum g Percent; so fand der-
-selbe im sibirischen Eisen nur 14, im mexikanischen 3, im Elbogner 2;, im Agramer 3 Percent Nickel. Howard,
-sanutn is z..en, .es mien dn
-viel zu groß, zun- Theil viel zu gering scheinende Verhältnisse von diesem Metalle an.) Daß, wie Stromeyer meine,
-ckel mit Eisen, als oxys, d, ch den erdigen Gemengtheilen chemisch enthalten sey, ist deßhalb, im Augemeinen wenig-
-stens unwahrscheinlich, weit auauelin in den Steinen von Chassigny, und Moser und Kiaproth in ienen von Stan-
-nern durchaus keine Spur danon aufinden tonnten, jene aber, welche Bauuettn in ieneren tenmeetie, e-i de, er
-handenen Schwefeleisen, und der Gehant, den oward davon in den abgesondert zerlegten erdigen Gemengtheiien der Steine
-von Benares fand, ohne Zweifel in den mieroseopisch eingemengten Gediegeneisen- und Kiesrheilchen enthalten gewesen sein
-dürfte.
-(3) Von ersteren kann man im Durchschnitt wohl 7,2 bis 7,7 annehmen, von letztern fand ich dasselbe, und nahmentlich vom me-
-ritanischen, kroatischen, böhmischen, ungarichen und peruianischen eisen zwischen 6o und 03. Hochs mie neolrdia
-in, dänsene-vom sitischen Eisen snd geel oischen esletn sis eiens isrens ans ereer teine a, ih sand
-sl s, "e"s seinse sä., si, ees s.- er nd 5..ni.nin aunel-
-men, all iee vournsn n, dier ohi ein- rune iegen.
-( Es ist sehr zu beklagen, daß die Analytiker bisher so wenig Rücsicht auf den Gehalt der Meteor-Steine an mechanisch einge-
-mengtem Gediegeneiten genommen, und denseisen gewöhnlich n in Ganzen, bawd, wie
-es aus der ganzen ane durch die Operation naieen wrde, ie Klaproth alles als eaunnich, nach Caleut, an-
-gegeben haben; so daß man weder von dem gutande, in welchem sich das Eisen in der Steinmase befand, ob ganz rein und
-gediegen, oder mehr oder weniger mit Schwefel vererzt, als Kiesoder Schwefeleisen, oder mehr weniger mit Orygen
-berbunnden, a- oind oe- owodnl, noch ni,-sen den eeennneen en miitaieen e-einii s. eehn, r. tiis
-eo- beonehe uur en- Srs ncoer- ineeßsi e, eri ne lni,en melsen, i si ere en, n önsis, nn
-sie iedes Mahl das mechanisch eingemengte Gedegenesen, so genau u ein ie msglieh, as der fein gevulverenneinne-
-von bestimmtem Gewichte mittelst einer Magnetnadel ausziehen, und dieses für sich angeben und untersuchen möchten.
-M 2
+*) Von ersteren kann man im Durchschnitt wohl 7,2 bis 7,7 annehmen, von letztern fand ich dasselbe, und nahmentlich vom mexicanischen, kroatischen, böhmischen, ungarichen und peruvianischen Eisen zwischen 7,600 und 7,830. Hochst merkwurdig ist, dass jenes vom sibirischen Eisen gleichsam das Mittel zwischen letzteren und jenem des Eisens aus Meteor-Steinen halt; ich fand dasselbe = 7,540, nur etwas geringer als Karsten, der es mit 7,573, wie es auch Werner und Hausmann annahmen, angibt. Graf Bournon gibt es mit 6,487 an, diesem mochte aber wohl eine Irrung zum Grunde liegen.
 
+Auf geschliffenen und polierten Flächen erscheint dieser Gemengtheil noch ungleich deutlicher, da durch Schnitt und Politur die kleinsten Metalltheilchen rein und spiegelicht glänzend zur Ansicht kommen. Er zeigt sich hier nun erst in seiner wahren Menge,* die gewöhnlich nicht gering ist, so daß er nach einer beiläufigen, oberflächlichen Abschätzung bisweilen 1/3 oder 1/5, d. i. 0,20 bis 0,30 (wie z. B. in den Steinen von Eichstädt, Timochin, Tabor, Charsonville zc.) der ganzen Masse beträgt, meistens aber doch nur den zehnten oder zwanzigsten Theil des Ganzen ausmachen möchte, d. i. 0,10 bis 0,05 (wie in den Steinen von L'Aigle, Lissa zc.), und oft auch in äußerst geringer Menge, so daß er kaum 1/50 der Masse beträgt, = 0,02 (wie in den Steinen von Maurkirchen, Siena, Benares zc.), ja selbst noch weniger (wie in den Steinen von Parma, Eggenfeld), zuletzt ganz und gar fehlt (wie in den Steinen von Chassigny und Stannern).*
 
-### 0063
+*) Es ist sehr zu beklagen, daß die Analytiker bisher so wenig Rücksicht auf den Gehalt der Meteor-Steine an mechanisch eingemengtem Gediegeneisen genommen, und denselben gewöhnlich nur im Ganzen, bald, wie Vauquelin alles als Oxyd, wie es aus der ganzen Masse durch die Operation erhalten wurde, bald, wie Klaproth alles als regulinisch, nach Calcui, angegeben haben; so daß man weder von dem Zustande, in welchem sich das Eisen in der Steinmasse befand, ob ganz rein und gediegen, oder mehr oder weniger mit Schwefel vererzt, als Kies- oder Schwefeleisen, oder mehr oder weniger mit Oxygen verbunden, als Oxyd oder Oxydul, noch weniger von den gegenseitigen quantitativen Verhaltnissen etwas erfahrt, wie diess bis jetzt beinahe nur aus Stromeyers musterhaften, leider nur wenigen Analysen, zu ersehen ist. Es ware zu wunschen, dass sie jedes Mahl das mechanisch eingemengte Gediegeneisen, so genau und rein wie moglich, aus der fein gepulverten Steinmasse von bestimmtem Gewichte mittelst einer Magnetnadel ausziehen, und dieses für sich angeben und untersuchen möchten.
 
-Benares zc.), ja selbst noch weniger (wie in den Steinen von Parma, Eggenfeld), zuletzt ganz und gar fehlt
-(wie in den Steinen von Chassigny und Stannern) (1).
-Es zeigt sich derselbe hier theils, zumahl wenn häufig vorhanden -- und in diesem Falle meistens ziemlich gleich-
-förmig vertheilt -- in zarten, äußerst feinen, zum Theil mikroscopischen Puncten (den Ausgängen senkrecht gegen die
-Oberfläche stehender Zacken), theils in größern oder kleinern, stärkern oder schwächern, mehr oder weniger zahnigen
-oder zackigen, und klein- und feinästigen, gebogenen, winkeligen Adern, Linien und Flecken (den Durchschnitten mehr
-oder weniger horizontal gegen die Oberfläche liegender Zacken), die bisweilen durch zarte Zweige, mehr oder minder
-vollkommen, einzeln wenigstens, mit einander verbunden sind (2); theils --- obgleich seltner, und meistens nur, wo
-der Gehalt im Ganzen geringe - in einzelnen beträchtlich großen, rundlichten, ovalen, keilförmigen, mehr oder weni-
-ger dreieckigen, gewöhnlich scharf begränzten, und gar nicht zackigen Flecken von einigen Linien im Durchmesser (den
-Durchschnitten von größern, gewöhnlich so gestalteten, und meistens platt gedrückten Körnern oder Massen, in welchen
-sich dieser Gemengtheil, bisweilen von Erbsen- bis Haselnuß-Größe, und von 20 bis 30 und mehr Gran am Ge-
-wichte --- wie in den Steinen von Ensisheim, L'Aigle, Barbotan, Sales zc. eingemengt findet (3).
-Auf bloß geschnittenen, rohen, noch unpolierten Flächen zeigt sich die Farbe dieser Eisentheilchen --- die hier ihre
-Weichheit und Geschmeidigkeit durch Erhabenheit und durch Streifung ihrer Oberfläche (welche das nicht ganz gleichför-
-mig vorrückende, schneidende Instrument, Nad oder Säge, bewirkte) bewähren, und bisweilen gekörnt, körnig ange-
-häuft, fast wie geträuft erscheinen mehr oder weniger licht eisen- stahl- oder zinkgrau, und der Glanz, rein me-
-tallisch zwar, aber etwas schwach; auf polierten Flächen dagegen zieht sich erstere mehr oder weniger ins Silberweiße,
-und letzterer wird sehr stark und spiegelnd.
-Diese Eisentheilchen kommen übrigens in beyden erdigen Gemengtheilen eingestreut vor, in dem olivinartigen doch
-offenbar ungleich weniger und zarter, und, wie es beynahe scheint (nahmentlich bey den Steinen von Charsonville,
-Apt, Toulouse), um so sparsamer, je unvollkommener derselbe ausgesprochen, und je mehr ähnlich er noch der
-Grundmasse ist (4); aber, wie es auf der andern Seite scheint, zumahl im vollkommneren Zustande desselben (wie
-bey den Steinen von Eichstädt, Timochin, Benares), mehr um ihn herum angehäuft, die Massen desselben
-gleichsam umgebend, einschließend (5). Am häufigsten möchten sie wohl oft, in dem ganz besondern Zustande, fest
-in die offenbar veränderten Massentheilchen der Grundmasse (wie oben bey dieser erwähnt worden ist) eingehüllt vor-
-kommen.
-Von diesem metallischen Gemengtheile hängt, obgleich nicht ganz ausschließlich (da das eingemengte, und selbst,
-wie scheint, das chemisch mit den erdigen Theilchen verbundene, mehr oder weniger oxydirte Eisen, zumahl aber das
-eingemengte Schwefeleisen, bisweilen einige Wirkung zeigen), die Wirkung der Meteor-Steine im Ganzen auf die
-Magnetnadel ab, die demnach nach dem so sehr abweichenden quantitativen Verhältnisse desselben von dem ganz Unmerk-
-lichen bis ins sehr Starke geht, und jener des massiven Gediegeneisens sich nähert. Es modificirt derselbe ferner, ver-
-möge seines verschiedenen quantitativen Verhältnisses (wobey jedoch der Gehalt der Masse an Eisen-Oxyd -- an ver-
-hülltem oder gar verlarvtem Eisen -- und an Schwefeleisen zu berücksichtigen kommt), nicht nur das specifische Gewicht
-der verschiedenen Meteor-Steine, und selbst - der oft sehr ungleichen, daher wohl zu berücksichtigenden Vertheilung
-(1) Hinsichtlich des merkwürdigen Wechselverhältnisses, welches zwischen dem Gehalte der Meteor-Steine an solcher Gestalt me-
-chanisch eingemengtem -- ganz ausgeschiedenem -- regulinischen Eisen und jenem an Eisen in mehr oder weniger geschwefeltem
-und oxydirten Zustande zu bestehen, und der ganz besondern Verbindung, in welcher ersteres (?) mit den erdigen Bestandtheilen
-der Steinmasse verbunden, vollkommen verlarvt, vorzukommen scheint, verweise ich auf die Bemerkungen bey der Abhandlung
-der übrigen Gemengtheile (des Schwefeleisens und des Eisenoxydes).
-(2) Ein, obgleich nur noch höchst unvollkommener und sehr unterbrochener Zusammenhang, der aber doch schon einige Aehnlichkeit
-mit dem Eisengerippe der sibirischen, zumahl der sächsischen und jener angeblich aus Norwegen stammenden Eisenmasse zeigt.
-() Auf solche, oft ganm im Innern der Steinmasse verborgen legende, größere isennnanen, un überhaupt anf das nechanisch
-eingemengte Gediegeneisen, wenn es im Ganzen nicht sehr häufig vorhanden ist, indem dasselbe sonst sehr ungleichmäßig ver-
-theilt zu sein pflegt, muß bey Bestimmung des specifischen Gewichtes, so wie bey der Analyse eines Bruchstückes, besondere
-Rücksicht genommen werden.
-(4) Howard gibt inzwischen, da er doch beyde erdige Gemengtheile des Steines von Benares möglichst getrennt und für sich
-analysirte, in beyden ein ganz gleiches Verhältniß von Eisenoxyd an, nähmlich 34 Percent.
-uorei- snihcens i eisslsl seslst . l. sain ne e- aenennhel- an de-
-rische Eisenmasse.
+*) Hinsichtlich des merkwürdigen Wechselverhältnisses, welches zwischen dem Gehalte der Meteor-Steine an solcher Gestalt mechanisch eingemengtem --- ganz ausgeschiedenem --- regulinischen Eisen und jenem an Eisen in mehr oder weniger geschwefeltem und oxydirten Zustande zu bestehen, und der ganz besondern Verbindung, in welcher ersteres (?) mit den erdigen Bestandtheilen der Steinmasse verbunden, vollkommen verlarvt, vorzukommen scheint, verweise ich auf die Bemerkungen bei der Abhandlung der übrigen Gemengtheile (des Schwefeleisens und des Eisenoxydes).
 
+Es zeigt sich derselbe hier theils, zumahl wenn häufig vorhanden --- und in diesem Falle meistens ziemlich gleichförmig vertheilt --- in zarten, äußerst feinen, zum Theil mikroscopischen Puncten (den Ausgängen senkrecht gegen die Oberfläche stehender Zacken), theils in größern oder kleinern, stärkern oder schwächern, mehr oder weniger zahnigen oder zackigen, und klein- und feinästigen, gebogenen, winkeligen Adern, Linien und Flecken (den Durchschnitten mehr oder weniger horizontal gegen die Oberfläche liegender Zacken), die bisweilen durch zarte Zweige, mehr oder minder vollkommen, einzeln wenigstens, mit einander verbunden sind*; theils --- obgleich seltner, und meistens nur, wo der Gehalt im Ganzen geringe --- in einzelnen beträchtlich großen, rundlichten, ovalen, keilförmigen, mehr oder weniger dreieckigen, gewöhnlich scharf begränzten, und gar nicht zackigen Flecken von einigen Linien im Durchmesser (den Durchschnitten von größern, gewöhnlich so gestalteten, und meistens platt gedrückten Körnern oder Massen, in welchen sich dieser Gemengtheil, bisweilen von Erbsen- bis Haselnuß-Größe, und von 20 bis 30 und mehr Gran am Gewichte --- wie in den Steinen von Ensisheim, L'Aigle, Barbotan, Sales zc. eingemengt findet.*
 
-### 0064
+*) Ein, obgleich nur noch höchst unvollkommener und sehr unterbrochener Zusammenhang, der aber doch schon einige Aehnlichkeit mit dem Eisengerippe der sibirischen, zumahl der sächsischen und jener angeblich aus Norwegen stammenden Eisenmasse zeigt.
 
-49
-und Einmengung wegen --- der Bruchstücke eines und desselben Steines, sondern auch insbesondere, und nach Maß-
-gabe der Beschaffenheit der Theilchen (ob gröber oder feiner, glatter oder zackiger), durch mechanische Zusammenhal-
-tung und durch eine (vielleicht erst in der Folge durch Oxydation in der Atmosphäre) vermittelte innigere Verbindung
-aller Gemengtheile unter sich, die Dichtigkeit und Festigkeit, den Cohäsions- und Aggregats-Zustand der ganzen
-Masse.
-Es ist demnach dieser Gemengtheil, zumahl derselbe in so vielseitigen Beziehungen, insbesondere im quantitativen
-Verhältnisse, und in Größe, Form und Verbindung seiner einzelnen Massen, so auffallende Verschiedenheiten zeigt,
-für die verschiedenen Meteor-Steine sehr charakterisirend, wie er denn auch das Ansehen derselben, zumahl auf polier-
-ten Flächen, sehr mannigfaltig modificirt, und manche oft ausschließlich dadurch erkennbar und unterscheidbar macht.
-In Begleitung dieses Gemengtheiles, und zwar wo nicht ausschließlich, doch vorzugsweise nur desselben (1),
-und wo nicht ursprünglich, doch stets in der Folge, wenn die Steine einige Zeit der atmosphärischen Luft ausgesetzt
-waren (2), erscheinen auf unvollkommen überrindeten, ursprünglich oder späterhin zufällig von Rinde entblößten Flächen,
-zumahl auf frischen Bruchflächen, und zwar nach Maßgabe der Menge, Größe und Gestalt der Eisentheilchen (vielleicht
-auch nach der individuellen Beschaffenheit derselben) (3), mehr oder weniger häufige, größere oder kleinere, verschieden
-gestaltete Flecke, oft nur zarte Puncte, von matter, licht ochergelber, durch eine Reihe von Abstufungen ins Gelblich-
-und Röthlichbraune, bis ins Dunkelbraune verlaufender Farbe, wahre Rostflecke, die sowohl durch die verhältnißmä-
-ßige Menge, als zum Theil auch durch die Gestaltung und Größe, um so mehr ein charakteristisches Merkmahl für viele
-Meteor-Steine abgeben, als sie, zumahl auf rohen, unpolierten Flächen, weit mehr als die Metalltheilchen selbst
-auffallen, auf polierten Flächen aber der ganzen Steinmasse ein ausgezeichnetes, marmorirtes Ansehen geben, so wie
-sie wohl auch den Zusammenhalt und Cohäsions-Zustand derselben als vermittelndes Bindungsmittel zu verstärken scheinen.
-Es ist bemerkenswerth, daß diese Rostflecke, wie es scheint, nie auf den, zumahl polierten, Flächen der Eisen-
-theilchen, auch wenn sie Jahre lang der Luft ausgesetzt waren - wobey sie kaum etwas von ihrer Politur einbüßten ---
-(wie denn auch das Meteor-Eisen überhaupt, vielleicht wegen der Verbindung mit Nickel, nicht so leicht rostet, und
-auch mehr der Einwirkung der Säuren widersteht, als gemeines Eisen), sondern immer nur auf ihrer rauhen Oberfläche
-und am Rande derselben, insbesondere aber in den erdigen, von mehreren Eisentheilchen eingeschlossenen Zwischenräu-
-räumen (4), die sie oft ganz durchdringen, erscheinen, und daß sie oft, wie mir däucht, in Folge der Zeit, einen et-
-was fettigen Glanz, unvollkommen blätterige oder schalige Absonderungen, und ein Pflinz- oder Eisenspathartiges, bis-
-weilen fast Harzähnliches Ansehen gewinnen.
-(1) Die Fälle, wo dasselbe auch bey deutlich ausgesprochenen Schwefeleisen-Massen Statt hat, scheinen mir größten Theils zwei-
-felhaft. So viel ist gewiß, daß die Erscheinung verhältnißmäßig höchst selten ist bey Steinen, die wenig Gediegeneisen, und
-doch viel, selbst sehr viel Schwefeleisen enthalten, wie die von Parma, Maurkirchen, Siena, Benares, und gar nicht, wo
-cceeiene enn i ,. s i s s cs s nnitn, esnl öi Ssn l.s. sii
-niche unbedeutend ist. Inzwischen ganbte gta,eoeh doch diese Erscheinung der Verwitterung der Kiespunete (des fein ein-
-gesorengten Schwefeleisens) zuschreibn zu soulen.
-2) Klaproth, der die Meinung hegte, daß die Meteor-Massen und ihre Gemengtheile durchaus keiner Einwirkung des Oxy
-gens ausgesetzt waren, als erwa der momentanen während des schnelen Durchzuges durch unsere Atmosphar. or der sie
-iniggena as urch ie bisschneu erei,te esr chlics- Riond- ogieis sse fess Is d ßer dnrcans teinen onta-
-tions-Zustand irgend eines Gemengteiles annehmen zu dürfen giausee, chries diese Erscheinung ausschließich der spätern ein-
-wirkung der atmosphärischen Luft zu inzwischen scheinen, abgesehen von den leicht zu machenden Einwürfen gegen jene vor-
-gefaßte Meinung im Angemeinen, nehrere eobachtungen auch gegen diese daher rührende Folgerung zu sprechen. ehrere
-ganze und durch vollkommene leberrundung "or ee Eindringen der äneepharischen Lie geschuste, ns daee ing ichi.
-und eomnpaet- Steine, die ich selbst u zershtagen Gelegenheit hatte, und inf verschiedene, von welchen waheen neiner n-
-wesenheit in aris beträchtlich- Stucke eehch nach Steinchnederart, aber schneu und mit möglichster Verwahrung ge-
-gen Durchnäsung -- abgeschnitten vurden, zeigten im Inner heer Masse dieselbe Erscheinung. Dasselbe beobachtete Berg-
-rath Reuß an einem von ihm zerschlagenen Seine von Lissa, taum noch drei Monath nach dem Faue. Dagegen zeigen
-ruchstücke von neheeren, an Gednegeneisen sssht als Schesenisen ziemlich reichhaltigen Steinen, die seit vielen aheen
-der atmosphärischen eufe, und selbst häufiger Betastung ausgesetzt, auch an einer Fläche angeschliffen und poliert worden wa-
-waren, noch bis zur Stunde keine Spur davon.
-(3) Wie einige an Gediegen- und Schwefeleisen ziemlich reichhaltige Steine, z. B. die von Erxleben, Tipperary, Limerick, und
-zun Theil selbst einige von Lisa, zu beweisen sheinen, die kaun eine Spur zeigen.
-e di es, iiisti e,täliss,e eenlen eieiemi ebn, tend-en-.denue-
-ie At-me von Eisen-orydumi uns "ielleicht sdn Schefeleisen, weiche iene einhuuen.
-N
+*) Auf solche, oft ganz im Innern der Steinmasse verborgen liegende, größere Eisenmassen, und überhaupt auf das mechanisch eingemengte Gediegeneisen, wenn es im Ganzen nicht sehr häufig vorhanden ist, indem dasselbe sonst sehr ungleichmäßig vertheilt zu sein pflegt, muß bei Bestimmung des specifischen Gewichtes, so wie bei der Analyse eines Bruchstückes, besondere Rücksicht genommen werden.
 
+Auf bloß geschnittenen, rohen, noch unpolierten Flächen zeigt sich die Farbe dieser Eisentheilchen --- die hier ihre Weichheit und Geschmeidigkeit durch Erhabenheit und durch Streifung ihrer Oberfläche (welche das nicht ganz gleichförmig vorrückende, schneidende Instrument, Rad oder Säge, bewirkte) bewähren, und bisweilen gekörnt, körnig angehäuft, fast wie geträuft erscheinen --- mehr oder weniger licht eisen- stahl- oder zinkgrau, und der Glanz, rein metallisch zwar, aber etwas schwach; auf polierten Flächen dagegen zieht sich erstere mehr oder weniger ins Silberweiße, und letzterer wird sehr stark und spiegelnd.
 
-### 0065
+Diese Eisentheilchen kommen übrigens in beiden erdigen Gemengtheilen eingestreut vor, in dem olivinartigen doch offenbar ungleich weniger und zarter, und, wie es beinahe scheint (nahmentlich bei den Steinen von Charsonville, Apt, Toulouse), um so sparsamer, je unvollkommener derselbe ausgesprochen, und je mehr ähnlich er noch der Grundmasse ist*; aber, wie es auf der andern Seite scheint, zumahl im vollkommneren Zustande desselben (wie bei den Steinen von Eichstädt, Timochin, Benares), mehr um ihn herum angehäuft, die Massen desselben gleichsam umgebend, einschließend.* Am häufigsten möchten sie wohl oft, in dem ganz besondern Zustande, fest in die offenbar veränderten Massentheilchen der Grundmasse (wie oben bei dieser erwähnt worden ist) eingehüllt vorkommen.
 
-Die Massentheilchen dieser Flecke, die bey manchen an Gediegeneisen sehr reichhaltigen Meteor-Steinen (wie z. B.
-bey jenen von Eichstädt und Timochin) beynahe die größere Hälfte der Grundmasse betreffen, zeigen sich unter
-dem Mikroscope theils als erdige, ochrige, gelbe, pommeranzen- und röthlich-gelbe, zum Theil aber als spathartige,
-und dann glänzende oder schillernde, ins Dunkelgelbe und Rothbraune ziehende bis ins Glasige, und dann ins Nothe
-verlaufende, kleine, gleichsam zusammen gekittete Massen, die mit mikroscopisch zarten Metalltheilchen gemengt sind,
-und zum Theil in jene Feldspathartigen Massentheilchen, welche bey der Grundmasse erwähnt worden sind, übergehen.
-Sie werden von der Magnetnadel lebhaft angezogen, und lassen sich äußerst schwer, zum Theil gar nicht zerstoßen,
-halten selbst am Amboße mehrere starke Schläge aus, und geben dann ein mehr oder weniger feines, lichter oder dunkler
-gelbes oder röthlich gelbes, erdiges Pulver, das zum Theil noch retractorisch ist, und ein oder mehrere Blättchen har-
-tes und sehr zähes, metallisch glänzendes, licht eisengraues Gediegeneisen (1).
-Der andere metallische Gemengtheil, der wohl nie ganz fehlen möchte (2), obgleich er gewöhnlich in einem ungleich
-geringern, oft äußerst geringen, und offenbar gerade mit Zunahme des vorhergehenden in einem abnehmenden Verhält-
-nisse (3) vorhanden, und oft, zumahl auf rohen unpolierten Flächen, äußerst schwer zu erkennen und vom vorigen zu
-unterscheiden ist, zeigt sich auf solchen Flächen mehr oder weniger häufig und deutlich, in äußerst zarten, meistens mi-
-kroscopischen, theils einzeln eingestreuten, theils mehr oder weniger zusammen gehäuften Puncten und Körnern, sel-
-tener in größeren, bröcklich oder körnig zusammen gehäuften Massen von sehr verschiedener, ganz unregelmäßiger Gestalt,
-und mehr oder minder dann verbrochen, zerrissen und zerklüftet, und bey diesem letzteren Vorkommen, von einem un-
-ebenen, feinkörnigen, bisweilen versteckt blätterigen, seltener unvollkommen und klein muschlichen Bruche, nicht selten
-mit krystallinischen Facetten, und unbestimmt eckige, ziemlich scharfkantige Bruchstücke gebend.
-Es haben diese Körner und Massen stets ein rein metallisches Ansehen, und auf rohen Flächen der Steinmasse,
-zumahl die kleinsten derselben, gewöhnlich einen starken, oft sehr starken, spiegelnden, metallischen Glanz, und eine
-mehr oder minder rein zinkgraue, oft auch beynahe zinn- oder silberweiße, gewöhnlich aber ins Röthliche --- beynahe
-wie der Kupfernickel --- meistens doch ins Gelbliche, Speis- oder Messing-Gelbe ziehende Farbe (4). Größere Mas-
-sen erscheinen bisweilen, obgleich nur selten, matt oder doch minder glänzend, und dunkelgrau oder bräunlich, auch
-tombakbraun, rostbraun oder kupferröthlich, und bisweilen auch pfauenschweifig, dunkelblau, roth und Messinggelb an-
-gelaufen.
-Geritzt geben diese Metalltheilchen sogleich ihre Sprödigkeit zu erkennen, wodurch sie sich von den vorigen sehr auf-
-fallend unterscheiden, und mit Gewalt aus der Steinmasse gebrochen, aus welcher sie sich mehr oder weniger leicht,
-stückweise aussprengen lassen, kann man sie auch mehr oder minder leicht zum feinsten Pulver zerstoßen und zerreiben,
-das dann eine mehr oder weniger matte und schwärzliche Farbe annimmt. Jene Sprödigkeit, so wie das ganze Ansehen
-und Verhalten dieser metallischen Massen sowohl im Ganzen als in ihren Massenheilchen, die Entwickelung von Schwe-
-fel-Wasserstoffgas bey Behandlung mit Salzsäure, und vollends die Resultate der Analysen, geben die Natur dieses
-(1) Aus dieser Beschaffenheit der Massentheilchen scheint wohl hervor zu gehen, daß dese Rostflecke kein Erzeugniß einer schnellen
-und oberflächlichen, und bloß durch die atmosphärische Luft bewirkten Oxydation des Gediegeneisens, und noch weniger die
-Folge einer bloßen Verwitterung des Schwefeleisens sein können; dagegen geben ielmehr Ansehen, Glanz, Härte, Sprödig-
-keit, und die Eigenschaft im Wasser nicht merklich, oder doch nur zum Theil, die Farbe zu ändern, Veranlassung, dieselben
-mit Eisenspath zu vergleichen.
-(a) Außer etwa bey den Steinen von Chassigny, wo sich durchaus nichts dafür zu erkennen gibt, und bey deren Analyse auch Vau
-quelin keine Spur von Schwefel finden konnte.
-3) Dieses merkwürdige Wechselverhältniß spricht sich bey den meisten Meteor-Steinen sehr auffallend aus. So findet man bey
-den an Gediegenesen sehr reichhaltigen Steinen von Eichstade, Timochin, Tabor, Charsonville, kaum ein deutliches Korn
-von Schwefeleisen, und es ist dasselbe äußerst zart eingesprengt; dagegen erschein es sey den an jenem minder reichhaltigen
-von Ensisheim, Sales, Lissa 1c. schon weit mehr und in grsßeren Massen; bey den eisenarmen Steinen vollends von Siena.
-Fansnihen, Dnsres, rs seacnier- aesa, is den ticneyn vin dnnerst sifalleu hausa un n anss-teihnei
-großen Masen.
-(4) Diese oft sehr auffallenden Abweichungen in der Farbe, auf welche schon Chladni aufmerksam machte, und deren nicht selten
-mehrere in einem und demsesen rchhacee eines eine eebnnnen, schenen nssi, zumahl sie in enigenn Einklange mit
-den übrigen Eigenschaften, als mit der aete und der Reteaenistät stehen, au feemdartige Beymischungen (ickel, Chrom,
-Mangan, Silicium), oder doch auf ein verschiedenes Verhältniß vom Schwefel zum Eisen, oder auf eine anderweitige Zu
-standsverschiedenheit dieses letzteren hinzudeuten.
+*) Howard gibt inzwischen, da er doch beide erdige Gemengtheile des Steines von Benares möglichst getrennt und für sich analysirte, in beiden ein ganz gleiches Verhältniß von Eisenoxyd an, nähmlich 34 Percent.
 
+*) Wieder eine Annaherung des Entwickelungszustandes der Steinmasse der Meteor-Steine und ihrer Gemengtheile an die sibirische Eisenmasse.
 
-### 0066
+Von diesem metallischen Gemengtheile hängt, obgleich nicht ganz ausschließlich (da das eingemengte, und selbst, wie scheint, das chemisch mit den erdigen Theilchen verbundene, mehr oder weniger oxydirte Eisen, zumahl aber das eingemengte Schwefeleisen, bisweilen einige Wirkung zeigen), die Wirkung der Meteor-Steine im Ganzen auf die Magnetnadel ab, die demnach nach dem so sehr abweichenden quantitativen Verhältnisse desselben von dem ganz Unmerklichen bis ins sehr Starke geht, und jener des massiven Gediegeneisens sich nähert. Es modificirt derselbe ferner, vermöge seines verschiedenen quantitativen Verhältnisses (wobei jedoch der Gehalt der Masse an Eisen-Oxyd --- an verhülltem oder gar verlarvtem Eisen --- und an Schwefeleisen zu berücksichtigen kommt), nicht nur das specifische Gewicht der verschiedenen Meteor-Steine, und selbst --- der oft sehr ungleichen, daher wohl zu berücksichtigenden Vertheilung und Einmengung wegen --- der Bruchstücke eines und desselben Steines, sondern auch insbesondere, und nach Maßgabe der Beschaffenheit der Theilchen (ob gröber oder feiner, glatter oder zackiger), durch mechanische Zusammenhaltung und durch eine (vielleicht erst in der Folge durch Oxydation in der Atmosphäre) vermittelte innigere Verbindung aller Gemengtheile unter sich, die Dichtigkeit und Festigkeit, den Cohäsions- und Aggregats-Zustand der ganzen Masse.
 
-51
-metallischen Gemengtheiles als Eisen-oder Schwefelkies, und zwar, nach letzteren, wegen des geringen Verhältnisses
-des Schwefels zum Eisen (1), und da er auch meistens mehr oder weniger auf den Magnet wirkt (2), als Schwefel-
-eisen im Minimum oder als Magnetkies, zu erkennen.
-Auf geschliffenen und polierten Flächen erscheint auch dieser Gemengtheil ungleich deutlicher, da die kleinsten Theil-
-chen mehr zur Ansicht kommen (obgleich viele während des Schnittes ihrer Sprödigkeit halber ausgesprengt werden mö-
-gen), und sich besser, ja oft ausschließlich nur hier, von jenen des Gediegeneisens unterscheiden lassen, indem sie im-
-mer einen etwas schwächern Glanz (wahrscheinlich als Folge des Anlaufens durch die angewendete Feuchtigkeit während
-des Schnittes) und eine dunklere, stets ins Stahl- oder Zink-Graue fallende, und meistens ins Röthliche oder Gelb-
-liche ziehende Farbe haben, und sich gewöhnlich (zumahl wenn in etwas größeren Massen), rissig, zersprungen und
-zerklüftet, oder äußerst zartkörnig angehäuft zeigen. Sie sind übrigens mehr oder weniger häufig, sehr ungleichförmig
-durch die ganze Steinmasse zerstreut, und eben so wie die Gediegeneisentheilchen in der Grundmasse sowohl, als, und
-zwar in einem ähnlichen geringeren Verhältnisse, im olivinartigen Gemengtheile, und erscheinen als äußerst zarte, oft
-mikroscopisch feine Puncte, entweder einzeln oder gruppirt, und in größeren oder kleineren, theils zart und vielfach aus-
-gezackten und ausgeschlitzten, theils scharf begränzten, dichten Flecken.
-Von dem ganz mikroscopisch feinen Vorkommen dieser Kiestheilchen und deren innigen Verbindung mit den Gedie-
-geneisentheilchen, ist bereits oben bey diesen Erwähnung geschehen; so wie auch, daß sie nur selten, wenn je, unmit-
-telbar von Nostflecken begleitet sind.
-Es ist dieser Gemengtheil (3) für manche Meteor-Steine sehr charakteristisch (zu welchem Ende aber nothwendig
-(1) Die meisten bisherigen Analysen von Meteor-Steinen lassen zwar nur durch einen bestimmt, oft auch ganz unbestimmt, und
-selbst nur als Spur angegebenen Gehalt an Schwefel auf die gewesene Gegenwart von geschwefeltem Eisen als Gemengtheil
-seben, ieege- se- an denen cneieseilce erelns ie Seinslse.. eniisi. assisnln.
-ssisi äss s isinse- Shetei- uun eien in denieisen ch ..s
-shn öss ieseen naher ventnnmt, indem er 4 Gran Kies aus einem Steine von Benares fär sich analsiete, ns - soaieich
-mit unberechenbarem Verluste an Schwefel - 2Gran desselben mit 10 Gran Eisen verbunden, demnach beyläung 2 er-
-cent Schwefel fand. Aus Stromeyers neuesten Analysen der Steine von Errleben und Köstris ergib sch (aer reynich
-nach stöchiomerrischem Caleule, wobey es wohl in Frage stehen dürfte, ob bey diesen räthselhaften probueten so ganz iser
-schhich darauf anugehen sein mischte bey erseren en eehil a aonetkies von fan s, ben letzteren von beynah- , Per-
-cent, und bey beyden ein gleiches - freylich präsumtives Mischungsverhälniß vn 58 Schwesel zu 1oo Eisen (wie es
-erzetius fur den terresteschen Magnereies ao. Schon sowears s ike - und zuar in einen auffalend
-eoßen, unnwahrscheinichen erhcin D on beynahe- n, Pene mie diesen Schwefeleisen in ersindung gefunden, und da
-n iissenisaei- sfes ais ne s . msf. iet-
-von Sannern fand, die doch gar kein reines Gediegeneisen enthalten, so dürfte e wohl einen beständigen Bestandtheil des-
-seien ausnachen.
-(2) Lange aber nicht aller, wie schon Graf Bournon ausdrücklich von jenem aus den Steinen von Benares, und Klaproth
-von dem, selbst speisgelben, aus jenem von Lissa und Erxleben bemerkt, und ich auch von jenem aus den Steinen von Siena
-ud Manrkirchen behauseen eann, den wcthen ancs nich d einnsen aooe von der Magnetnadel in Bewegung gesest
-werden; übrigens in sehr verschiedenen Geaden nßerst schwach z. B. wirkt jener aus den Steinen von Parma, uns nehe
-en ma--e als in Puser, eieueicht is n gag- der umgebenden oder anhangenden Aem- von eiegenern r ien
-rddu; hier unn d nne- aus der aei . n- on iena un eina, els aaete, ßera erf eg e,en un seise
-sn tiaeenr niems .i.n-s kiesen scei äe s sss seeti--ssss i .i ec sehi.een-
-Grad von Retractibilität dieses Kieses asertzant mit der Menge und mage des vorhandenen Gediegeneisens in einem Ver-
-hänise stehe. Ob derselbe übrigens s zn ben erwähnten verchiedenen netallischen Beymischungen, oder von einer Zu-
-aanserschiedenheit des Eisens, oder von den ischungsverhälnae des Schwefels zum Eisen abhänge, will ich vor der Hand
-dahin gestellt sein lassen, und nur die Anatheiter darauf aufmertsan gemacht haben.
-() Dieser Gemengtheil ist es vorzüglich, der die Erklärung, selbs nancer Nebenerscheinungen und Veränderungen, welche mit
-dc ä eiemar isssn, ia "aen. cssene mach, n isrsrecenissen shesn
-ernnänrn,a. So lies- sich z. n. ,e denn anch, enes und nanches andern Einsoruches ungeachtet, ziemlich au-
-gemein geschiehe das Leuchten, Glühen, guntensprühen ns enduiche Zerplatzen der Feuerkugeln, und oouends die Bildung
-de ind- annhehnennt das ausgesrschen . esiee ines getnichen Schmen- Poesseec aberd - vereinzelten Bruchstaae
-derselben, durch -- unter mehr oder wenger annehmbaren Voraussetzungen zuläßliche Entwickelung oder Freymachung von
-Warmestoff am kürzesten und leichtesten ettaeen, wenn nicht das häunige Vorkommen dieses Genengtheiles in der ganzen
-Mase, und selbst an der Obersläche, und gan, dicht unter der ine der Steine, und nahmennich auch in den ganz reinen
-und derben Gediegeneisen-Massen, im gan useränderten Zusande seiner oft aufs höchste ausgesorochenen metauschen Be-
-schssenceen be desen seint.e, n s si s., eilgmens n i is u ni ga, nen i e s nn-
-phäre, dem Einflusse des Oxygens, und bey der schweren Schmelzbarkeit der Stein-und vollends der Eisenmassen (welche
-N 2
+Es ist demnach dieser Gemengtheil, zumahl derselbe in so vielseitigen Beziehungen, insbesondere im quantitativen Verhältnisse, und in Größe, Form und Verbindung seiner einzelnen Massen, so auffallende Verschiedenheiten zeigt, für die verschiedenen Meteor-Steine sehr charakterisirend, wie er denn auch das Ansehen derselben, zumahl auf polierten Flächen, sehr mannigfaltig modificirt, und manche oft ausschließlich dadurch erkennbar und unterscheidbar macht.
 
+In Begleitung dieses Gemengtheiles, und zwar wo nicht ausschließlich, doch vorzugsweise nur desselben,* und wo nicht ursprünglich, doch stets in der Folge, wenn die Steine einige Zeit der atmosphärischen Luft ausgesetzt waren,* erscheinen auf unvollkommen überrindeten, ursprünglich oder späterhin zufällig von Rinde entblößten Flächen, zumahl auf frischen Bruchflächen, und zwar nach Maßgabe der Menge, Größe und Gestalt der Eisentheilchen (vielleicht auch nach der individuellen Beschaffenheit derselben),* mehr oder weniger häufige, größere oder kleinere, verschieden gestaltete Flecke, oft nur zarte Puncte, von matter, licht ochergelber, durch eine Reihe von Abstufungen ins Gelblich- und Röthlichbraune, bis ins Dunkelbraune verlaufender Farbe, wahre Rostflecke, die sowohl durch die verhältnißmäßige Menge, als zum Theil auch durch die Gestaltung und Größe, um so mehr ein charakteristisches Merkmahl für viele Meteor-Steine abgeben, als sie, zumahl auf rohen, unpolierten Flächen, weit mehr als die Metalltheilchen selbst auffallen, auf polierten Flächen aber der ganzen Steinmasse ein ausgezeichnetes, marmorirtes Ansehen geben, so wie sie wohl auch den Zusammenhalt und Cohäsions-Zustand derselben als vermittelndes Bindungsmittel zu verstärken scheinen.
 
-### 0067
+*) Die Fälle, wo dasselbe auch bei deutlich ausgesprochenen Schwefeleisen-Massen Statt hat, scheinen mir größten Theils zweifelhaft. So viel ist gewiß, daß die Erscheinung verhältnißmäßig höchst selten ist bei Steinen, die wenig Gediegeneisen, und doch viel, selbst sehr viel Schwefeleisen enthalten, wie die von Parma, Maurkirchen, Siena, Benares, und gar nicht, wo das Gediegeneisen ganz fehlt, wie bei jenen von Chassigny und Stannern, obgleich bei letzteren der Gehalt an Schwefeleisen nicht unbedeutend ist. Inzwischen glaubte Klaproth doch diese Erscheinung der Verwitterung der Kiespuncte (des fein eingesprengten Schwefeleisens) zuschreiben zu sollen.
 
-eine Fläche des Steines abgeschliffen werden muß), theils durch seine Menge (wie für die Steine von Benares,
-Lissa, Parma zc.), oder durch seine Seltenheit (wie für jene von Eichstädt, Timochin, Tabor, Char-
-sonville zc.), theils durch die Größe oder ausgezeichnete Farbe seiner Massen (wie für die Steine von Parma,
-Stannern, Maurkirchen, Benares zc.).
-Außer jenen vier, strengen Sinnes zur Wesenheit der Meteor-Steine, als gemengten Massen, gehörigen,
-dem freyen Auge mehr oder weniger leicht unterscheidbaren Gemengtheilen, findet sich, wenigstens bey vielen, wo nicht
-allen, noch ein fünfter, der aber, auf rohen sowohl als auf geschliffenen Flächen der Steine, meistens nur mit Hülfe ei-
-nes Vergrößerungsglases, und selbst dann nur schwer und sparsam, am leichtesten noch und am häufigsten in der gröb-
-lich gepülverten Steinmasse unter dem Mikroscope aufgefunden werden kann, und der in Gestalt äußerst zarter, un-
-förmlicher, sehr ungleichförmig vertheilter und einzeln eingestreuter, nur höchst selten in äußerst kleinen Partien zusam-
-men gehäufter, von der Masse fest eingeschlossener Puncte oder Körner von matter, schwärzlich-brauner oder schwarzer
-Farbe erscheint. Es zeigen sich diese Körner leicht zerreiblich, und geben ein gleichförmiges Pulver; sie werden mehr
-oder minder lebhaft von der Magnetnadel angezogen, und sind wohl ohne Zweifel für ein Oxyd oder Oxydul von Ei-
-sen (1), von Mangan etwa zum Theil, und vielleicht auch von Chrom anzusehen.
-esrere aeraed- durh hr heiuber gelchuoltenes Aisehen manch- ysiter rthe be erd- -
-in n nhe-s. n- 8red anreusehen unee, nnt den as - aehen en- stn ta s.
-vereinbaren ließe.
-(1) Bekanntlich hat Klaproth, dem wir in Deutschland die frühesten Analysen, und im Ganzen --- wo ich nicht irre -- die
-von sieben verschiedenen Meteor-Steinen verdanken, die Vermuthung geäußert: es käme das Eisen in allen Meteor-Steinen,
-ohne Ausnahme, selbst in jenen, wo sich durchaus keine Spur davon, weder physisch noch oryktognostisch, als rein und ge-
-diegen zu erkennen gibt (wie z. B. in jenen von Stannern -- wovon er doch selbst ein Stück analysirte ---), stets nur im
-regulinischen Zustande vor, und daß selbst jenes -- wie auch der Nickel und das Mangan -- das sich in einem größern oder
-geringern Antheil, auch chemisch ausgesprochen, im offenbar oxydirten Zustande fände, nicht ursprünglich so in denselben ent-
-halten gewesen, sondern erst -so wie die Rostslecke - später als Folge der Orydation des zuvor frey und gediegen vorhan-
-den gewesenen, in der atmosphärischen Luft entstanden sey; daß dagegen aues physisch und oryktognostisch unerkennbare und
-chemisch mit den erdigen Gemengtheilen verbundene Eisen regulinisch in diesen (im oxygenfreyen Zustande mit den einfachen
-Erden verbunden), in einer gegenseitig sich durchdringenden Mischung (wodurch auch dessen Wieksamkeit auf den Magnet auf-
-gehoben werden kann) demnach bloß verlarvt - sich befinden möchte. Es ist nicht in Abrede zu stellen, daß die Motive,
-weiche diese Muthmaßung veranlaßten (die höchst wahrscheinliche Herstammung dieser Massen aus Regionen, wo, eben so wahr-
-scheinlich, kein Orygen vorhanden sey; - das häufge Vorkommen des so rein ausgesprochenen, ganz unveränderten, und
-doch so leicht zerstörbaren Schwefeleisens in denselben; die Ermangelung irgend einer nzeige von Orygen-Gehalt bey den
-wiederhohlten Analysen; - und endlich die esultate des caeute sey eesimnmnung des auantitativen Verhältnisses der ver-
-schiedenen Bestandtheile der von ihn zerlegten Seeine -, iesese geeae aich asncaehiten, in Gegentheit manche Einspru-
-che gestatten (wovon gleich einen z. B. der Zustand der übrigen Gemengtheile, jener der erdigen Bestandtheile, als Oxyde metalli-
-scher Basen, machen vürfto), und daß damit die bestimmt ausgesprochenen Befunde anderer Analytiker im offenbaren Wi-
-derssruche siehen, wehe den heieed teees einte an oxhdirken Eisen und andern Metauen enngan, isn, mekeh,
-und zwar nicht bloß im Zustande von mechanischer Einmengung (in welchem Falle derselbe etwa nach Klaproth als Product
-spaterer Erzeugung angesehen werden könnte), sondern ann llaaot und chenisch nit den erdigen Bestandtheilen verbunden,
-unwiderleglich darthun. (So erklärte Howard auen Gehan an Eisen der von ihn anayeeren Steine in so ferne sich
-dasselbe nicht als gediegen oder geschwefelt aussorach, - anauguelin - er, ene, esnnnens, sogar an irgend ei-
-nem Orte, alles, selbst das volkommen regulinisch vorkommende Meteor-Eisen (wahrscheinlich der besbachteten partiellen
-Sprödigkeit und in eben dem Grade schweren Schmiedbarkeit wegen) stets als etwas orydirt erklärt -- eben so, und nahment-
-uich den gannien, aen nneeen nac durchau- oerlarot beragenden eisengehaie e- Steines von chanie-
-ny; so Moser und derselbe jenen von 27 bis 29 Percent - wovon nur wenig auf den vorhandenen Kies fällt, und eben so
-wenig sich als freyes Oxyd ausspricht - der Steine von Stannern, für vollkommen oxydirtes Eisen; so gibt endlich Stro-
-meyer den Gehalt an wahrhaft - aber nur oxydulirten Eisen der Steine von Erxleben und Köstritz auf 5 Percent an.)
-Inzwischen verdient doch, meines Erachtens, Klaproths Vermuthung noch aue Beachtung und besondere Aufmerksamkeit,
-und dieß um so mehr, als dieselbe durch die oben in einer note bey den Gediegeneise - bereits erwähnten umstände
-der innigen, wenn gleich nur mechanisch scheinenden Verbindung der Eisen-d eeetheiichen, selbst in den mitroscopischen
-naenhenchen, -- de- alsst a chentitchen Weg- erst negaicßen, "olkommenen Sheiduing bender, - verschied-
-nen Mereor-Eisen so merklich abweichenden, und bey jenem aus Meteor-Steinen so auffallend geringen speeisischen Gewichte,
-und den anscheinend verschiedenen Graden von Retractibileae desselben -) neue ekraftiaung zu erhalten scheint, und in der,
-dem chemisch ausgewiesenen oder sinnlich wahrnehmbaren Gehalte an Eisen, oft nicht entsprechenden Angabe des specifischen
-Gewichts mancher Steine, und selbst, wie mir däucht, in obigen und manch andern, ziemlich sich widersprechenden Resulta-
-in, inbesonde- aerin ienen de, gennse-eei
+*) Klaproth, der die Meinung hegte, daß die Meteor-Massen und ihre Gemengtheile durchaus keiner Einwirkung des Oxygens ausgesetzt waren, als etwa der momentanen während des schnellen Durchzuges durch unsere Atmosphare --- vor der sie ubrigens auch durch die blitzschnell erzeugte oberflachliche Rinde sogleich geschutzt wurden --- und daher durchaus keinen Oxydations-Zustand irgend eines Gemengteiles annehmen zu dürfen glaubte, schrieb diese Erscheinung ausschließich der spätern Einwirkung der atmosphärischen Luft zu; inzwischen scheinen, abgesehen von den leicht zu machenden Einwürfen gegen jene vorgefaßte Meinung im Allgemeinen, mehrere Beobachtungen auch gegen diese daher rührende Folgerung zu sprechen. Mehrere ganze und durch vollkommene Ueberrindung vor dem Eindringen der ätmospharischen Luft geschutzte, und dabei ziemlich dichte und compacte Steine, die ich selbst zu zerschlagen Gelegenheit hatte, und funf verschiedene, von welchen wahrend meiner Anwesenheit in Paris beträchtlich Stucke --- freilich nach Steinschneiderart, aber schnell und mit möglichster Verwahrung gegen Durchnässung --- abgeschnitten wurden, zeigten im Innern ihrer Masse dieselbe Erscheinung. Dasselbe beobachtete Bergrath Reuß an einem von ihm zerschlagenen Steine von Lissa, kaum noch drei Monath nach dem Falle. Dagegen zeigen Bruchstücke von mehreren, an Gediegeneisen sowohl als Schwefeleisen ziemlich reichhaltigen Steinen, die seit vielen Jahren der atmosphärischen Luft, und selbst häufiger Betastung ausgesetzt, auch an einer Fläche angeschliffen und poliert worden wawaren, noch bis zur Stunde keine Spur davon.
 
+*) Wie einige an Gediegen- und Schwefeleisen ziemlich reichhaltige Steine, z. B. die von Erxleben, Tipperary, Limerick, und zum Theil selbst einige von Lissa, zu beweisen scheinen, die kaum eine Spur zeigen.
 
-### 0068
+Es ist bemerkenswerth, daß diese Rostflecke, wie es scheint, nie auf den, zumahl polierten, Flächen der Eisentheilchen, auch wenn sie Jahre lang der Luft ausgesetzt waren --- wobei sie kaum etwas von ihrer Politur einbüßten --- (wie denn auch das Meteor-Eisen überhaupt, vielleicht wegen der Verbindung mit Nickel, nicht so leicht rostet, und auch mehr der Einwirkung der Säuren widersteht, als gemeines Eisen), sondern immer nur auf ihrer rauhen Oberfläche und am Rande derselben, insbesondere aber in den erdigen, von mehreren Eisentheilchen eingeschlossenen Zwischenräuräumen,* die sie oft ganz durchdringen, erscheinen, und daß sie oft, wie mir däucht, in Folge der Zeit, einen etwas fettigen Glanz, unvollkommen blätterige oder schalige Absonderungen, und ein Pflinz- oder Eisenspathartiges, bisweilen fast Harzähnliches Ansehen gewinnen.
 
-53
-Höchst selten, und nur bey einigen Meteor-Steinen (nach meiner Ueberzeugung und deutlich nur bey jenen
-von Chassigny und Lissa) erscheint dieser Gemengtheil in etwas größeren, eben so zerstreuten Massen von beynahe
-pechschwarzer Farbe, und ziemlich starkem, etwas fettigem Glanze, die wenig oder gar nicht auf den Magnet wirken.
-Für Partikelchen von Rinde-Substanz, wofür sie, wenigstens zum Theil, Chladni anzusehen geneigt ist, kann
-man diese Körner, zumahl ersterer Art, nicht wohl erkennen, da sie nicht nur in ganzen Ansehen und durch ihre Re-
-tractibilität (vorzüglich bey Steinen, wo es die Atome der Rinde gar nicht sind, wie z B. bey jenen von Stannern,
-wo sie doch gerade am häufigsten vorkommen) sich davon unterscheiden, sondern auch die Art des Vorkommens und der
-Einmengung aller --- so sparsam und vereinzelnt, und überhaupt so selten, --- so mikrosopisch zart und isolirt, gar
-nicht in die Steinmasse übergehend (wie dieß doch bey der oberflächlichen Rinde im Contacte mit jener so auffallend
-Statt hat), und in einem gekörnten Zustande -- mit jeder möglich denkbaren Art von Entsteyng und Bildung von
-Rinde-Substanz mitten in der Steinmasse, nahmentlich aber mit jener durch Einknetung, im Widerspruche steht.
-Leichter könnte man diese Körner, wenigstens letztere, dunklere, glänzende, mit dem olivinartigen Gonengtheile oder
-mit der Substanz, die auch in Adern vorzukommen pflegt, und von welcher sogleich die Rede sein wird, verwechseln,
-mit welchen diese aber auch (zumahl jene in den Steinen von Lissa) ziemlich gleicher Natur sein möchten. Am häu-
-figsten und deutlichsten, und zwar größten Theils von bedeutender, dem freyen Auge wenigstens erkennbarer Größe,
-kommen derley Körner in der Masse der Steine von Chassigny vor. Diese scheinen aber eben so wenig oxydirtes
-Eisen als Rinde-Substanz zu sein. Dem ersteren widerspricht nähmlich die pechschwarze Farbe, der starke, etwas fet-
-tige Glanz, das krystallinische Ansehen und die gänzliche Unwirksamkeit auf die Magnetnadel, ausgenommen in einzel-
-nen wenigen, mikroscopisch kleinen Splittern, in so ferne auch die ganze Steinmasse einige Wirksamkeit äußert; dem
-letztern aber --- nebst obigen Gründen in Betreff der Art des Vorkommens und der Einmengung -- Farbe, Glanz,
-und die ganze Beschaffenheit, verglichen mit der oberflächlichen, ganz eigenen Rinde dieser Steine, die überdieß, ob-
-gleich schwach, doch merklich genug auf den Magnet wirkt.
-Der ausgezeichnete Gehalt dieser Steine an Chrom, von 2 Percent, welches Metall hier, nach Vauquelin,
-rein und regulinisch vorkommen soll, läßt mit allem Grunde vermuthen, daß es dieses Metall sey, welches hier auf sol-
-che Art erscheint, indeß dasselbe in den übrigen Meteor-Steinen, wo es bisher, fast durchgehends zwar, aber nur als
-Spur, oder in der sehr unbedeutenden Menge von bis 1 Percent gefunden worden ist, wahrscheinlich auf gleiche Art
-eingestreut, aber, nach Stromeyers Vermuthung, immer als Oxyd und in Verbindung mit Eisen, als wahres
-Chromeisen, vorkommt.
-Daß jene Atome von oxydirtem Eisen am häufigsten und mikroscopisch zart, in Begleitung und inniger, wenn
-gleich mechanischer Verbindung mit den eingemengten Gediegeneisentheilchen, selbst bey deren mikroscopischen Erscheinen
-in den Massentheilchen der erdigen Gemengtheile, im Gefolge letzterer, und wahrscheinlich in Gesellschaft von ähnlichen
-Kies-Atomen, vorkommen, dieselben gleichsam einhüllen, und sich erst bey Fletschung derselben als schwarzes, mehr oder
-weniger retractiles Pulver zu erkennen geben, und daß es vorzüglich diese Atome sein möchten, von welchen die Rost-
-flecke in der Steinmasse vorzugsweise herrühren --- ist bereits bey Beschreibung des Gediegeneisens bemerkt worden, und
-daß dieselben einen wesentlichen Einfluß auf den Cohäsions-Zustand, den Magnetismus, auf das specifische Gewicht,
-und mittelbar wenigstens, auf das äußere Ansehen der Steinmasse im Ganzen haben müssen, ergibt sich aus ihrer
-Natur und dem hierüber Vorgebrachten (1).
-Höchst merkwürdig aber ist wohl das Wechselverhältniß, welches -- in so weit aus dem äußern Ansehen und
-und zwar bey anscheinend nur wenig Gediegeneisen und Kies führenden Steinen -- von Eisen, und dieß nur im Mini-
-mum oxydirt, dagegen ein bedeutenderer nieil an regulinischen ausgewiesen wird, als nach jenem Anscheine erwartet wer-
-den soulte, wosn demnach der Ueberschuß n den erdigen Gemengtheilen verlarvt enthalten sein müßte) einige Bestätigung
-finden möchte. Daß Silicium jene Versindung wenigstens vermitteln müßte, dürfte wohl eben so gut hier, als bey den
-von Daniett u Berzelius gefundenen ahnlichen Verbindungen von Kieselerde mit metallischem Eisen, und von Lau-
-gier in sibirischen, raus zu setzen sehn, "oauf veeleiche schon der besondere Zustand, in wechen ane obige Analytiker die
-ieselerde in den meee-- Sieinen uberhaue efunnden haben, zindeutet.
-() Das quantitative Verhätniß dieses oxydirten isns n reyen giaande, als wahrer Gemengtheil, kann übrigens -- dem An-
-sehen nach - im Allgemeinen nur sehr gering, und, zumaht bey Steinen, von welchen ein bedeutender Gehalt an Eisen im
-Ganzen, chemisch ausgewiesen, aber wenig, oder vollends gar keiner als regulinisch oder geschwefelt, oryktognostisch ausge-
-sprochen ist, im Verhältniß zum chemisch gebundenen oder verlarvten, - nur höchst unbedeutend sein.
-O
+*) Es scheint demnach, dass es nicht die Gediegeneisentheilchen selbst sind, welche diese Oxydation erlitten haben, sondern vielmehr die Atome von Eisen-Oxydul und vielleicht von Schwefeleisen, welche jene einhüllen.
 
+Die Massentheilchen dieser Flecke, die bei manchen an Gediegeneisen sehr reichhaltigen Meteor-Steinen (wie z. B. bei jenen von Eichstädt und Timochin) beinahe die größere Hälfte der Grundmasse betreffen, zeigen sich unter dem Mikroscope theils als erdige, ochrige, gelbe, pommeranzen- und röthlich-gelbe, zum Theil aber als spathartige, und dann glänzende oder schillernde, ins Dunkelgelbe und Rothbraune ziehende bis ins Glasige, und dann ins Rothe verlaufende, kleine, gleichsam zusammen gekittete Massen, die mit mikroscopisch zarten Metalltheilchen gemengt sind, und zum Theil in jene Feldspathartigen Massentheilchen, welche bei der Grundmasse erwähnt worden sind, übergehen. Sie werden von der Magnetnadel lebhaft angezogen, und lassen sich äußerst schwer, zum Theil gar nicht zerstoßen, halten selbst am Amboße mehrere starke Schläge aus, und geben dann ein mehr oder weniger feines, lichter oder dunkler gelbes oder röthlich gelbes, erdiges Pulver, das zum Theil noch retractorisch ist, und ein oder mehrere Blättchen hartes und sehr zähes, metallisch glänzendes, licht eisengraues Gediegeneisen.*
 
-### 0069
+Der andere metallische Gemengtheil, der wohl nie ganz fehlen möchte,* obgleich er gewöhnlich in einem ungleich geringern, oft äußerst geringen, und offenbar gerade mit Zunahme des vorhergehenden in einem abnehmenden Verhältnisse* vorhanden, und oft, zumahl auf rohen unpolierten Flächen, äußerst schwer zu erkennen und vom vorigen zu unterscheiden ist, zeigt sich auf solchen Flächen mehr oder weniger häufig und deutlich, in äußerst zarten, meistens mikroscopischen, theils einzeln eingestreuten, theils mehr oder weniger zusammen gehäuften Puncten und Körnern, seltener in größeren, bröcklich oder körnig zusammen gehäuften Massen von sehr verschiedener, ganz unregelmäßiger Gestalt, und mehr oder minder dann verbrochen, zerrissen und zerklüftet, und bei diesem letzteren Vorkommen, von einem unebenen, feinkörnigen, bisweilen versteckt blätterigen, seltener unvollkommen und klein muschlichen Bruche, nicht selten mit krystallinischen Facetten, und unbestimmt eckige, ziemlich scharfkantige Bruchstücke gebend.
 
-54
-den Resultaten der, leider in dieser Beziehung nicht hinlänglich befriedigenden, Analysen geschlossen werden kann --
-zwischen dem Gehalte der verschiedenen Meteor-Steine an Eisen in diesem mehr oder weniger oxydirten Zustande (als
-Oxyd oder Oxydul --- wenn es ja bey diesen räthselhaften Fossilien keine anderen Mischungsverhältnisse zwischen Eisen
-und Oxygen -- so wie zwischen Eisen und Schwefel - geben sollte --- als man bey den ähnlichen Verbindungen in
-terrestrischen Fossilien als Norm annehmen zu dürfen sich berechtigt glaubt), und jenem in ausgesprochen regulinischem zu
-bestehen scheint, indem ersterer -- offenbar oder verlarvt --- in dem Maße vorwaltet, als letzterer -- wenigstens of-
-fenbar -- in einem geringern oorhanden ist (1).
-Noch kommen bey Betrachtung der Steinmasse der Meteor-Steine im Allgemeinen zwei eben so auffallende als
-merkwürdige Beschaffnheiten zu erwähnen, die, wenn sie gleich nicht zu ihrer Wesenheit gehören, und sich gerade
-nicht bey allen Stanen finden, doch sehr häufig erscheinen, und als bedeutende Zustandsveränderungen der Steinmasse,
-wo nicht als hterogene Gemengtheile, anzusehen kommen, und deren höchst räthselhafte Entstehung und Bildung ei-
-nerseits mit mancher der gangbaren Theorien über die Herkunft und die ursprüngliche Entstehung und Bildung der Mas-
-sen selbst, sehr im Widerspruche stehen, andererseits in der Folgezeit, wenn sie bey vervielfältigten Beobachtungen und
-weiteen Untersuchungen einst befriedigend sollten erklärt werden können, manche Aufklärung in letzterer Beziehung erwar-
-ten lassen dürften.
-Die eine dieser Zustandsveränderungen der Steinmasse ist das Vorkommen derselben als scharf begränzte Adern
-oder Gänge von verschiedener Mächtigkeit und Dicke; die andere bezeichnet das verschiedene Aussehen derselben auf schein-
-baren, zum Theil wirklichen Absonderungsflächen von verschiedener Ausdehnung, mitten im Innern der Steine.
-Das erstere Vorkommen findet sich --- wie ich mich nun überzeugt habe -- bey sehr vielen, und höchst wahr-
-(1) Der Total-Gehalt an Eisen in allen Zuständen und Verbindungen, in welchen dasselbe vorzukommen pflegt (rein metallisch,
-und zwar frey, oryktognostisch ausgesprochen, oder als solches vielleicht auch verlarvt; mehr oder weniger mit Schwefel ver-
-erzt als Eisen-oder aannetiie,, nd mehr oder weniger mit Orygen verbunden, as ois oder oeyon, ns ae eiches
-wieder mechanisch eingemengt oder chemisch gebunden), zusammen genommen, und alles auf Oxyd reducirt, wie es durch die
-Analyse der Steinmasse ohne mechanische Absonderung gewonnen wird, weicht bey allen bisher bekannten, dem Ansehen nach
-auch noch so yerschiedenartigen Meteor-Steinen nicht sehr ab, schwankt gewöhnlich nur zwischen 30 und 40, und steigt nur
-in höchst seltenen Fällen bis gegen 50 Percent von der gesammten Steinmasse. Davon beträgt das regulinische, sinnlich wahr-
-nehmbare, wenn es nicht, was jedoch sehr selten der Fall ist (wie bey den Steinen von Chassigny, Stannern, Alais?), ganz
-fehlt: von 1 bis 19 Percent -- wahrscheinlich wohl noch etwas mehr; -- das geschwefelte, wenn es nicht, was jedoch noch
-seltener der Fall ist (wie bey jenen von Chassigny, Alais??), ganz fehlt: von 1 bis etwa 12 oder 15; und das oxydirte
-audh - ovon iedoch in keinem Fane mehe as einie enige Percente mechanisch eingemengt sein dürften -- das Ganze
-oder den Rest jenes Total-Gehaltes. Jene Steine, welche dem Ansehen und dem specifischen Gewichte nach am reichhaltig-
-sten an mechanisch eingemengtem, zumahl gediegenem Eisen sind, enthalten im Ganzen eben nicht bedeutend mehr als jene,
-wo sich wenig oder selbst gar nichts oryktognostisch und physisch nachweisen läßt. So steht von ersteren, deren specifisches Ge-
-wicht = 3,7 ist (den Steinen von Eichstädt, Timochin, Charsonville), der Total-Gehalt an erhaltenem Oxyd beyläufig
-zwischen 36 und 43, bey letzteren, deren specifisches Gewicht zwischen 1,9 und 3,3 ist (den Steinen von Alais, Stannern,
-Benares, Eggenfeld, Parm1 zc.), zwischen 30 und 40 Percent. (Merkwürdig ist, daß das specifische Gewicht der Steine
-von Chassigny, bey welchen sich doch keine Spur von mechanisch eingemengtem Eisen oder -- außer jenen sparsamen, schwar-
-zen Atomen - von einem andern Metalle findet, und deren Eisengehalt, nach Vauquelins Ausweis, selsst nur 31 Per-
-cent an Oxyd beträgt, beynahe das Mittelgewicht der Meteor-Steine überhaupt übersteigt, indem dasselbe nach eigener Wie-
-gung 3,55 beträgt.) Bey jenen an Gediegeneisen besonders reichen Steinen endlich, und nahmentlich bey jenen von Eich-
-städt, verhält sich der Gehalt an Eisenoxyd zu dem an Gediegeneisen, nach Klaproths Angabe (die aber nicht befriedigend
-ist, indem er das gediegene Metall mit dem Magnete auszog, daher vieles, was in den erdigen Theilchen verhüllt war, mit
-in die Auflösung von diesen brachte, und durch die Operation als Oxyd erhielt), wie 16,50: 19, und bey jenen von Timo-
-chin (bey gleichem Verfahren) wie 25: 17,60, oder nach N. A. Scherer, wie 17,50: 17,75. (Von den Steinen von
-charsonville gibt Vauquelin den Total-Gehalt an Eisen mit 25,8 regulinisch an, wie er ihn nach Caleül des durch die
-Operation im Ganzen erhaltenen Oxydes herausbrachte). Bey den an Gediegeneisen besonders armen Steinen dagegen, und
-nahmentlich bey jenen von Benares, nach Howard, verhält sich der Gehalt an Eisenoxyd zu dem an ersterem, wie 34: 2;
-bey jenen von Siena, nach Klaproth, wie 252,25; bey jenen von Maurkirchen, nach Imhof, wie 40,24:2,33;
-und bey jenen von Eggenfeld, nach demselben, wie 32,54: 1,8 (wobey freylich auch nach Klaproths Methode verfahren
-worden sein mochte). Nach Stromeyers ungleich genauern und umsichtigern Analysen ergab sich für die Steine von Erx-
-leben und Kssteitz, die dem Ansehen nach (erstere mehr zu den mitel reichhaltigen an Gediegeneisen gehören, und deren spe-
-eifisches Gewicht zwischen 3,6 und 3,5 steht, ein Verhältniß von 5,57 und 4,89 an Oxydul zu 24,41 und 17,48 an me-
-tallischem Eisen, mit Inbegriff des Schwefeleisens.
+Es haben diese Körner und Massen stets ein rein metallisches Ansehen, und auf rohen Flächen der Steinmasse, zumahl die kleinsten derselben, gewöhnlich einen starken, oft sehr starken, spiegelnden, metallischen Glanz, und eine mehr oder minder rein zinkgraue, oft auch beinahe zinn- oder silberweiße, gewöhnlich aber ins Röthliche --- beinahe wie der Kupfernickel --- meistens doch ins Gelbliche, Speis- oder Messing-Gelbe ziehende Farbe.* Größere Massen erscheinen bisweilen, obgleich nur selten, matt oder doch minder glänzend, und dunkelgrau oder bräunlich, auch tombakbraun, rostbraun oder kupferröthlich, und bisweilen auch pfauenschweifig, dunkelblau, roth und Messinggelb angelaufen.
 
+Geritzt geben diese Metalltheilchen sogleich ihre Sprödigkeit zu erkennen, wodurch sie sich von den vorigen sehr auffallend unterscheiden, und mit Gewalt aus der Steinmasse gebrochen, aus welcher sie sich mehr oder weniger leicht, stückweise aussprengen lassen, kann man sie auch mehr oder minder leicht zum feinsten Pulver zerstoßen und zerreiben, das dann eine mehr oder weniger matte und schwärzliche Farbe annimmt. Jene Sprödigkeit, so wie das ganze Ansehen und Verhalten dieser metallischen Massen sowohl im Ganzen als in ihren Massenheilchen, die Entwickelung von Schwefel-Wasserstoffgas bei Behandlung mit Salzsäure, und vollends die Resultate der Analysen, geben die Natur dieses metallischen Gemengtheiles als Eisen- oder Schwefelkies, und zwar, nach letzteren, wegen des geringen Verhältnisses des Schwefels zum Eisen,* und da er auch meistens mehr oder weniger auf den Magnet wirkt,* als Schwefeleisen im Minimum oder als Magnetkies, zu erkennen.
 
-### 0070
+*) Aus dieser Beschaffenheit der Massentheilchen scheint wohl hervor zu gehen, daß dese Rostflecke kein Erzeugniß einer schnellen und oberflächlichen, und bloß durch die atmosphärische Luft bewirkten Oxydation des Gediegeneisens, und noch weniger die Folge einer bloßen Verwitterung des Schwefeleisens sein können; dagegen geben vielmehr Ansehen, Glanz, Härte, Sprödigkeit, und die Eigenschaft im Wasser nicht merklich, oder doch nur zum Theil, die Farbe zu ändern, Veranlassung, dieselben mit Eisenspath zu vergleichen.
 
-55
-scheinlich, mehr oder minder häufig und deutlich ausgesprochen, wohl bey den meisten Meteor-Steinen (1). Es zei-
-gen sich nähmlich auf rohen, und noch deutlicher auf geschnittenen, zumahl geschliffenen Flächen der Steinmasse von
-einigem Flächeninhalte, einzelne oder mehreie, oft sehr viele, kürzere oder längere, gerade laufende oder bogenförmig
-gekrümmte, auch mehrfach gebogene Adern, von sehr verschiedener, bald im ganzen Verlaufe gleichförmiger, bald all-
-mählich abnehmender, bald sehr und stellenweise jäh und stark ab- oder zunehmender Breite und Mächtigkeit, und
-zwar vom Haarfeinen, kaum dem freyen Auge sichtbaren, bis --- was jedoch höchst selten --- zu 3 Linien, welche nach
-allen Richtungen, und oft von einem Rande der Fläche bis zum andern entgegen gesetzten, und zwar an einem oder
-dem andern --- aber nicht immer mit dem breiteren Ende --- bisweilen auch an beyden Rändern, aber auch sehr oft an
-keinem, an die etwa da befindliche Rinde anstehend, oft aber auch ganz isolirt und frey im Mittel der Fläche oder
-der Steinmasse verlaufen. Es sind diese Adern theils, obgleich selten, ganz einfach, theils mehr oder weniger, oft
-sehr häufig ramificirt, und es gehen die Aeste und Zweige von verschiedener Stärke und Länge, übrigens von ähnlicher
-Beschaffenheit, wie der Hauptstamm, unter oft sehr spitzigen Winkeln, nach allen Richtungen von demselben ab, und
-verlaufen auf ähnliche Weise gegen die Ränder oder mitten in der Masse; sie sind nicht selten wieder zerästelt, durch-
-setzen und durchschneiden sich, münden sich in einander ein, oder laufen zum Theil auch eine Strecke parallel -- wie dieß
-alles nicht selten selbst die Hauptstämme, wenn deren mehrere vorhanden sind, zu thun pflegen - und bilden oft ein
-ziemlich enges, sehr ungleiches Netz oder Adergeflecht. Oft gehen diese Adern, als Gänge, in eine beträchtliche Tiefe
-mit gleicher oder abnehmender, auch wohl veränderlicher Mächtigkeit, oft bey ansehnlicher Dicke des Stückes, auf ei-
-nige Zolle; aber dieselbe Ader nicht durchaus auf gleiche Tiefe. Manche scheinen wohl bis an die Oberfläche des Stei-
-nes zu gehen, die bey weitem meisten aber nicht, und viele nur auf eine höchst unbedeutende Tiefe, so daß nach diesem
-und obigem manche -- und dieß möchte wohl die meislen treffen - ganz auf das Innerste der Steinmasse beschränkt
-sind, und mit der Oberfläche und der Außenrinde in gar keiner Verbindung stehen; andere nach einer oder zweien,
-wieder andere vielleicht nach allen Nichtungen ganz durchgehen. Nie scheinen diese Gänge auf irgend eine Tiefe ganz
-senkrecht, sondern immer mehr oder weniger schief durch die Steinmasse zu setzen.
-Die Masse, welche diese Adern und Gänge bildet, ist im Wesentlichen, die Farbe abgerechnet, von der übrigen
-Steinmasse im Allgemeinen nicht verschieden, indem sie im Gegentheile eine in jeder Beziehung ganz ununterbrochene
-Fortsetzung von dieser ausmacht, und außer der scharfen Begränzung durch die Farbe, durch gar nichts, das z. B. ei-
-nem Sahlbande gliche, geschieden ist, sondern vielmehr unmittelbar in dieselbe übergeht. Sie zeigt dieselbe Textur, die-
-selbe Beschaffenheit der Oberfläche sowohl im Bruche als im Schnitte, dasselbe, meistens doch ein etwas feineres,
-Korn, nur mehr Dichtheit, Festigkeit und Härte -- beyläufig so wie der olivinartige Gemengtheil in einem mittlern
-Grade von Ausbildung --- daher sie auch geschliffen --- so wie dieser -- eine höhere Politur und einen etwas fettigen
-Glanz annimmt, und sie enthält eben so wie die übrige Steinmasse, Gediegeneisen eingesprengt; vom olivinartigen
-Gemengtheile, nach der gewöhnlichen Art seiner Ausscheidung und Begränzung, konnte ich aber nie etwas in ihr be-
-merken. Nur, wiewohl höchst selten, und an einzelnen Stellen besonders breiter Adern, zeigt sie eine schwache Anlage
-zu einer schiefrigen Textur. Sie zeigt denselben, gewöhnlich nur etwas, höhern Grad von Wirkung auf den Magnet wie
-die übrige Steinmasse, aber einen merklich geringern als die Rinde desselben Steines.
-Das beynahe einzige und wesentlichste Merkmahl, wodurch sich die Masse dieser Adern und Gänge von der übrigen
-Steinmasse unterscheidet, ist die Farbe. Diese ist schwärzlich, oft beynahe schwarz, gewöhnlich aber graulich- oder
-(1) Ich habe zuerst (1808) auf das räthselhafte Vorkommen dieser Adern in der Masse der Meteor-Steine bey Gelegenheit der
-Beschreibung jener von Stannern, obgleich sie in diesen nur äußerst selten und gewisser Maßen unvollkommen sich zeigen,
-aufmeretan gemacht. Beynahe gleichzeitig erwähnte ihrer Herr Bergrath Reuß bey Beschreibung der bey Lissa gefallenen
-Steine, in welchen sie am häufigsten vorzukommen scheinen. Erst an den Steinen von Charsonvile machten Bigot de
-Morogues, auy und Vauquetin dieselbe Beobachtung, und in ihrer Beschreibung (1811) als von etwas ganz
-meuem und Mertcrdigem, Erwähnung davon. In der Fotg 1814) gaben die Steine von Agen Gelegenheit zur Erneue-
-rung dieser Beobachtung, welche inzwischen Chladni und ich bereits an vielen, zum Theil lang bekannt gewesenen, äl-
-teren Meteor-Seinen ur Genüge gemache haten. Nach neuerlichster Untersuchung kann ich sie nun an, mitunter ziem-
-lich kleinen, Bruchstäcken von folgenden Meteor-Steinen nachweisen: von Lisa, Agen, Doroninsk, Charsonvine, Chan-
-tonnay, Ensisheim, LAigle, Barbotan, Yortshire, Laponas, Sigena, Toulouse, Sales, Apt, Tipperary, Weston, Stan-
-nern; und bey den meisten übrigen mir außer diesen noch bekannten Meteor-Steinen möchte es wohl nur an der individuellen
-veschanenheit des vorhandene ruccssuceazser cel e- cucahe ieenn aa ich mche aasees- u tun i Stand- bin.
--
+*) Außer etwa bei den Steinen von Chassigny, wo sich durchaus nichts dafür zu erkennen gibt, und bei deren Analyse auch Vauquelin keine Spur von Schwefel finden konnte.
 
+*) Dieses merkwürdige Wechselverhältniß spricht sich bei den meisten Meteor-Steinen sehr auffallend aus. So findet man bei den an Gediegenesen sehr reichhaltigen Steinen von Eichstadt, Timochin, Tabor, Charsonville, kaum ein deutliches Korn von Schwefeleisen, und es ist dasselbe äußerst zart eingesprengt; dagegen erscheint es bei den an jenem minder reichhaltigen von Ensisheim, Sales, Lissa zc. schon weit mehr und in großeren Massen; bei den eisenarmen Steinen vollends von Siena, Maurkirchen, Benares, und besonders Parma, und den ganz eisenfreien von Stannern auffallend haufig und in ausgezeichnet großen Massen.
 
-### 0071
+*) Diese oft sehr auffallenden Abweichungen in der Farbe, auf welche schon Chladni aufmerksam machte, und deren nicht selten mehrere in einem und demselben Bruchstucke eines Steines vorkommen, scheinen wohl, zumahl sie in einigem Einklange mit den übrigen Eigenschaften, als mit der Harte und der Retractibilität stehen, au fremdartige Beimischungen (Nickel, Chrom, Mangan, Silicium), oder doch auf ein verschiedenes Verhältniß vom Schwefel zum Eisen, oder auf eine anderweitige Zustandsverschiedenheit dieses letzteren hinzudeuten.
 
-e
-blaulich-schwarz, oder blaulich- und mehr oder weniger dunkel schiefer-grau, nie so pech- oder kohlschwarz, wie die
-Rinde an manchem solcher Steine, am wenigsten braun, wie diese an den meisten, und ohne allem metallischen Anse-
-hen; dagegen oft genau so, wie der olivinartige Gemengtheil im ausgesprochneren Zustande in denselben oder in andern
-Meteor-Steinen zu erscheinen pflegt. Nur auf polierten Flächen zeigt diese Gangmasse einen mehr oder weniger aus-
-gezeichneten, etwas fettigen, und dem olivinartigen Gemengtheile im ausgesprochneren Zustande ähnlichen Glanz, auch,
-wenigstens bey dem einen Steine von Stannern, wo auch die Farbe den dunkelsten Partien jenes Gemengtheiles ent-
-spricht, ein ähnliches, zerrissenes und zersprungenes, gleichsam gekörntes Ansehen.
-Es ist bemerkenswerth, daß sich diese Adern und Gänge am häufigsten und ausgezeichnetsten in solchen Meteor-
-Steinen finden, die sich --- mit Ausnahme jener von Stannern, wo sie übrigens nur an einem unter so vielen gese-
-henen Bruchstücken, und auch hier nur in einem unvollkommenen Zustande beobachtet wurden --- durch eine beträchtliche
-Dichtheit, Festigkeit und Innigkeit des Cohäsions-Zustandes sowohl als des Aggregats-Zustandes auszeichnen (wie
-die Steine von Lissa, Agen, Charsonville, Chantonnay, Ensisheim zc.), und gerade in solchen, wo
-der olivinartige Gemengtheil nur sehr wenig, oder doch nur als solcher unvollkommen ausgesprochen und nicht sehr man-
-nigfaltig erscheint (wie dieß ebenfalls bey den genannten Steinen der Fall ist).
-Vauquelin und Chladni halten die Substanz dieser Adern und Gänge für ganz homogen mit der Nindenmasse,
-inzwischen ergibt sich aus obigem, daß sie in der Farbe stark, in der Textur und übrigen Beschaffenheit aber ganz und
-gar von dieser abweicht (wie sie denn auch gar keine Porosität und nirgend einen Uebergang in die Steinmasse zeigt, wel-
-ches beydes, wenigstens nach meiner Ansicht hinsichtlich ihrer Entstehung und Bildung, so gut wie bey der oberflächli-
-chen Rinde der Fall sein müßte), dagegen ungleich mehr Aehnlichkeit mit der übrigen Steinmasse, zumahl mit dem ei-
-nen Gemengtheile derselben erkennen läßt (1).
-(1) Vauquelin erklärte die Entstehung dieser Adern und Gänge, nach obiger Voraussetzung und in Annahme eines wahren
-Schmelz-Prozesses zur Erzeugung der Rinde (durch Erhitzung in der Luft während des Durchzuges und Niederfallens der
-Steine), wie jene der Außenrinde: durch Verbrennung des Eisens und Verschlackung der Erden durch die atmosphärische Luft,
-welche durch einen Riß, den der Stein im Glühen bekam, und der nach der Hand wieder zusammen gebacken wurde, in die
-Hase engen nr. Aean gegen diete innlnssns arst seln sien ane ine ninähn- hinsichuiuih er inung
-der Rinde im Allgemeinen zugeben könnte -- nicht nur die erwähnte Verschiedenheit der Substanz dieser Adern von jener der
-wahren Rinde, sondern die ganze Beschaffenheit und alle Eigenschaften jener, welche durchaus die Idee verbannen, daß sie,
-znaht soaterhin, durch Rise oder Sprünge der Steinmasse entstanden sein können. So die umstände: daß diese Gänge
-zineien nach auen Richtungen durch die ganze Masse durchsetzen, daher diese an solchen Stellen nothwendig zerfallen sein
-müßte; dagegen oft gan in der Mitte mit gar keiner oder nur äußerst schwacher Verbindung nach Außen erscheinen, wo dem-
-nach keine Luft eindringen konnte; oft nach Außen äußerst dünn, haarfein, im Verlaufe nach Innen aber bey einer Linie
-diek, was gerade bey einem Risse umgekehrt sein müßte; bald im ganzen Verlaufe von gleicher, bald von sehr und wieder-
-hohlt abweichender Dicke sich zeigen; daß sie ästig, verworren, beynahe ein Netz bildend, sich durchkreuzen, durchschneiden
-u. s. w., folglich einzelne Stücke umschließen, die sich hätten lostrennen müssen; daß viele zu fein fur Rise, nach der Be-
-schaenheie der Steinmase, auch oft zu grob - bis 3 Linien dick -- als daß von Außen der Riß nicht sichtbar geblieben sein
-oder das Stück sich nicht losgetrennt haben sollte, u. s. w.
-Chladni meint dagegen (wie bereits oben bey Erklärung der fünften Figur der vorhergehenden Tafel erwähnt worden
-ist), es wären diese Gänge oder (nach seiner Ansicht) Lagen durch das zufällige Zusammentreffen und Zusammenkleben bereits
-losgesprengter und schon überrindet gewesener Bruchstücke von Steinen, während ihres Niederfallens, mit ihren Flächen an
-einander, entstanden. Allein außer dem, daß (wie an jenem Orte bemerkt worden ist) ein solches Zusammentreffen nicht
-wohl denkbar, ein solches Zusammenpassen, ein so festes, inniges Vereinigen und Zusammenkleben zweier, nach Ausdehnung,
-Bruch, Umriß u. s. w. gewiß oft ganz verschiedenartigen Flächen zweier Steine, oder -- wie es nach der netzartigen Durch-
-kreuzung jener Adern anzunehmen nöthig wäre -- der Flächen gar vieler Bruchstücke gleichzeitig, gar nicht begreiflich ist; so
-ießes näie ce m ntns äic nr än inen ahenießin en am ofenbernen shiß a die- Legen nr sien nas
-allen Dimensionen des Steines ganz durchsetzen, oft gar nicht nach Außen irgendwo anstehen, sondern ganz im Mittel der
-Masse eingeschlossen sind, -- sondern insbesondere noch folgende im Widerspruche: die Feinheit und oft haarscharfe Gleichför-
-migkeit dieser Gänge, da doch die Bruchflächen und selbst die überrindete Oberslache der Steeine immer sehr uneben sind, und
-die dünnste Rinde wenigstens drei Mahl dicker zu sein pflegt; dagegen oft wieder die Dicke derselben, welche jene der gewöhn-
-lichen Rinde bisweilen ums Sechsfache übersteigt; keine Spue von einer doppelten Schichte, die sich doch ertennen lassen
-müßte, wo sie von zwei überrindeten Flächen zusammen traf; keine Spur von Porosität oder vom Uebergange der Massen-
-theilchen der Substanz derselben in jene der übrigen Steinmasse, die sich doch an der Außenrinde so deutlich aussprechen u. s. w.
-Uebrigens kommt gegen beyde Meinungen zu bemerken: daß diese Adern und Gänge sich oft, selbst in einem kleinen Bruch-
-stücke, in solcher Menge finden, daß sie sich schlechterdings nicht von so vielen Rissen und Sprüngen, am wenigsten aber von
-eben so vielen Absonderungen und Wiedervereinigungen herleiten lassen, und daß sie sich, wie bereits oben bemerkt worden ist,
-gerade am häufigsten und ...-y"9 "" 18- l zeigen, ". ".. ,estesten Soyunsss -u- usunu s vs- es" ugr
+*) Die meisten bisherigen Analysen von Meteor-Steinen lassen zwar nur durch einen bestimmt, oft auch ganz unbestimmt, und selbst nur als Spur angegebenen Gehalt an Schwefel auf die gewesene Gegenwart von geschwefeltem Eisen als Gemengtheil derselben, keinesweges aber auf dessen quantitatives Verhaltniss zur Steinmasse, am wenigsten vollends auf dessen individuelle Zusammensetzung und auf das Verhaltniss des Schwefels zum Eisen in demselben schliessen. Inzwischen hat doch Howard schon das letztere naher bestimmt, indem er 14 Gran Kies aus einem Steine von Benares fur sich analysirte, und --- obgleich mit unberechenbarem Verluste an Schwefel --- 2 Gran desselben mit 10 1/2 Gran Eisen verbunden, demnach beiläufig 20 Percent Schwefel fand. Aus Stromeyers neuesten Analysen der Steine von Erxleben und Köstritz ergibt sich (aber freilich nach stöchiometrischem Calcule, wobei es wohl in Frage stehen dürfte, ob bei diesen räthselhaften Producten so ganz zuversichtlich darauf anzugehen sein mochte) bei ersteren ein Gehalt an Magnetkies von fast 8, bei letzteren von beinahe 7 Percent, und bei beiden ein gleiches --- freilich präsumtives --- Mischungsverhältniß von 58 Schwefel zu 100 Eisen (wie es Berzelius fur den terrestrischen Magnetkies statuirt hat). Schon Howard hat Nickel --- und zwar in einem auffallend großen, unwahrscheinlichen Verhaltniss --- von beinahe 10 Percent mit diesem Schwefeleisen in Verbindung gefunden, und da Vauquelin wenigstens (Moser und Klaproth nicht) eine Spur von jenem Metalle auch in der Masse der Steine von Sannern fand, die doch gar kein reines Gediegeneisen enthalten, so dürfte es wohl einen beständigen Bestandtheil desselben ausmachen.
 
+*) Lange aber nicht aller, wie schon Graf Bournon ausdrücklich von jenem aus den Steinen von Benares, und Klaproth von dem, selbst speisgelben, aus jenem von Lissa und Erxleben bemerkt, und ich auch von jenem aus den Steinen von Siena und Maurkirchen behaupten kann, von welchem auch nicht die kleinsten Atome von der Magnetnadel in Bewegung gesetzt werden; übrigens in sehr verschiedenen Graden. Aeußerst schwach z. B. wirkt jener aus den Steinen von Parma, und mehr _en masse_ als im Pulver, vielleicht bloss in Folge der umgebenden oder anhangenden Atome von Gediegeneisen oder Eisen-Oxydul; hier und da einiger aus der Masse der Steine von Siena und Lissa, etwas starker; ausserst stark dagegen und selbst in den kleinsten Atomen, jener aus den derben Gediegeneisen-Massen. Und ich glaube bemerkt zu haben, dass der verschiedene Grad von Retractibilität dieses Kieses uberhaupt mit der Menge und Masse des vorhandenen Gediegeneisens in einem Verhältnisse stehe. Ob derselbe übrigens von den oben erwähnten verchiedenen metallischen Beimischungen, oder von einer Zustandsverschiedenheit des Eisens, oder von dem Mischungsverhältnisse des Schwefels zum Eisen abhänge, will ich vor der Hand dahin gestellt sein lassen, und nur die Analytiker darauf aufmerksam gemacht haben.
 
-### 0072
+Auf geschliffenen und polierten Flächen erscheint auch dieser Gemengtheil ungleich deutlicher, da die kleinsten Theilchen mehr zur Ansicht kommen (obgleich viele während des Schnittes ihrer Sprödigkeit halber ausgesprengt werden mögen), und sich besser, ja oft ausschließlich nur hier, von jenen des Gediegeneisens unterscheiden lassen, indem sie immer einen etwas schwächern Glanz (wahrscheinlich als Folge des Anlaufens durch die angewendete Feuchtigkeit während des Schnittes) und eine dunklere, stets ins Stahl- oder Zink-Graue fallende, und meistens ins Röthliche oder Gelbliche ziehende Farbe haben, und sich gewöhnlich (zumahl wenn in etwas größeren Massen), rissig, zersprungen und zerklüftet, oder äußerst zartkörnig angehäuft zeigen. Sie sind übrigens mehr oder weniger häufig, sehr ungleichförmig durch die ganze Steinmasse zerstreut, und eben so wie die Gediegeneisentheilchen in der Grundmasse sowohl, als, und zwar in einem ähnlichen geringeren Verhältnisse, im olivinartigen Gemengtheile, und erscheinen als äußerst zarte, oft mikroscopisch feine Puncte, entweder einzeln oder gruppirt, und in größeren oder kleineren, theils zart und vielfach ausgezackten und ausgeschlitzten, theils scharf begränzten, dichten Flecken.
 
-57
-Ich wäre vor der Hand geneigt, die Entstehung dieser Adern und Gänge, hinsichtlich des Momentes, für ganz
-gleichzeitig mit der Bildung der übrigen Steinmasse und der Bildung und Ausscheidung ihrer Gemengtheile, und, hin-
-sichtlich der Art, für ganz gleichartig mit jener der übrigen Gemengtheile, und insbesondere des noch mehr und be-
-zeichneter ausgeschiedenen und in der Wesenheit noch weit mehr abweichenden olivinartigen zu halten; die Substanz der-
-selben aber für homogen mit der Steinmasse, nur etwa mit einer kleinen Zustandsveränderung oder Modification in der
-Art der Ausscheidung, und dieselbe überhaupt zum Theil mit dem olivinartigen Gemengtheil, zum Theil mit jener Zu-
-standsveränderung der Steinmasse, von der sogleich die Rede sein wird, fur ein und dasselbe anzusehen.
-Das andere Vorkommen der Steinmasse von ungewöhnlichem Ansehen findet sich, wie es scheint, nicht minder
-häufig, und wo nicht immer, doch meistens auch bey jenen Steinen, wo obige Adern sich zeigen, so wie sich diese da-
-gegen nothwendig immer in irgend einer Richtung zeigen müssen, wo jenes Vorkommen Statt hat. Es besteht dieses
-aber in einer mehr oder weniger dicken und massiven Schichte oder Lage, gewöhnlich aber nur in einem äußerst feinen
-und dünnen Häutchen, oft nur zarten, durch die Steinmasse hie und da bisweilen selbst unterbrochenen Anfluge, von
-einer dichtern, scheinbar fremdartigen Masse, welche in Gestalt von größern oder kleinern, ganz unregelmäßigen, gar
-nicht scharf begränzten Flecken, oder mehr oder minder breiten, bandartigen, oft sehr scharf abgeschnittenen Streifen
-auf einer Bruchfläche erscheinen, und bisweilen dieselbe ganz bedecken, und die --- wie sich oft an derselben Bruchfläche,
-wenn sie groß und sehr uneben ist, noch mehr aber an entgegen gesetzten Bruchflächen eines größern Stückes zeigt --
-ganz nach Art jener Adern und Gänge, und auf ähnliche Weise hinsichtlich ihrer Ausdehnung in Bezug auf das In-
-nere und die Oberfläche des Steines, in verschiedenen, nicht selten sich durchkreuzenden und schneidenden Richtungen
-durch die Steinmasse durchsetzen.
-Es zeigen diese Flecke und Streifen, wenn sie sehr dünn und zart, zumahl anflugartig sind, die gewöhnlichen
-Unebenheiten der natürlichen Bruchfläche des Steines, und ziehen sich gleichförmig über dieselbe hinüber; wenn sie aber
-von einiger Dicke sind, erscheinen sie ebener und glatter, und unterscheiden sich solcher Gestalt auffallend von der übri-
-gen Bruchfläche des Steines. Im ersteren Falle haben sie gewöhnlich ein streifiges, bisweilen selbst ein, mehr oder
-weniger deutlich ausgesprochenes, obgleich unvollkommen schiefriges Ansehen, das selbst die Steinmasse angenommen zu
-haben scheint; im letzteren aber eine Anlage zu blätterigen Ablösungen; in beyden Fällen endlich bilden sie mehr oder
-minder vollkommene, natürliche Absonderungsflächen, oder ähnliche Stellen, nach welchen sich der Stein auch leicht zu
-spalten scheint. Letzteres doch nur dann, wenn ein bedeutender Metallgehalt ins Mittel tritt. Die Masse selbst hat im
-frischen Bruche, entweder, obgleich seltener, ein mattes erdiges, von der übrigen Steinmasse, zumahl dem olivinarti-
-gen Gemengtheil im unvollkommneren Zustande, wenig verschiedenes Ansehen, und eine schiefergraue, ins Schwärzliche
-haben, bey welchen sich daher am wenigsten Risse und Zertrümmerungen erwarten ließen, wie denn auch bey den meisten die-
-ser Meteor-Massen gar keine oder nur eine geringe Vereinzelung Statt fand (so fielen die Massen von Ensisheim, Chanton-
-nay, York -- und diese eeog ihrer bedentenden cesse -- von Tipperary, Apt, Sigena, ganz und unereinzelt, die von
-eens, chersoncne, ls si- imsnelenn eisen einn
-vorkommen, bey welchen selsst die Außeneinde in Ganzen nur wenig oder usukonnen gewesen zu sein scheint ie bey den
-Steinen von Ensisheim und Chantonnay). Bigot de Morogues wollte gefunden haben, daß die Substanz dieser Gänge
-(die er übrigens für ganz verschieden vonder oinde hält), wenigstens in den Steinen von Charsonville, ein bedeutend gerin-
-geres speeisisches Gewicht häte, als die unig. Steinnase. e and nachnlich jenes dieser lestern -3,637, dagegen das
-eines Stückes, worin eine Ader von jener Substanz vorkam, die, nach seiner Schätzung, etwa , des Ganzen betrug,
-3,635, und berechnet nach diesen (iheigen scha geringen Asaans us nach einem Caleul, gegen den sich viel einwen-
-den ließe das eigenthmliche eeiihh errst.n 3, 9,, ns( an gieiche Weise nach einer -- wahrscheinlich des zufällis
-größeren Eisengehaltes wegen -- höheren cewichtsangabe der Steinnase von Hauy 3,712) gar nur auf ,457, und
-wiaaaans arn ine Aehnlchteit dieser ee- agc sre eeimne von Aais schliesen. Die osiensar grösere Diche-
-heit dieser der-Substanz gegen die sbei. Simnasse, bey uoeigens ganz gleicher Beschafenbeit, gleichem Eisengehalte und
-t. mach- nnie senen, den an sich hshet gcil rsnlcsen elenle in eide uirgenendesains eiss hchht unnahr-
-scheinlich, und ich wollte mich demnach durch eigene Wiegung ähnlicher Stücke von demselben Steine überzeugen. Ich fand
-das sperifische Geiche eines 27 Gran wiegenden, von Rindde ewoht als Ader-Substanz ganz freyen Stuckes der Mase ei-
-ne Steines vn harsonll -,5., ne sagegen eines e een schseren et., l iencalden Steine, ".ache-
-zwar keine Rinde, aber eine, über eine ense deeite, ganz durchsehende Ader von ener Sussan, einschloß, die wenigstens
-ie- anen berus dnnnch en dr, ehi s ässülinsei äsi aeten sint., ssei st e aeuei
-utersuichee, 3,60.
+Von dem ganz mikroscopisch feinen Vorkommen dieser Kiestheilchen und deren innigen Verbindung mit den Gediegeneisentheilchen, ist bereits oben bei diesen Erwähnung geschehen; so wie auch, daß sie nur selten, wenn je, unmittelbar von Nostflecken begleitet sind.
 
+Es ist dieser Gemengtheil* für manche Meteor-Steine sehr charakteristisch (zu welchem Ende aber nothwendig eine Fläche des Steines abgeschliffen werden muß), theils durch seine Menge (wie für die Steine von Benares, Lissa, Parma zc.), oder durch seine Seltenheit (wie für jene von Eichstädt, Timochin, Tabor, Charsonville zc.), theils durch die Größe oder ausgezeichnete Farbe seiner Massen (wie für die Steine von Parma, Stannern, Maurkirchen, Benares zc.).
 
-### 0073
+*) Dieser Gemengtheil ist es vorzüglich, der die Erklärung, selbst mancher Nebenerscheinungen und Veränderungen, welche mit diesen Massen offenbar in unserer Atmosphare erst vorgehen, so schwierig macht, und zu den widersprechendsten Hypothesen Veranlassung gab. So liesse sich z. B. --- wie es denn auch, jenes und manches andern Einspruches ungeachtet, ziemlich allgemein geschieht --- das Leuchten, Glühen, Funkensprühen und endliche Zerplatzen der Feuerkugeln, und vollends die Bildung der Rinde (anscheinend! das ausgesprochene Product eines gewohnlichen Schmelz-Prozesses) uber die vereinzelten Bruchstucke derselben, durch --- unter mehr oder wenger annehmbaren Voraussetzungen zuläßliche --- Entwickelung oder Freimachung von Warmestoff am kürzesten und leichtesten erklaren, wenn nicht das häufige Vorkommen dieses Gemengtheiles in der ganzen Masse, und selbst an der Oberfläche, und ganz dicht unter der Rinde der Steine, und nahmentlich auch in den ganz reinen und derben Gediegeneisen-Massen, im ganz unveränderten Zustande seiner oft aufs höchste ausgesprochenen metallischen Beschaffenheit bei dessen leichter Zerstorbarkeit durch Hitze dagegen stritte, um so mehr als diese, wenigstens in unserer Atmosphäre, dem Einflusse des Oxygens, und bei der schweren Schmelzbarkeit der Stein- und vollends der Eisenmassen (welche letztere gerade durch ihr scheinbar geschmolzenes Ansehen manche Physiker verleiteten, sie geschmolzen flussig bis zur Erde gelangen zu machen), einen Grad voraussetzen wurde, mit dem sich das Bestehen eines Schwefeleisens schlechterdings nicht vereinbaren liesse.
 
-58
-ziehende Farbe, meistens aber, und wie es scheint, bey den an Gediegeneisen reichhaltigern Steinen, ein, wenigstens
-ganz oberflächlich mehr oder weniger metallisches, einiger Maßen dem Graphit ähnliches Ansehen, eine lichter oder
-dunkler eisengraue Farbe, und einen ziemlich starken, metallischen, fleckweise schimmernden Glanz. Dieser Glanz rührt
-von wirklich metallischem Eisen her, das an solchen Stellen in dünnen, zarten Blättchen gleichsam angeflogen, indeß
-dasselbe dort, wo diese Masse ein mehr erdiges, den übrigen Gemengtheilen mehr ähnliches Ansehen hat, eben so wie
-in diesen, körnig eingesprengt erscheint; auch zeigen sich, besonders an ersteren Stellen, sehr häufige Rostflecke; vom
-olivinartigen Gemengtheile im ausgesonderten, mehr oder weniger kugelicht begränzten Zustande, konnte ich aber in kei-
-ner Art des Vorkommens dieser Masse eine deutliche Spur bisher finden.
-Bisweilen erscheint diese Masse, zumahl im erdigen Zustande, fleckweise und in kleinern und größern, selbst in be-
-deutenden Partien von ansehnlicher Größe nach allen Dimensionen, eben so wie der olivinartige Gemengtheil, nur mehr
-unförmlich und nicht so scharf begränzt, von der übrigen wie gewöhnlich gemengten Steinmasse gleichsam abgeschie-
-den, wie dieß ganz besonders ausgezeichnet bey dem merkwürdigen, noch wenig bekannten Meteor-Steine von Chan-
-tonnay der Fall ist. Hier zeigt sich diese Masse, welche beynahe den größern Theil der --- jener der meisten Meteor-
-Steine (zumahl jenen von Tabor, Barbotan u. a.) übrigens ganz ähnlich gemengten --- Steinmasse ausmacht,
-von sehr dichtem, festem Gefüge, und sehr feinem, nicht unterscheidbarem Korne, von schwärzlich schiefergrauer Farbe,
-mattem, nur etwas schimmernden, erdigen, basaltähnlichen Ansehen, und ganz derb, im Ganzen von sehr festem Zu-
-sammenhange mit der übrigen Steinmasse, nur hie und da mit einer schwachen Anlage zur schiefrigen Textur, oder
-stellenweise zu schiefrigen Ablösungen, und gleich der übrigen Steinmasse mit zarten, stark glänzenden Metalltheilchen
-eingesprengt, sonst ganz gleichförmig. Und so erscheint dieselbe hier theils in größern und kleinern Flecken, theils in
-schmälern oder breitern Adern (ganz und in jeder Beziehung jenen anderer Meteor-Steine, zumahl jenen der Steine
-von Charsonville ähnlich), theils aber in so großen, frey anstehenden Partien, daß man ansehnliche Bruchstücke
-rein von dieser Masse erhalten kann, die dann der übrigen gemengten Steinmasse von gewöhnlichem Aussehen, dem er-
-sten Anblicke nach, so unähnlich sind, wie nur immer ein derbes Basaltstück einem feinkörnigen, eisenschüssigen Sand-
-steine sein kann, und die wohl niemand, dem bloßen äußern Ansehen nach, für Bruchstücke eines Meteor-Steines,
-am wenigsten aber für solche von diesem Steine erkennen möchte, wenn ihm nicht die Aehnlichkeit dieser Masse mit jener
-der Adern und Gänge in andern Meteor-Steinen, und das fleck- und partienweise Vorkommen derselben in diesem
-vorhinein bekannt ist (1).
-Wo der Art Schichten, Lagen, Flecke oder Streifen dieser Masse durch Bruch oder Schnitt eines Stückes in ir-
-gend einer Tiefe quer getroffen werden, müssen an der Oberfläche nothwendig Adern erscheinen, welche die Ausgänge
-derselben bezeichnen, und deren Mächtigkeit oder Breite demnach durch die Dicke, und deren Tiefe durch die Ausdeh-
-nung jener in die Breite bestimmt wird. Und aus dem, was vorhin von den Eigenheiten jener Adern und Gänge, und
-der Beschaffenheit ihrer Masse, und hier in denselben Beziehungen von diesem Vorkommen der Steinmasse bemerkt wor-
-den ist, und vollends aus den Modificationen und Uebergängen, welche jener Stein von Chantonnay hinsichtlich bey-
-der zeigt: scheint sich wohl die Identität der Masse in beyden Arten des Vorkommens zu ergeben und die Schlußfolge
-ziehen zu lassen, daß demselben, so wie dem Hervortreten des olivinartigen Gemengtheiles --- der in seiner Wesenheit
-wohl auch nicht sehr davon verschieden sein möchte --- ein und derselbe Bildungs- und Ausscheidungs-Prozeß zum
-Grunde liege, der nur durch das, obgleich nur wenig abweichende quantitative Verhältniß der entferntern Bestandtheile
-der Steinmasse im Ganzen, oder etwa durch veränderte Nebenumstände abgeändert werden, und darnach jene mannig-
-faltigen Modificationen veranlassen dürfte (2).
-(1) Ich fand das specifische Gewicht jenes Theiles der Steinmasse dieses Steines von gewöhnlichem Aussehen = 3,440 bis 3,480
-cs mir unerarte gering rtanm- enese- schsaren ncheles aber 3 ,e n tesenender untrchies, der sht
-auch nur, wie bey den Adern im Steine von Charsonville, in dem verschiedenen Grade von Dichtheit beyder Massen seinen
-Grund haben dürfte). Noch ist von diesem merkwürdigen Steine keine Analyse bekannt. Vauquelin soll seit lange schon
-d e che gehabt hasen, a. onzunehnen, ancs hase ih enen gechrten Feunde, n. profesor Stromey-r, in kiei-
-nes Senae son beyden Masen diesem Ende zugesendet.
--e nie-4, ..n.nliees- .is -nse- err
-digende bildliche Darstellung für gegenwärtige Bekanntmachung zu Stand zu bringen. Sie soll bey einer künftigen Veran-
-lassung versucht werden.
+Außer jenen vier, strengen Sinnes zur Wesenheit der Meteor-Steine, als gemengten Massen, gehörigen, dem freien Auge mehr oder weniger leicht unterscheidbaren Gemengtheilen, findet sich, wenigstens bei vielen, wo nicht allen, noch ein fünfter, der aber, auf rohen sowohl als auf geschliffenen Flächen der Steine, meistens nur mit Hülfe eines Vergrößerungsglases, und selbst dann nur schwer und sparsam, am leichtesten noch und am häufigsten in der gröblich gepülverten Steinmasse unter dem Mikroscope aufgefunden werden kann, und der in Gestalt äußerst zarter, unförmlicher, sehr ungleichförmig vertheilter und einzeln eingestreuter, nur höchst selten in äußerst kleinen Partien zusammen gehäufter, von der Masse fest eingeschlossener Puncte oder Körner von matter, schwärzlich-brauner oder schwarzer Farbe erscheint. Es zeigen sich diese Körner leicht zerreiblich, und geben ein gleichförmiges Pulver; sie werden mehr oder minder lebhaft von der Magnetnadel angezogen, und sind wohl ohne Zweifel für ein Oxyd oder Oxydul von Eisen,* von Mangan etwa zum Theil, und vielleicht auch von Chrom anzusehen.
 
+*) Bekanntlich hat Klaproth, dem wir in Deutschland die frühesten Analysen, und im Ganzen --- wo ich nicht irre --- die von sieben verschiedenen Meteor-Steinen verdanken, die Vermuthung geäußert: es käme das Eisen in allen Meteor-Steinen, ohne Ausnahme, selbst in jenen, wo sich durchaus keine Spur davon, weder physisch noch oryktognostisch, als rein und gediegen zu erkennen gibt (wie z. B. in jenen von Stannern --- wovon er doch selbst ein Stück analysirte ---), stets nur im regulinischen Zustande vor, und daß selbst jenes --- wie auch der Nickel und das Mangan --- das sich in einem größern oder geringern Antheil, auch chemisch ausgesprochen, im offenbar oxydirten Zustande fände, nicht ursprünglich so in denselben enthalten gewesen, sondern erst --- so wie die Rostflecke --- später als Folge der Oxydation des zuvor frei und gediegen vorhanden gewesenen, in der atmosphärischen Luft entstanden sei; daß dagegen alles physisch und oryktognostisch unerkennbare und chemisch mit den erdigen Gemengtheilen verbundene Eisen regulinisch in diesen (im oxygenfreien Zustande mit den einfachen Erden verbunden), in einer gegenseitig sich durchdringenden Mischung (wodurch auch dessen Wirksamkeit auf den Magnet aufgehoben werden kann) demnach bloß verlarvt --- sich befinden möchte. Es ist nicht in Abrede zu stellen, daß die Motive, welche diese Muthmaßung veranlaßten (die höchst wahrscheinliche Herstammung dieser Massen aus Regionen, wo, eben so wahrscheinlich, kein Oxygen vorhanden sei; --- das häufge Vorkommen des so rein ausgesprochenen, ganz unveränderten, und doch so leicht zerstörbaren Schwefeleisens in denselben; --- die Ermangelung irgend einer Anzeige von Oxygen-Gehalt bei den wiederhohlten Analysen; --- und endlich die Resultate des Calculs bei Bestimmung des quantitativen Verhältnisses der verschiedenen Bestandtheile der von ihm zerlegten Steine ---), dieselbe gerade nicht abnothigten, im Gegentheil manche Einspruche gestatten (wovon gleich einen z. B. der Zustand der übrigen Gemengtheile, jener der erdigen Bestandtheile, als Oxyde metallischer Basen, machen dürfte), und daß damit die bestimmt ausgesprochenen Befunde anderer Analytiker im offenbaren Widerspruche stehen, welche den Gehalt der Meteor-Steine an oxydirtem Eisen und andern Metallen (Mangan, Chrom, Nickel), und zwar nicht bloß im Zustande von mechanischer Einmengung (in welchem Falle derselbe etwa nach Klaproth als Product spaterer Erzeugung angesehen werden könnte), sondern ganz verlarvt und chemisch mit den erdigen Bestandtheilen verbunden, unwiderleglich darthun. (So erklärte Howard allen Gehalt an Eisen der von ihm analysirten Steine --- in so ferne sich dasselbe nicht als gediegen oder geschwefelt aussprach, --- so Vauquelin --- der, meines Besinnens, sogar an irgend einem Orte, alles, selbst das volkommen regulinisch vorkommende Meteor-Eisen (wahrscheinlich der besbachteten partiellen Sprödigkeit und in eben dem Grade schweren Schmiedbarkeit wegen) stets als etwas oxydirt erklärt --- eben so, und nahmentlich den ganzen, allem Ansehen nach durchaus verlarvten, doch 31 Percent betragenden Eisengehalt des Steines von Chassigny; so Moser und derselbe jenen von 27 bis 29 Percent --- wovon nur wenig auf den vorhandenen Kies fällt, und eben so wenig sich als freies Oxyd ausspricht --- der Steine von Stannern, für vollkommen oxydirtes Eisen; so gibt endlich Stromeyer den Gehalt an wahrhaft --- aber nur oxydulirten --- Eisen der Steine von Erxleben und Köstritz auf 5 Percent an.) Inzwischen verdient doch, meines Erachtens, Klaproths Vermuthung noch alle Beachtung und besondere Aufmerksamkeit, und dieß um so mehr, als dieselbe durch die --- oben in einer note bei den Gediegeneisen --- bereits erwähnten Umstände (der innigen, wenn gleich nur mechanisch scheinenden Verbindung der Eisen- und Erdetheilchen, selbst in den mikroscopischen Massentheilchen, --- der selbst auf chemischem Wege erst moglichen, vollkommenen Scheidung beider, --- dem bei verschiedenen Meteor-Eisen so merklich abweichenden, und bei jenem aus Meteor-Steinen so auffallend geringen specifischen Gewichte, und den anscheinend verschiedenen Graden von Retractibilitat desselben ---) neue Bekraftigung zu erhalten scheint, und in der, dem chemisch ausgewiesenen oder sinnlich wahrnehmbaren Gehalte an Eisen, oft nicht entsprechenden Angabe des specifischen Gewichts mancher Steine, und selbst, wie mir däucht, in obigen und manch andern, ziemlich sich widersprechenden Resultaten, insbesondere aber in jenen der, gewiss hochst verlasslichen Analysen Stromeyers (nach welchen ein nur sehr geringer Theil --- und zwar bei anscheinend nur wenig Gediegeneisen und Kies führenden Steinen --- von Eisen, und dieß nur im Minimum oxydirt, dagegen ein bedeutenderer Antheil an regulinischen ausgewiesen wird, als nach jenem Anscheine erwartet werden sollte, wovon demnach der Ueberschuß in den erdigen Gemengtheilen verlarvt enthalten sein müßte) einige Bestätigung finden möchte. Daß Silicium jene Verbindung wenigstens vermitteln müßte, dürfte wohl eben so gut hier, als bei den von Daniell und Berzelius gefundenen ahnlichen Verbindungen von Kieselerde mit metallischem Eisen, und von Laugier in sibirischen, voraus zu setzen sehn, worauf vielleicht schon der besondere Zustand, in welchem alle obige Analytiker die Kieselerde in den Meteor-Steinen uberhaupt gefunden haben, hindeutet.
 
-### 0074
+Höchst selten, und nur bei einigen Meteor-Steinen (nach meiner Ueberzeugung und deutlich nur bei jenen von Chassigny und Lissa) erscheint dieser Gemengtheil in etwas größeren, eben so zerstreuten Massen von beinahe pechschwarzer Farbe, und ziemlich starkem, etwas fettigem Glanze, die wenig oder gar nicht auf den Magnet wirken.
 
-Stannern.
-(zn, bey 4 Loth wiegendes, auf drei Seiten (den Resten von drei verbrochenen ursprünglichen Flächen) mit Rinde
-- von der gewöhnlichsten Art und Beschaffenheit -- bedecktes, frisches Bruchstück eines - allem Ansehen nach ---
-ursprünglich ziemlich groß gewesenen Steines von Stannern, welches mit unter denen war, die bey Gelegenheit der
-abgehaltenen Untersuchungs-Commission von verschiedenen, gleich anfänglich in viele Stücke zerschlagenen Steinen, an
-Ort und Stelle erhalten, und welches, des ausgezeichneten Mengungszustandes der Steinmasse wegen, für die Samm-
-lung bestimmt wurde (1).
-Es zeigt dasselbe im Ganzen den, den Meteor-Steinen von Stannern eigenthümlichen, lockern, ziemlich leicht
-zerreiblichen Cohäsions-Zustand der Masse (2), und auf der einen, hier vorgestellten, mit zwei Rändern an die Rinden-
-decke anstehenden, sehr roh und grob erzeugten, frischen Bruchfläche insbesondere-- auf etwa 1 Quadrat-Zoll Oberfläche
-- bey einem sehr unebenen, unbestimmt eckige und ziemlich scharfkantige Bruchstücke, andeutenden Bruch -- den gewöhn-
-lichen, feinen, undeutlich ausgesprochenen und verworrenen, aber ziemlich gleichförmigen und innigen Aggregats-Zu-
-stand; ferner die eigene, theils bröcklig-kornige, theils gleichsam filzig-faserige Textur von äußerst feinem Korne, und
-endlich die, wie gewöhnlich, im Ganzen ziemlich gleichförmig gemengte Steinmasse, von mattem, mehr oder weniger
-erdigen, rauhen, magern, beynahe bimssteinartigen Ansehen, und theils kalkweißer, theils blaulich- oder perlgrauer
-Farbe, in welcher die Gemengtheile zum Theil so undeutlich ausgesprochen und innig gemengt, wenigstens so gleichför-
-mig vertheilt sind, daß keiner derselben vorzugsweise als Grundmasse betrachtet werden kann.
-Der eine, mehr erdige, lockere und rauhe Gemengtheil, von meistens kalkweißer Farbe, welcher aller Analogie
-nach für die Grundmasse angesprochen werden muß (3), zeigt sich theils in pülverigen, fast staubartigen Puncten und
-sehr kleinen Flecken, theils in kurzen, schmalen, nach allen Richtungen laufenden, filzig-faserigen Streifchen (4); der
-andere, festere, dichtere und mehr glatte Gemengtheil dagegen, von lichter und dunkler blaulich- oder perlgrauer Farbe
-(welcher eben so dem mehr oder weniger kugelichten --- olivinartigen --- Gemengtheile anderer Meteor-Steine ent-
-spricht), erscheint theils mehr oder weniger innig gemengt, theils mehr oder weniger scharf geschieden, und abwechselnd
-mit jenem, bald in ähnlichen, aber festern und dichtern Puncten, kleinen Flecken, Körnern und kleinen Massen, bald,
-obgleich seltner, in ähnlichen, eben so beschaffenen Streifchen; und beyde Gemengtheile so, daß bald der eine, bald
-der andere von denselben, stellenweise mehr oder minder vorwaltet (5).
-(1) Es sind nähmlich aus einem Vorrathe von 93 Stücken, zusammen an 46 Pfund wiegend, welcher theils unmittelbar bey Ge-
-iegenn ee isitersechung an d t s Ste, , ns nachträguich dunch ernierelune -e. aielcinnmes alen, nn
-auf andern Wegen von diesem Steinfalle zusammen gebracht wurde, 22 Stück und mehrere kleine Fragmenenen
-nahe an 25 Pfund, und zwar eilf ganze, mehr oder weniger vollkommen überrindete Steine, und eben so viele größere und
-mehrere kleine Bruchstucke, sr ie aseeliche Sammlung ausgewählt worden, in so ferne sie bemerkenswerthe Abweichungen
-in de- rssse und een, ee ei c ensei dee ante ns der Steinnas- eigten.
-c So daß sie dehn hsbsnhenn ersuche, Feuer zu schlagen, zeeniesr, "ns nahert as ierin, in aufsteigender Progresion -
-" s lin. " a- ss .., ia-n- "es it n- d-nt
-0,
-aurriechen, Benares, Parma, Siena, wche ietztern unter diesen die dichtesten und festesten sind.
-(3) Sowohl dem äußern Ansehen nach, das sich an einigen Stücken -- wie selbst an diesem - durch stärkeres Hervortreten der
-adern Gemengtheiles (welches sich am besten auf polierten Flächen zu erkennen gibt) schon deutlich genug ausspricht, als nach
-en physischen Eigenschaften und chemischen Bestandtheilen, in eechen aeh ereloe dem gleichnahmigen und voutommmen al-
-solchen ausgesprochenen in andern Meteor-Steinen, und zwar stufenweise und nachweisbar -- oft an einem und demselben
-ae. (ie der nächst zu beschreibende Stein zeigen wied naßer. ielleicht hat der große Gehalt an Thonerde 7 -9
-i , ss eecn,, n s nn se ge-
-teor Sieine so sehr von allen übrigen auszeichnen -- die Ausbidung oder Ausscheidung dieses Gemengtheiles - welchem
-vorzüglich Kiesel-und Talterde zukommen verhindert.
-aein, Diphee. uch in den Steinen von Siena, Benares, parma, zumahl aber in jenen von Maurkirchen und Eggenfeld,
-zeigt sich die Grundmasse stellen und partienweise von gleicher Beschafsenheit.
-(5) Auf geschliffenen und polierten Flächen zeigt sich das Gemenge, nach dem verschiedenen Vorwalten des letzteren Gemengtheiles,
-desen mehr oder minder scharfen Ausscheidung und Begränzung, Gestaltung und verschiedenen Intensität der Farbe, eheils
-Granit-oder Porphyr-theils Marmorartig, und dieser Gemengtheil fällt hier durch seine größere Dichte - die mit der
-Scharfe der Begränzung der Massen und mi der Intensität der garbe im Verhältnise stehe - noch mehr auf, indem er, und
-wwar in denselben Graden, eine ziemlich aute poltur annimne und einen etwas fettigen Gianz zeist.
-P 2
+Für Partikelchen von Rinde-Substanz, wofür sie, wenigstens zum Theil, Chladni anzusehen geneigt ist, kann man diese Körner, zumahl ersterer Art, nicht wohl erkennen, da sie nicht nur in ganzen Ansehen und durch ihre Retractibilität (vorzüglich bei Steinen, wo es die Atome der Rinde gar nicht sind, wie z. B. bei jenen von Stannern, wo sie doch gerade am häufigsten vorkommen) sich davon unterscheiden, sondern auch die Art des Vorkommens und der Einmengung aller --- so sparsam und vereinzelnt, und überhaupt so selten, --- so mikrosopisch zart und isolirt, gar nicht in die Steinmasse übergehend (wie dieß doch bei der oberflächlichen Rinde im Contacte mit jener so auffallend Statt hat), und in einem gekörnten Zustande --- mit jeder möglich denkbaren Art von Entsteyng und Bildung von Rinde-Substanz mitten in der Steinmasse, nahmentlich aber mit jener durch Einknetung, im Widerspruche steht. Leichter könnte man diese Körner, wenigstens letztere, dunklere, glänzende, mit dem olivinartigen Gonengtheile oder mit der Substanz, die auch in Adern vorzukommen pflegt, und von welcher sogleich die Rede sein wird, verwechseln, mit welchen diese aber auch (zumahl jene in den Steinen von Lissa) ziemlich gleicher Natur sein möchten. Am häufigsten und deutlichsten, und zwar größten Theils von bedeutender, dem freyen Auge wenigstens erkennbarer Größe, kommen derley Körner in der Masse der Steine von Chassigny vor. Diese scheinen aber eben so wenig oxydirtes Eisen als Rinde-Substanz zu sein. Dem ersteren widerspricht nähmlich die pechschwarze Farbe, der starke, etwas fettige Glanz, das krystallinische Ansehen und die gänzliche Unwirksamkeit auf die Magnetnadel, ausgenommen in einzelnen wenigen, mikroscopisch kleinen Splittern, in so ferne auch die ganze Steinmasse einige Wirksamkeit äußert; dem letztern aber --- nebst obigen Gründen in Betreff der Art des Vorkommens und der Einmengung --- Farbe, Glanz, und die ganze Beschaffenheit, verglichen mit der oberflächlichen, ganz eigenen Rinde dieser Steine, die überdieß, obgleich schwach, doch merklich genug auf den Magnet wirkt.
 
+Der ausgezeichnete Gehalt dieser Steine an Chrom, von 2 Percent, welches Metall hier, nach Vauquelin, rein und regulinisch vorkommen soll, läßt mit allem Grunde vermuthen, daß es dieses Metall sei, welches hier auf solche Art erscheint, indeß dasselbe in den übrigen Meteor-Steinen, wo es bisher, fast durchgehends zwar, aber nur als Spur, oder in der sehr unbedeutenden Menge von 1/4 bis 1 Percent gefunden worden ist, wahrscheinlich auf gleiche Art eingestreut, aber, nach Stromeyers Vermuthung, immer als Oxyd und in Verbindung mit Eisen, als wahres Chromeisen, vorkommt.
 
-### 0075
+Daß jene Atome von oxydirtem Eisen am häufigsten und mikroscopisch zart, in Begleitung und inniger, wenn gleich mechanischer Verbindung mit den eingemengten Gediegeneisentheilchen, selbst bei deren mikroscopischen Erscheinen in den Massentheilchen der erdigen Gemengtheile, im Gefolge letzterer, und wahrscheinlich in Gesellschaft von ähnlichen Kies-Atomen, vorkommen, dieselben gleichsam einhüllen, und sich erst bei Fletschung derselben als schwarzes, mehr oder weniger retractiles Pulver zu erkennen geben, und daß es vorzüglich diese Atome sein möchten, von welchen die Rostflecke in der Steinmasse vorzugsweise herrühren --- ist bereits bei Beschreibung des Gediegeneisens bemerkt worden, und daß dieselben einen wesentlichen Einfluß auf den Cohäsions-Zustand, den Magnetismus, auf das specifische Gewicht, und mittelbar wenigstens, auf das äußere Ansehen der Steinmasse im Ganzen haben müssen, ergibt sich aus ihrer Natur und dem hierüber Vorgebrachten.*
 
-60
-An der einen Seite der vorgestellten Fläche dieses Bruchstückes aber erscheint dieser letztere Gemengtheil als eine
-bedeutend große, dreieckige, gleichsam ausgeschiedene, isolirte Masse, obgleich nicht sehr scharf begränzt, von beynahe
-lavendelblauer Farbe, und ein ganz ähnlicher, nur ungleich kleinerer, aber mehr dreieckiger und schärfer begränzter Fleck
-zeigt sich auf der andern Seite (1).
-Zum Theil mit freyem Auge, mehr aber doch mit Hülfe einer Loupe, entdeckt man in diesem Gemenge äußerst
-zarte, einzelne, matte, schwarze Körner (2) (wohl größten Theils Eisenoxyd, vielleicht auch Chromeisen), und eben
-so zarte, aber hie und da zusammen gehäufte, mehr oder weniger glänzende Metalltheilchen von zinkgrauer, theils ins
-Röthliche, theils ins Gelbliche fallender Farbe (Schwefeleisen) (3), ziemlich häufig eingestreut; von regulinischem Ei-
-sen findet sich aber an diesem Stücke, so wie überhaupt in den Steinen von Stannern, keine Spur (4), und eben
-so wenig eine Andeutung von Rostflecken, die (wie bereits pben erwähnt worden ist), wo nicht ausschließlich, doch vor-
-zugsweise das mechanisch eingemengte Gediegeneisen und dessen Umgebung zu begleiten pflegen.
-Von Adern und Gängen, oder von einer andern Zustandsverschiedenheit der Steinmasse (von welchen oben in der
-Einleitung zur Erklärung dieser Tafel die Rede war), zeigt sich an diesem Stücke ebenfalls keine Spur, und überhaupt
-zeigte, unter so vielen gesehenen Bruchstücken, nur eines das Vorkommen von erstern in den Meteor-Steinen von
-Stannern.
+*) Das quantitative Verhältniß dieses oxydirten Eisens im freien Zustande, als wahrer Gemengtheil, kann übrigens --- dem Ansehen nach --- im Allgemeinen nur sehr gering, und, zumaht bei Steinen, von welchen ein bedeutender Gehalt an Eisen im Ganzen, chemisch ausgewiesen, aber wenig, oder vollends gar keiner als regulinisch oder geschwefelt, oryktognostisch ausgesprochen ist, im Verhältniß zum chemisch gebundenen oder verlarvten, --- nur höchst unbedeutend sein.
+
+Höchst merkwürdig aber ist wohl das Wechselverhältniß, welches --- in so weit aus dem äußern Ansehen und den Resultaten der, leider in dieser Beziehung nicht hinlänglich befriedigenden, Analysen geschlossen werden kann --- zwischen dem Gehalte der verschiedenen Meteor-Steine an Eisen in diesem mehr oder weniger oxydirten Zustande (als Oxyd oder Oxydul --- wenn es ja bei diesen räthselhaften Fossilien keine anderen Mischungsverhältnisse zwischen Eisen und Oxygen --- so wie zwischen Eisen und Schwefel --- geben sollte --- als man bei den ähnlichen Verbindungen in terrestrischen Fossilien als Norm annehmen zu dürfen sich berechtigt glaubt), und jenem in ausgesprochen regulinischem zu bestehen scheint, indem ersterer --- offenbar oder verlarvt --- in dem Maße vorwaltet, als letzterer --- wenigstens offenbar --- in einem geringern vorhanden ist.*
+
+*) Der Total-Gehalt an Eisen in allen Zuständen und Verbindungen, in welchen dasselbe vorzukommen pflegt (rein metallisch, und zwar frei, oryktognostisch ausgesprochen, oder als solches vielleicht auch verlarvt; mehr oder weniger mit Schwefel vererzt als Eisen- oder Magnetkies, und mehr oder weniger mit Oxygen verbunden, als Oxyd oder Oxydul, und als solches wieder mechanisch eingemengt oder chemisch gebunden), zusammen genommen, und alles auf Oxyd reducirt, wie es durch die Analyse der Steinmasse ohne mechanische Absonderung gewonnen wird, weicht bei allen bisher bekannten, dem Ansehen nach auch noch so verschiedenartigen Meteor-Steinen nicht sehr ab, schwankt gewöhnlich nur zwischen 30 und 40, und steigt nur in höchst seltenen Fällen bis gegen 50 Percent von der gesammten Steinmasse. Davon beträgt das regulinische, sinnlich wahrnehmbare, wenn es nicht, was jedoch sehr selten der Fall ist (wie bei den Steinen von Chassigny, Stannern, Alais?), ganz fehlt: von 1 bis 19 Percent --- wahrscheinlich wohl noch etwas mehr; --- das geschwefelte, wenn es nicht, was jedoch noch seltener der Fall ist (wie bei jenen von Chassigny, Alais??), ganz fehlt: von 1 bis etwa 12 oder 15; und das oxydirte endlich --- wovon jedoch in keinem Falle mehr als einige wenige Percente mechanisch eingemengt sein dürften --- das Ganze oder den Rest jenes Total-Gehaltes. Jene Steine, welche dem Ansehen und dem specifischen Gewichte nach am reichhaltigsten an mechanisch eingemengtem, zumahl gediegenem Eisen sind, enthalten im Ganzen eben nicht bedeutend mehr als jene, wo sich wenig oder selbst gar nichts oryktognostisch und physisch nachweisen läßt. So steht von ersteren, deren specifisches Gewicht = 3,7 ist (den Steinen von Eichstädt, Timochin, Charsonville), der Total-Gehalt an erhaltenem Oxyd beiläufig zwischen 36 und 43, bei letzteren, deren specifisches Gewicht zwischen 1,9 und 3,3 ist (den Steinen von Alais, Stannern, Benares, Eggenfeld, Parma zc.), zwischen 30 und 40 Percent. (Merkwürdig ist, daß das specifische Gewicht der Steine von Chassigny, bei welchen sich doch keine Spur von mechanisch eingemengtem Eisen oder --- außer jenen sparsamen, schwarzen Atomen --- von einem andern Metalle findet, und deren Eisengehalt, nach Vauquelins Ausweis, selbst nur 31 Percent an Oxyd beträgt, beinahe das Mittelgewicht der Meteor-Steine überhaupt übersteigt, indem dasselbe nach eigener Wiegung 3,55 beträgt.) Bei jenen an Gediegeneisen besonders reichen Steinen endlich, und nahmentlich bei jenen von Eichstädt, verhält sich der Gehalt an Eisenoxyd zu dem an Gediegeneisen, nach Klaproths Angabe (die aber nicht befriedigend ist, indem er das gediegene Metall mit dem Magnete auszog, daher vieles, was in den erdigen Theilchen verhüllt war, mit in die Auflösung von diesen brachte, und durch die Operation als Oxyd erhielt), wie 16,50 : 19, und bei jenen von Timochin (bei gleichem Verfahren) wie 25 : 17,60, oder nach N. A. Scherer, wie 17,50 : 17,75. (Von den Steinen von Charsonville gibt Vauquelin den Total-Gehalt an Eisen mit 25,8 regulinisch an, wie er ihn nach Calcül des durch die Operation im Ganzen erhaltenen Oxydes herausbrachte). Bei den an Gediegeneisen besonders armen Steinen dagegen, und nahmentlich bei jenen von Benares, nach Howard, verhält sich der Gehalt an Eisenoxyd zu dem an ersterem, wie 34 : 2; bei jenen von Siena, nach Klaproth, wie 25 : 2,25; bei jenen von Maurkirchen, nach Imhof, wie 40,24 : 2,33; und bei jenen von Eggenfeld, nach demselben, wie 32,54 : 1,8 (wobei freilich auch nach Klaproths Methode verfahren worden sein mochte). Nach Stromeyers ungleich genauern und umsichtigern Analysen ergab sich für die Steine von Erxleben und Kostritz, die dem Ansehen nach (erstere mehr) zu den mittel reichhaltigen an Gediegeneisen gehören, und deren specifisches Gewicht zwischen 3,6 und 3,5 steht, ein Verhältniß von 5,57 und 4,89 an Oxydul zu 24,41 und 17,48 an metallischem Eisen, mit Inbegriff des Schwefeleisens.
+
+Noch kommen bei Betrachtung der Steinmasse der Meteor-Steine im Allgemeinen zwei eben so auffallende als merkwürdige Beschaffnheiten zu erwähnen, die, wenn sie gleich nicht zu ihrer Wesenheit gehören, und sich gerade nicht bei allen Stanen finden, doch sehr häufig erscheinen, und als bedeutende Zustandsveränderungen der Steinmasse, wo nicht als hterogene Gemengtheile, anzusehen kommen, und deren höchst räthselhafte Entstehung und Bildung einerseits mit mancher der gangbaren Theorien über die Herkunft und die ursprüngliche Entstehung und Bildung der Massen selbst, sehr im Widerspruche stehen, andererseits in der Folgezeit, wenn sie bei vervielfältigten Beobachtungen und weiteen Untersuchungen einst befriedigend sollten erklärt werden können, manche Aufklärung in letzterer Beziehung erwarten lassen dürften.
+
+Die eine dieser Zustandsveränderungen der Steinmasse ist das Vorkommen derselben als scharf begränzte Adern oder Gänge von verschiedener Mächtigkeit und Dicke; die andere bezeichnet das verschiedene Aussehen derselben auf scheinbaren, zum Theil wirklichen Absonderungsflächen von verschiedener Ausdehnung, mitten im Innern der Steine.
+
+Das erstere Vorkommen findet sich --- wie ich mich nun überzeugt habe --- bei sehr vielen, und höchst wahrscheinlich, mehr oder minder häufig und deutlich ausgesprochen, wohl bei den meisten Meteor-Steinen.* Es zeigen sich nähmlich auf rohen, und noch deutlicher auf geschnittenen, zumahl geschliffenen Flächen der Steinmasse von einigem Flächeninhalte, einzelne oder mehreie, oft sehr viele, kürzere oder längere, gerade laufende oder bogenförmig gekrümmte, auch mehrfach gebogene Adern, von sehr verschiedener, bald im ganzen Verlaufe gleichförmiger, bald allmählich abnehmender, bald sehr und stellenweise jäh und stark ab- oder zunehmender Breite und Mächtigkeit, und zwar vom Haarfeinen, kaum dem freyen Auge sichtbaren, bis --- was jedoch höchst selten --- zu 3 Linien, welche nach allen Richtungen, und oft von einem Rande der Fläche bis zum andern entgegen gesetzten, und zwar an einem oder dem andern --- aber nicht immer mit dem breiteren Ende --- bisweilen auch an beiden Rändern, aber auch sehr oft an keinem, an die etwa da befindliche Rinde anstehend, oft aber auch ganz isolirt und frey im Mittel der Fläche oder der Steinmasse verlaufen. Es sind diese Adern theils, obgleich selten, ganz einfach, theils mehr oder weniger, oft sehr häufig ramificirt, und es gehen die Aeste und Zweige von verschiedener Stärke und Länge, übrigens von ähnlicher Beschaffenheit, wie der Hauptstamm, unter oft sehr spitzigen Winkeln, nach allen Richtungen von demselben ab, und verlaufen auf ähnliche Weise gegen die Ränder oder mitten in der Masse; sie sind nicht selten wieder zerästelt, durchsetzen und durchschneiden sich, münden sich in einander ein, oder laufen zum Theil auch eine Strecke parallel --- wie dieß alles nicht selten selbst die Hauptstämme, wenn deren mehrere vorhanden sind, zu thun pflegen --- und bilden oft ein ziemlich enges, sehr ungleiches Netz oder Adergeflecht. Oft gehen diese Adern, als Gänge, in eine beträchtliche Tiefe mit gleicher oder abnehmender, auch wohl veränderlicher Mächtigkeit, oft bei ansehnlicher Dicke des Stückes, auf einige Zolle; aber dieselbe Ader nicht durchaus auf gleiche Tiefe. Manche scheinen wohl bis an die Oberfläche des Steines zu gehen, die bei weitem meisten aber nicht, und viele nur auf eine höchst unbedeutende Tiefe, so daß nach diesem und obigem manche --- und dieß möchte wohl die meislen treffen --- ganz auf das Innerste der Steinmasse beschränkt sind, und mit der Oberfläche und der Außenrinde in gar keiner Verbindung stehen; andere nach einer oder zweien, wieder andere vielleicht nach allen Richtungen ganz durchgehen. Nie scheinen diese Gänge auf irgend eine Tiefe ganz senkrecht, sondern immer mehr oder weniger schief durch die Steinmasse zu setzen.
+
+*) Ich habe zuerst (1808) auf das räthselhafte Vorkommen dieser Adern in der Masse der Meteor-Steine bei Gelegenheit der Beschreibung jener von Stannern, obgleich sie in diesen nur äußerst selten und gewisser Maßen unvollkommen sich zeigen, aufmerksam gemacht. Beinahe gleichzeitig erwähnte ihrer Herr Bergrath Reuß bei Beschreibung der bei Lissa gefallenen Steine, in welchen sie am häufigsten vorzukommen scheinen. Erst an den Steinen von Charsonville machten Bigot de Morogues, Hauy und Vauquelin dieselbe Beobachtung, und in ihrer Beschreibung (1811) als von etwas ganz Neuem und Merkwurdigem, Erwähnung davon. In der Folge (1814) gaben die Steine von Agen Gelegenheit zur Erneuerung dieser Beobachtung, welche inzwischen Chladni und ich bereits an vielen, zum Theil lang bekannt gewesenen, älteren Meteor-Seinen ur Genüge gemache hatten. Nach neuerlichster Untersuchung kann ich sie nun an, mitunter ziemlich kleinen, Bruchstucken von folgenden Meteor-Steinen nachweisen: von Lisa, Agen, Doroninsk, Charsonville, Chantonnay, Ensisheim, L'Aigle, Barbotan, Yorkshire, Laponas, Sigena, Toulouse, Sales, Apt, Tipperary, Weston, Stannern; und bei den meisten übrigen mir außer diesen noch bekannten Meteor-Steinen möchte es wohl nur an der individuellen Beschaffenheit des vorhandenen Bruchstucks oder siner Bruchflache liegen, dass ich nicht dasselbe zu thun im Stande bin.
+
+Die Masse, welche diese Adern und Gänge bildet, ist im Wesentlichen, die Farbe abgerechnet, von der übrigen Steinmasse im Allgemeinen nicht verschieden, indem sie im Gegentheile eine in jeder Beziehung ganz ununterbrochene Fortsetzung von dieser ausmacht, und außer der scharfen Begränzung durch die Farbe, durch gar nichts, das z. B. einem Sahlbande gliche, geschieden ist, sondern vielmehr unmittelbar in dieselbe übergeht. Sie zeigt dieselbe Textur, dieselbe Beschaffenheit der Oberfläche sowohl im Bruche als im Schnitte, dasselbe, meistens doch ein etwas feineres, Korn, nur mehr Dichtheit, Festigkeit und Härte --- beiläufig so wie der olivinartige Gemengtheil in einem mittlern Grade von Ausbildung --- daher sie auch geschliffen --- so wie dieser --- eine höhere Politur und einen etwas fettigen Glanz annimmt, und sie enthält eben so wie die übrige Steinmasse, Gediegeneisen eingesprengt; vom olivinartigen Gemengtheile, nach der gewöhnlichen Art seiner Ausscheidung und Begränzung, konnte ich aber nie etwas in ihr bemerken. Nur, wiewohl höchst selten, und an einzelnen Stellen besonders breiter Adern, zeigt sie eine schwache Anlage zu einer schiefrigen Textur. Sie zeigt denselben, gewöhnlich nur etwas, höhern Grad von Wirkung auf den Magnet wie die übrige Steinmasse, aber einen merklich geringern als die Rinde desselben Steines.
+
+Das beinahe einzige und wesentlichste Merkmahl, wodurch sich die Masse dieser Adern und Gänge von der übrigen Steinmasse unterscheidet, ist die Farbe. Diese ist schwärzlich, oft beinahe schwarz, gewöhnlich aber graulich- oder blaulich-schwarz, oder blaulich- und mehr oder weniger dunkel schiefer-grau, nie so pech- oder kohlschwarz, wie die Rinde an manchem solcher Steine, am wenigsten braun, wie diese an den meisten, und ohne allem metallischen Ansehen; dagegen oft genau so, wie der olivinartige Gemengtheil im ausgesprochneren Zustande in denselben oder in andern Meteor-Steinen zu erscheinen pflegt. Nur auf polierten Flächen zeigt diese Gangmasse einen mehr oder weniger ausgezeichneten, etwas fettigen, und dem olivinartigen Gemengtheile im ausgesprochneren Zustande ähnlichen Glanz, auch, wenigstens bei dem einen Steine von Stannern, wo auch die Farbe den dunkelsten Partien jenes Gemengtheiles entspricht, ein ähnliches, zerrissenes und zersprungenes, gleichsam gekörntes Ansehen.
+
+Es ist bemerkenswerth, daß sich diese Adern und Gänge am häufigsten und ausgezeichnetsten in solchen Meteor-Steinen finden, die sich --- mit Ausnahme jener von Stannern, wo sie übrigens nur an einem unter so vielen gesehenen Bruchstücken, und auch hier nur in einem unvollkommenen Zustande beobachtet wurden --- durch eine beträchtliche Dichtheit, Festigkeit und Innigkeit des Cohäsions-Zustandes sowohl als des Aggregats-Zustandes auszeichnen (wie die Steine von Lissa, Agen, Charsonville, Chantonnay, Ensisheim zc.), und gerade in solchen, wo der olivinartige Gemengtheil nur sehr wenig, oder doch nur als solcher unvollkommen ausgesprochen und nicht sehr mannigfaltig erscheint (wie dieß ebenfalls bei den genannten Steinen der Fall ist).
+
+Vauquelin und Chladni halten die Substanz dieser Adern und Gänge für ganz homogen mit der Rindenmasse, inzwischen ergibt sich aus obigem, daß sie in der Farbe stark, in der Textur und übrigen Beschaffenheit aber ganz und gar von dieser abweicht (wie sie denn auch gar keine Porosität und nirgend einen Uebergang in die Steinmasse zeigt, welches beides, wenigstens nach meiner Ansicht hinsichtlich ihrer Entstehung und Bildung, so gut wie bei der oberflächlichen Rinde der Fall sein müßte), dagegen ungleich mehr Aehnlichkeit mit der übrigen Steinmasse, zumahl mit dem einen Gemengtheile derselben erkennen läßt.*
+
+*) Vauquelin erklärte die Entstehung dieser Adern und Gänge, nach obiger Voraussetzung und in Annahme eines wahren Schmelz-Prozesses zur Erzeugung der Rinde (durch Erhitzung in der Luft während des Durchzuges und Niederfallens der Steine), wie jene der Außenrinde: durch Verbrennung des Eisens und Verschlackung der Erden durch die atmosphärische Luft, welche durch einen Riß, den der Stein im Glühen bekam, und der nach der Hand wieder zusammen gebacken wurde, in die Masse eingedrungen war. Allein gegen diese Muthmassung streiten --- wenn man auch jene Annahme hinsichtlich der Bildung der Rinde im Allgemeinen zugeben könnte --- nicht nur die erwähnte Verschiedenheit der Substanz dieser Adern von jener der wahren Rinde, sondern die ganze Beschaffenheit und alle Eigenschaften jener, welche durchaus die Idee verbannen, daß sie, zumahl spaterhin, durch Risse oder Sprünge der Steinmasse entstanden sein können. So die Umstände: daß diese Gänge bisweilen nach allen Richtungen durch die ganze Masse durchsetzen, daher diese an solchen Stellen nothwendig zerfallen sein müßte; dagegen oft ganz in der Mitte mit gar keiner oder nur äußerst schwacher Verbindung nach Außen erscheinen, wo demnach keine Luft eindringen konnte; oft nach Außen äußerst dünn, haarfein, im Verlaufe nach Innen aber bei einer Linie dick, was gerade bei einem Risse umgekehrt sein müßte; bald im ganzen Verlaufe von gleicher, bald von sehr und wiederhohlt abweichender Dicke sich zeigen; daß sie ästig, verworren, beinahe ein Netz bildend, sich durchkreuzen, durchschneiden u. s. w., folglich einzelne Stücke umschließen, die sich hätten lostrennen müssen; daß viele zu fein fur Risse, nach der Beschaffenheit der Steinmasse, auch oft zu grob --- bis 3 Linien dick --- als daß von Außen der Riß nicht sichtbar geblieben sein oder das Stück sich nicht losgetrennt haben sollte, u. s. w.  
+Chladni meint dagegen (wie bereits oben bei Erklärung der fünften Figur der vorhergehenden Tafel erwähnt worden ist), es wären diese Gänge oder (nach seiner Ansicht) Lagen durch das zufällige Zusammentreffen und Zusammenkleben bereits losgesprengter und schon überrindet gewesener Bruchstücke von Steinen, während ihres Niederfallens, mit ihren Flächen an einander, entstanden. Allein außer dem, daß (wie an jenem Orte bemerkt worden ist) ein solches Zusammentreffen nicht wohl denkbar, ein solches Zusammenpassen, ein so festes, inniges Vereinigen und Zusammenkleben zweier, nach Ausdehnung, Bruch, Umriß u. s. w. gewiß oft ganz verschiedenartigen Flächen zweier Steine, oder --- wie es nach der netzartigen Durchkreuzung jener Adern anzunehmen nöthig wäre --- der Flächen gar vieler Bruchstücke gleichzeitig, gar nicht begreiflich ist; so stehen mit dieser Meinung nicht nur alle obigen Wahrnehmungen, am offenbarsten wohl jene, dass diese Lagen nur selten nach allen Dimensionen des Steines ganz durchsetzen, oft gar nicht nach Außen irgendwo anstehen, sondern ganz im Mittel der Masse eingeschlossen sind, --- sondern insbesondere noch folgende im Widerspruche: die Feinheit und oft haarscharfe Gleichförmigkeit dieser Gänge, da doch die Bruchflächen und selbst die überrindete Oberflache der Steine immer sehr uneben sind, und die dünnste Rinde wenigstens drei Mahl dicker zu sein pflegt; dagegen oft wieder die Dicke derselben, welche jene der gewöhnlichen Rinde bisweilen ums Sechsfache übersteigt; keine Spur von einer doppelten Schichte, die sich doch erkennen lassen müßte, wo sie von zwei überrindeten Flächen zusammen traf; keine Spur von Porosität oder vom Uebergange der Massentheilchen der Substanz derselben in jene der übrigen Steinmasse, die sich doch an der Außenrinde so deutlich aussprechen u. s. w. Uebrigens kommt gegen beide Meinungen zu bemerken: daß diese Adern und Gänge sich oft, selbst in einem kleinen Bruchstücke, in solcher Menge finden, daß sie sich schlechterdings nicht von so vielen Rissen und Sprüngen, am wenigsten aber von eben so vielen Absonderungen und Wiedervereinigungen herleiten lassen, und daß sie sich, wie bereits oben bemerkt worden ist, gerade am haufigsten und deutlichsten bei solchen Steinen zeigen, die den festesten Cohasions-Zustand und das dichteste Gefuge haben, bei welchen sich daher am wenigsten Risse und Zertrümmerungen erwarten ließen, wie denn auch bei den meisten dieser Meteor-Massen gar keine oder nur eine geringe Vereinzelung Statt fand (so fielen die Massen von Ensisheim, Chantonnay, York --- und diese trotz ihrer bedeutenden Grosse --- von Tipperary, Apt, Sigena, ganz und unvereinzelt, die von Laponas, Charsonville, Lissa, nur als zwei, drei oder vier Stucke herab); endlich, dass sie bisweilen in solchen Steinen vorkommen, bei welchen selbst die Außenrinde im Ganzen nur wenig oder unvollkommen gewesen zu sein scheint (wie bei den Steinen von Ensisheim und Chantonnay). Bigot de Morogues wollte gefunden haben, daß die Substanz dieser Gänge (die er übrigens für ganz verschieden von der Rinde hält), wenigstens in den Steinen von Charsonville, ein bedeutend geringeres specifisches Gewicht hätte, als die ubrige Steinmasse. Er fand nahmlich jenes dieser letztern = 3,637, dagegen das eines Stückes, worin eine Ader von jener Substanz vorkam, die, nach seiner Schätzung, etwa 1/15 des Ganzen betrug, = 3,635, und berechnet nach diesem (ubrigens hochst geringen Abstand und nach einem Calcul, gegen den sich viel einwenden ließe) das eigenthuliche Gewicht derselben auf 3,592, und (auf gleiche Weise nach einer --- wahrscheinlich des zufällig größeren Eisengehaltes wegen --- höheren Gewichtsangabe der Steinmasse von Hauy = 3,712) gar nur auf 2,457, und will daraus auf eine Aehnlichkeit dieser Substanz mit der Masse der Steine von Alais schliessen. Die offenbar grossere Dichtheit dieser Ader-Substanz gegen die ubrige Steinmasse, bei ubrigens ganz gleicher Beschaffenheit, gleichem Eisengehalte und s. w. machte mir jenen, dem an sich hochst unverlasslichen Calcule zum Grunde liegenden, reellen Befund selbst hochst unwahrscheinlich, und ich wollte mich demnach durch eigene Wiegung ähnlicher Stücke von demselben Steine überzeugen. Ich fand das specifische Gewicht eines 27 1/2 Gran wiegenden, von Rinde sowohl als Ader-Substanz ganz freien Stuckes der Masse eines Steines von Charsonville = 3,571; jenes dagegen eines 26 1/4 Gran schweren Stuckes von demselben Steine, welches zwar keine Rinde, aber eine, über eine Linie breite, ganz durchsetzende Ader von jener Substanz einschloß, die wenigstens 1/5 des Ganzen betrug (was demnach ein drei Mahl so auffallendes Resultat geben konnte, als das von Bigot de Morogues untersuchte), = 3,658.
+
+Ich wäre vor der Hand geneigt, die Entstehung dieser Adern und Gänge, hinsichtlich des Momentes, für ganz gleichzeitig mit der Bildung der übrigen Steinmasse und der Bildung und Ausscheidung ihrer Gemengtheile, und, hinsichtlich der Art, für ganz gleichartig mit jener der übrigen Gemengtheile, und insbesondere des noch mehr und bezeichneter ausgeschiedenen und in der Wesenheit noch weit mehr abweichenden olivinartigen zu halten; die Substanz derselben aber für homogen mit der Steinmasse, nur etwa mit einer kleinen Zustandsveränderung oder Modification in der Art der Ausscheidung, und dieselbe überhaupt zum Theil mit dem olivinartigen Gemengtheil, zum Theil mit jener Zustandsveränderung der Steinmasse, von der sogleich die Rede sein wird, fur ein und dasselbe anzusehen.
+
+Das andere Vorkommen der Steinmasse von ungewöhnlichem Ansehen findet sich, wie es scheint, nicht minder häufig, und wo nicht immer, doch meistens auch bei jenen Steinen, wo obige Adern sich zeigen, so wie sich diese dagegen nothwendig immer in irgend einer Richtung zeigen müssen, wo jenes Vorkommen Statt hat. Es besteht dieses aber in einer mehr oder weniger dicken und massiven Schichte oder Lage, gewöhnlich aber nur in einem äußerst feinen und dünnen Häutchen, oft nur zarten, durch die Steinmasse hie und da bisweilen selbst unterbrochenen Anfluge, von einer dichtern, scheinbar fremdartigen Masse, welche in Gestalt von größern oder kleinern, ganz unregelmäßigen, gar nicht scharf begränzten Flecken, oder mehr oder minder breiten, bandartigen, oft sehr scharf abgeschnittenen Streifen auf einer Bruchfläche erscheinen, und bisweilen dieselbe ganz bedecken, und die --- wie sich oft an derselben Bruchfläche, wenn sie groß und sehr uneben ist, noch mehr aber an entgegen gesetzten Bruchflächen eines größern Stückes zeigt --- ganz nach Art jener Adern und Gänge, und auf ähnliche Weise hinsichtlich ihrer Ausdehnung in Bezug auf das Innere und die Oberfläche des Steines, in verschiedenen, nicht selten sich durchkreuzenden und schneidenden Richtungen durch die Steinmasse durchsetzen.
+
+Es zeigen diese Flecke und Streifen, wenn sie sehr dünn und zart, zumahl anflugartig sind, die gewöhnlichen Unebenheiten der natürlichen Bruchfläche des Steines, und ziehen sich gleichförmig über dieselbe hinüber; wenn sie aber von einiger Dicke sind, erscheinen sie ebener und glatter, und unterscheiden sich solcher Gestalt auffallend von der übrigen Bruchfläche des Steines. Im ersteren Falle haben sie gewöhnlich ein streifiges, bisweilen selbst ein, mehr oder weniger deutlich ausgesprochenes, obgleich unvollkommen schiefriges Ansehen, das selbst die Steinmasse angenommen zu haben scheint; im letzteren aber eine Anlage zu blätterigen Ablösungen; in beiden Fällen endlich bilden sie mehr oder minder vollkommene, natürliche Absonderungsflächen, oder ähnliche Stellen, nach welchen sich der Stein auch leicht zu spalten scheint. Letzteres doch nur dann, wenn ein bedeutender Metallgehalt ins Mittel tritt. Die Masse selbst hat im frischen Bruche, entweder, obgleich seltener, ein mattes erdiges, von der übrigen Steinmasse, zumahl dem olivinartigen Gemengtheil im unvollkommneren Zustande, wenig verschiedenes Ansehen, und eine schiefergraue, ins Schwärzliche ziehende Farbe, meistens aber, und wie es scheint, bei den an Gediegeneisen reichhaltigern Steinen, ein, wenigstens ganz oberflächlich mehr oder weniger metallisches, einiger Maßen dem Graphit ähnliches Ansehen, eine lichter oder dunkler eisengraue Farbe, und einen ziemlich starken, metallischen, fleckweise schimmernden Glanz. Dieser Glanz rührt von wirklich metallischem Eisen her, das an solchen Stellen in dünnen, zarten Blättchen gleichsam angeflogen, indeß dasselbe dort, wo diese Masse ein mehr erdiges, den übrigen Gemengtheilen mehr ähnliches Ansehen hat, eben so wie in diesen, körnig eingesprengt erscheint; auch zeigen sich, besonders an ersteren Stellen, sehr häufige Rostflecke; vom olivinartigen Gemengtheile im ausgesonderten, mehr oder weniger kugelicht begränzten Zustande, konnte ich aber in keiner Art des Vorkommens dieser Masse eine deutliche Spur bisher finden.
+
+Bisweilen erscheint diese Masse, zumahl im erdigen Zustande, fleckweise und in kleinern und größern, selbst in bedeutenden Partien von ansehnlicher Größe nach allen Dimensionen, eben so wie der olivinartige Gemengtheil, nur mehr unförmlich und nicht so scharf begränzt, von der übrigen wie gewöhnlich gemengten Steinmasse gleichsam abgeschieden, wie dieß ganz besonders ausgezeichnet bei dem merkwürdigen, noch wenig bekannten Meteor-Steine von Chantonnay der Fall ist. Hier zeigt sich diese Masse, welche beinahe den größern Theil der --- jener der meisten Meteor-Steine (zumahl jenen von Tabor, Barbotan u. a.) übrigens ganz ähnlich gemengten --- Steinmasse ausmacht, von sehr dichtem, festem Gefüge, und sehr feinem, nicht unterscheidbarem Korne, von schwärzlich schiefergrauer Farbe, mattem, nur etwas schimmernden, erdigen, basaltähnlichen Ansehen, und ganz derb, im Ganzen von sehr festem Zusammenhange mit der übrigen Steinmasse, nur hie und da mit einer schwachen Anlage zur schiefrigen Textur, oder stellenweise zu schiefrigen Ablösungen, und gleich der übrigen Steinmasse mit zarten, stark glänzenden Metalltheilchen eingesprengt, sonst ganz gleichförmig. Und so erscheint dieselbe hier theils in größern und kleinern Flecken, theils in schmälern oder breitern Adern (ganz und in jeder Beziehung jenen anderer Meteor-Steine, zumahl jenen der Steine von Charsonville ähnlich), theils aber in so großen, frey anstehenden Partien, daß man ansehnliche Bruchstücke rein von dieser Masse erhalten kann, die dann der übrigen gemengten Steinmasse von gewöhnlichem Aussehen, dem ersten Anblicke nach, so unähnlich sind, wie nur immer ein derbes Basaltstück einem feinkörnigen, eisenschüssigen Sandsteine sein kann, und die wohl niemand, dem bloßen äußern Ansehen nach, für Bruchstücke eines Meteor-Steines, am wenigsten aber für solche von diesem Steine erkennen möchte, wenn ihm nicht die Aehnlichkeit dieser Masse mit jener der Adern und Gänge in andern Meteor-Steinen, und das fleck- und partienweise Vorkommen derselben in diesem vorhinein bekannt ist.*
+
+*) Ich fand das specifische Gewicht jenes Theiles der Steinmasse dieses Steines von gewöhnlichem Aussehen = 3,440 bis 3,480 (das mir unerwartet gering vorkam); jenes des schwarzen Antheiles aber = 3,490 (ein unbedeutender Unterschied, der wohl auch nur, wie bei den Adern im Steine von Charsonville, in dem verschiedenen Grade von Dichtheit beider Massen seinen Grund haben dürfte). Noch ist von diesem merkwürdigen Steine keine Analyse bekannt. Vauquelin soll seit lange schon die Absicht gehabt haben, sie vorzunehmen; auch habe ich meinem geehrten Freunde, Hrn. Professor Stromeyer, ein kleines Stuck von beiden Massen dieses Steines zu diesem Ende zugesendet.
+
+Wo der Art Schichten, Lagen, Flecke oder Streifen dieser Masse durch Bruch oder Schnitt eines Stückes in irgend einer Tiefe quer getroffen werden, müssen an der Oberfläche nothwendig Adern erscheinen, welche die Ausgänge derselben bezeichnen, und deren Mächtigkeit oder Breite demnach durch die Dicke, und deren Tiefe durch die Ausdehnung jener in die Breite bestimmt wird. Und aus dem, was vorhin von den Eigenheiten jener Adern und Gänge, und der Beschaffenheit ihrer Masse, und hier in denselben Beziehungen von diesem Vorkommen der Steinmasse bemerkt worden ist, und vollends aus den Modificationen und Uebergängen, welche jener Stein von Chantonnay hinsichtlich beider zeigt: scheint sich wohl die Identität der Masse in beiden Arten des Vorkommens zu ergeben und die Schlußfolge ziehen zu lassen, daß demselben, so wie dem Hervortreten des olivinartigen Gemengtheiles --- der in seiner Wesenheit wohl auch nicht sehr davon verschieden sein möchte --- ein und derselbe Bildungs- und Ausscheidungs-Prozeß zum Grunde liege, der nur durch das, obgleich nur wenig abweichende quantitative Verhältniß der entferntern Bestandtheile der Steinmasse im Ganzen, oder etwa durch veränderte Nebenumstände abgeändert werden, und darnach jene mannigfaltigen Modificationen veranlassen dürfte.*
+
+*) Es war zur Zeit nicht moglich, von dieser merkwurdigen Zustandsveranderung der Steinmasse der Meteor-Steine eine befriedigende bildliche Darstellung für gegenwärtige Bekanntmachung zu Stande zu bringen. Sie soll bei einer künftigen Veranlassung versucht werden.
+
+# Stannern.
+
+Ein, bei 4 Loth wiegendes, auf drei Seiten (den Resten von drei verbrochenen ursprünglichen Flächen) mit Rinde --- von der gewöhnlichsten Art und Beschaffenheit --- bedecktes, frisches Bruchstück eines --- allem Ansehen nach --- ursprünglich ziemlich groß gewesenen Steines von Stannern, welches mit unter denen war, die bei Gelegenheit der abgehaltenen Untersuchungs-Commission von verschiedenen, gleich anfänglich in viele Stücke zerschlagenen Steinen, an Ort und Stelle erhalten, und welches, des ausgezeichneten Mengungszustandes der Steinmasse wegen, für die Sammlung bestimmt wurde.*
+
+*) Es sind nähmlich aus einem Vorrathe von 93 Stücken, zusammen an 46 Pfund wiegend, welcher theils unmittelbar bei Gelegenheit der Untersuchung an Ort und Stelle, theils nachtraglich durch Vermittelung des k. k. Kreisamtes zu Iglau, und auf andern Wegen von diesem Steinfalle zusammen gebracht wurde, 22 Stück und mehrere kleine Fragmente, zusammen nahe an 25 Pfund, und zwar eilf ganze, mehr oder weniger vollkommen überrindete Steine, und eben so viele größere und mehrere kleine Bruchstucke, fur die kaiserliche Sammlung ausgewählt worden, in so ferne sie bemerkenswerthe Abweichungen in der Grosse und Form, oder in der Beschaffenheit der Rinde und der Steinmasse zeigten.
+
+Es zeigt dasselbe im Ganzen den, den Meteor-Steinen von Stannern eigenthümlichen, lockern, ziemlich leicht zerreiblichen Cohäsions-Zustand der Masse,* und auf der einen, hier vorgestellten, mit zwei Rändern an die Rindendecke anstehenden, sehr roh und grob erzeugten, frischen Bruchfläche insbesondere --- auf etwa 1 1/2 Quadrat-Zoll Oberfläche --- bei einem sehr unebenen, unbestimmt eckige und ziemlich scharfkantige Bruchstücke, andeutenden Bruch --- den gewöhnlichen, feinen, undeutlich ausgesprochenen und verworrenen, aber ziemlich gleichförmigen und innigen Aggregats-Zustand; ferner die eigene, theils bröcklig-kornige, theils gleichsam filzig-faserige Textur von äußerst feinem Korne, und endlich die, wie gewöhnlich, im Ganzen ziemlich gleichförmig gemengte Steinmasse, von mattem, mehr oder weniger erdigen, rauhen, magern, beinahe bimssteinartigen Ansehen, und theils kalkweißer, theils blaulich- oder perlgrauer Farbe, in welcher die Gemengtheile zum Theil so undeutlich ausgesprochen und innig gemengt, wenigstens so gleichförmig vertheilt sind, daß keiner derselben vorzugsweise als Grundmasse betrachtet werden kann.
+
+*) So dass sie beim schwachsten Versuche, Feuer zu schlagen, zerstiebt, und nahert sich hierin, in aufsteigender Progression --- mit Ausnahme der Steine von Alais und Chassigny, die im Ganzen noch lockerer sind --- jener der Steine von Eggenfeld, Maurkirchen, Benares, Parma, Siena, welche letztern unter diesen die dichtesten und festesten sind.
+
+Der eine, mehr erdige, lockere und rauhe Gemengtheil, von meistens kalkweißer Farbe, welcher aller Analogie nach für die Grundmasse angesprochen werden muß,* zeigt sich theils in pülverigen, fast staubartigen Puncten und sehr kleinen Flecken, theils in kurzen, schmalen, nach allen Richtungen laufenden, filzig-faserigen Streifchen*; der andere, festere, dichtere und mehr glatte Gemengtheil dagegen, von lichter und dunkler blaulich- oder perlgrauer Farbe (welcher eben so dem mehr oder weniger kugelichten --- olivinartigen --- Gemengtheile anderer Meteor-Steine entspricht), erscheint theils mehr oder weniger innig gemengt, theils mehr oder weniger scharf geschieden, und abwechselnd mit jenem, bald in ähnlichen, aber festern und dichtern Puncten, kleinen Flecken, Körnern und kleinen Massen, bald, obgleich seltner, in ähnlichen, eben so beschaffenen Streifchen; und beide Gemengtheile so, daß bald der eine, bald der andere von denselben, stellenweise mehr oder minder vorwaltet.*
+
+*) Sowohl dem äußern Ansehen nach, das sich an einigen Stücken --- wie selbst an diesem --- durch stärkeres Hervortreten der andern Gemengtheiles (welches sich am besten auf polierten Flächen zu erkennen gibt) schon deutlich genug ausspricht, als nach den physischen Eigenschaften und chemischen Bestandtheilen, in welchen sich derselbe dem gleichnahmigen und vollkommmen als solchen ausgesprochenen in andern Meteor-Steinen, und zwar stufenweise und nachweisbar --- oft an einem und demselben Stucke --- (wie der nächst zu beschreibende Stein zeigen wird) nahert. Vielleicht hat der große Gehalt an Thonerde (7-9 bis 14 Percent) und an Kalkerde (9 bis 12 Percent), und der um so geringere an Talkerde (= 2) --- wodurch sich diese Meteor-Sieine so sehr von allen übrigen auszeichnen --- die Ausbildung oder Ausscheidung dieses Gemengtheiles --- welchem vorzüglich Kiesel- und Talkerde zukommen --- verhindert.
+
+*) Dem aussern Ansehen nach haben diese Streifchen einige Aehnlichkeit mit einer Art des Vorkommens von Werners Schmelzstein, Dipyre. Auch in den Steinen von Siena, Benares, Parma, zumahl aber in jenen von Maurkirchen und Eggenfeld, zeigt sich die Grundmasse stellen- und partienweise von gleicher Beschaffenheit.
+
+*) Auf geschliffenen und polierten Flächen zeigt sich das Gemenge, nach dem verschiedenen Vorwalten des letzteren Gemengtheiles, dessen mehr oder minder scharfen Ausscheidung und Begränzung, Gestaltung und verschiedenen Intensität der Farbe, theils Granit- oder Porphyr-theils Marmorartig, und dieser Gemengtheil fällt hier durch seine größere Dichte --- die mit der Scharfe der Begränzung der Massen und mit der Intensität der Farbe im Verhältnisse steht --- noch mehr auf, indem er, und zwar in denselben Graden, eine ziemlich gute Politur annimmt und einen etwas fettigen Glanz zeigt.
+
+An der einen Seite der vorgestellten Fläche dieses Bruchstückes aber erscheint dieser letztere Gemengtheil als eine bedeutend große, dreieckige, gleichsam ausgeschiedene, isolirte Masse, obgleich nicht sehr scharf begränzt, von beinahe lavendelblauer Farbe, und ein ganz ähnlicher, nur ungleich kleinerer, aber mehr dreieckiger und schärfer begränzter Fleck zeigt sich auf der andern Seite *.
+
+Zum Theil mit freyem Auge, mehr aber doch mit Hülfe einer Loupe, entdeckt man in diesem Gemenge äußerst zarte, einzelne, matte, schwarze Körner* (wohl größten Theils Eisenoxyd, vielleicht auch Chromeisen), und eben so zarte, aber hie und da zusammen gehäufte, mehr oder weniger glänzende Metalltheilchen von zinkgrauer, theils ins Röthliche, theils ins Gelbliche fallender Farbe (Schwefeleisen),* ziemlich häufig eingestreut; von regulinischem Eisen findet sich aber an diesem Stücke, so wie überhaupt in den Steinen von Stannern, keine Spur,* und eben so wenig eine Andeutung von Rostflecken, die (wie bereits oben erwähnt worden ist), wo nicht ausschließlich, doch vorzugsweise das mechanisch eingemengte Gediegeneisen und dessen Umgebung zu begleiten pflegen.
+
+Von Adern und Gängen, oder von einer andern Zustandsverschiedenheit der Steinmasse (von welchen oben in der Einleitung zur Erklärung dieser Tafel die Rede war), zeigt sich an diesem Stücke ebenfalls keine Spur, und überhaupt zeigte, unter so vielen gesehenen Bruchstücken, nur eines das Vorkommen von erstern in den Meteor-Steinen von Stannern.
+
 (1) Ich verweise auf das, was in Hinsicht der beyden erdigen Gemengtheile und dieses letzteren olivinartigen insbesondere, in der
 Einleitung zur Erklärung dieser Tafel im Allgemeinen vorgebracht worden ist, und bemerke hier nur noch, daß sich dieser un-
 vollkommene Grad von Ausscheidung und Figurirung desselben ganz genau so, auch bey andern Meteor-Steinen (z. B. bey
