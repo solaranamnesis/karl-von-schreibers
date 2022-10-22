@@ -852,499 +852,160 @@ Der eine, mehr erdige, lockere und rauhe Gemengtheil, von meistens kalkweißer F
 
 An der einen Seite der vorgestellten Fläche dieses Bruchstückes aber erscheint dieser letztere Gemengtheil als eine bedeutend große, dreieckige, gleichsam ausgeschiedene, isolirte Masse, obgleich nicht sehr scharf begränzt, von beinahe lavendelblauer Farbe, und ein ganz ähnlicher, nur ungleich kleinerer, aber mehr dreieckiger und schärfer begränzter Fleck zeigt sich auf der andern Seite *.
 
-Zum Theil mit freyem Auge, mehr aber doch mit Hülfe einer Loupe, entdeckt man in diesem Gemenge äußerst zarte, einzelne, matte, schwarze Körner* (wohl größten Theils Eisenoxyd, vielleicht auch Chromeisen), und eben so zarte, aber hie und da zusammen gehäufte, mehr oder weniger glänzende Metalltheilchen von zinkgrauer, theils ins Röthliche, theils ins Gelbliche fallender Farbe (Schwefeleisen),* ziemlich häufig eingestreut; von regulinischem Eisen findet sich aber an diesem Stücke, so wie überhaupt in den Steinen von Stannern, keine Spur,* und eben so wenig eine Andeutung von Rostflecken, die (wie bereits oben erwähnt worden ist), wo nicht ausschließlich, doch vorzugsweise das mechanisch eingemengte Gediegeneisen und dessen Umgebung zu begleiten pflegen.
+Zum Theil mit freiem Auge, mehr aber doch mit Hülfe einer Loupe, entdeckt man in diesem Gemenge äußerst zarte, einzelne, matte, schwarze Körner* (wohl größten Theils Eisenoxyd, vielleicht auch Chromeisen), und eben so zarte, aber hie und da zusammen gehäufte, mehr oder weniger glänzende Metalltheilchen von zinkgrauer, theils ins Röthliche, theils ins Gelbliche fallender Farbe (Schwefeleisen),* ziemlich häufig eingestreut; von regulinischem Eisen findet sich aber an diesem Stücke, so wie überhaupt in den Steinen von Stannern, keine Spur,* und eben so wenig eine Andeutung von Rostflecken, die (wie bereits oben erwähnt worden ist), wo nicht ausschließlich, doch vorzugsweise das mechanisch eingemengte Gediegeneisen und dessen Umgebung zu begleiten pflegen.
+
+*) Ich verweise auf das, was in Hinsicht der beiden erdigen Gemengtheile und dieses letzteren olivinartigen insbesondere, in der Einleitung zur Erklärung dieser Tafel im Allgemeinen vorgebracht worden ist, und bemerke hier nur noch, daß sich dieser unvollkommene Grad von Ausscheidung und Figurirung desselben ganz genau so, auch bei andern Meteor-Steinen (z. B. bei jenen von Siena, Ensisheim, L'Aigle u. f. w.), und nicht selten in Verbindung mit vollkommneren Graden von Ausbildung desselben sinde. Auch ist bemerkenswerth, daß an einem kleinen, etwas über 4 Loth wiegenden, beinahe ganzen, mit besonders dunner, nur wenig und weitzellig-aderiger Rinde bedeckten Steine von Stannern, von welchem ein Stück abgebrochen worden war --- die ganze Masse ausschließlich aus diesem letztern Gemengtheile zu bestehen scheint, indem die ganze, doch bei 1 1/2 Quadrat-Zoll betragende Oberfläche der quer über den ganzen Stein ausgedehnten Bruchfläche ein ganz gleichförmiges Ansehen hat, und einen festen Cohäsions-Zustand, eine eben so dichte, äußerst feinkörnige Textur, und eine licht lavendelblaue Farbe zeigt.
+
+*) Auch in dieser Beziehung verweise ich auf das, in Betreff dieses mikroscopischen und unbeständigen Gemengtheiles, oben in der Einleitung Gesagte, und bemerke nur, daß die Menge desselben auch hier nur höchst unbedeutend ist, und bei dem durch die Analysen ausgewiesenen Eisengehalte dieser Steine (mit Inbegriff des Schwefeleisens = 27 bis 32 Percent) kaum in Anschlag gebracht werden kann; daß übrigens die Atome davon keinesweges mit Rinde-Substanz verwechselt werden können.
+
+*) Von diesem Gemengtheile finden sich an andern Stücken dieser Meteor-Steine nicht selten beträchtliche Partien und Massen (häufiger und ungleich größere als bei irgen einem andern, mit Ausnahme jener von Parma, und etwa der von Benares, Maurkirchen und Lissa) eingemengt, wie bei Beschreibung eines zweiten, auf dieser Tafel dargestellten, und in dieser Beziehung besonders ausgezeichneten Bruchstückes, gezeigt werden wird.
+
+*) Dieser Mangel an Gediegeneisen, wodurch sich die Steine von Stannern mit jenen von Chassigny bisher ausschließlich (denn von jenen von Alais ist es zweifelhaft, und von jenen von Agen erwähnter Maßen unrichtig) von allen bisher bekannten Meteor-Steinen auszeichnen, spricht sich auch durch das bedeutend geringere specifische Gewicht aus (= 3,1 bis 3,2), welches nur bei jenen von Alais noch geringer ist (= 1,9); dagegen jenem der Steine von Benares, Eggenfeld, Parma, Siena, Maurkirchen, als den, jenen von Stannern in jeder Beziehung nächst verwandtesten Meteor-Steinen (wo dasselbe zwischen 3,3 und 3,4 schwankt) --- die auch nur einen geringen Gehalt an Gediegeneisen zeigen --- am nächsten kömmt. Bei den meisten übrigen Meteor-Steinen steht dasselbe zwischen 3,5 und 3,7. Vom Ensisheimer ist das specifische Gewicht mit 3,23 zu gering angegeben worden, wie nach der ausgezeichneten Dichtheit der Masse dieses Steines und dem nicht so ganz unbedeutenden Gehalt an Gediegeneisen zu vermuthen war, und beträgt nach eigener Wiegung 3,480 bis 3,490. Eine merkwürdige Abweichung in dieser Beziehung zeigt die Masse der Steine von Chassigny, deren specifisches Gewicht --- bei gänzlichem Mangel an mechanisch eingemengtem Geiegeneisen, und selbst an Schwefeleisen --- nach eigener Ueberzeugung, doch 3,550 beträgt.) Noch bestimmter äußert sich übrigens der Mangel an Gediegeneisen bei diesen Steinen von Stannern durch die gänzliche Unwirksamkeit der Masse sowohl als selbst der Rinde auf die empfindlichste Magnetnadel, die nur von letzterer an einzelnen seltenen Puncten kaum merklich in Bewegung gesetzt wird, und aus der fein gepülverten Masse und Rinde nur äußerst wenige, einzelne mikroscopische Körnchen anzieht, die allem Ansehen nach Eisenoxydul sind. Da übrigens der Total-Gehalt an Eisen der Steine von Stannern nach den Analysen Mosers, Klaproths und Vauquelins zwischen 27 und 32 Percent beträgt, das eingemengte Schwefeleisen im Durchschnitt nach einer oberflächlichen Schätzung kaum 5 Percent der Masse, das eben so vorhandene Oxyd aber kaum so viel betragen kann; so muß der größte Antheil des Gehaltes in den erdigen Gemengtheilen chemisch gebunden (als Oxyd nach Moser und Vauquelin), oder in irgend einem Zustande verlarvt enthalten sein.
 
 Von Adern und Gängen, oder von einer andern Zustandsverschiedenheit der Steinmasse (von welchen oben in der Einleitung zur Erklärung dieser Tafel die Rede war), zeigt sich an diesem Stücke ebenfalls keine Spur, und überhaupt zeigte, unter so vielen gesehenen Bruchstücken, nur eines das Vorkommen von erstern in den Meteor-Steinen von Stannern.
 
-(1) Ich verweise auf das, was in Hinsicht der beyden erdigen Gemengtheile und dieses letzteren olivinartigen insbesondere, in der
-Einleitung zur Erklärung dieser Tafel im Allgemeinen vorgebracht worden ist, und bemerke hier nur noch, daß sich dieser un-
-vollkommene Grad von Ausscheidung und Figurirung desselben ganz genau so, auch bey andern Meteor-Steinen (z. B. bey
-ienen von Sena, ein, euiige u. f. w. ), und nicht selten in Berbindung mit volkommneren Graden von Ausbil-
-dung desselben sinde. uch ist bemertenswerth, daß an einem kleinen, etwas über 4 Loth wiegenden, beynahe ganzen, mit
-läisssäsls, .,r rts in eninzei, erieer nd- beckten Steine von Sianne-n, " wesen oricheni ein einci aieesro-
-chen worden war - die ganze ane ansschegnch us diesen leutern Gemengtheile zu bestehen scheint, indem die ganze,
-dech bey nadragen- oetceh er uer üter den ganzen Stein ansgedehnten Bruchsache ein ganz gleichss-
-mges Ansehen hat, und einen festen Cohäsions-Zustand, eine eben so dichte, äußerst feinkörnige Tertur, und eine licht la-
-vendelblaue Farbe zeigt.
-(2) Auch in dieser Beziehung verweise ich auf das, in Betreff dieses mikroscopischen und unbeständigen Gemengtheiles, oben in
-deitang Gesagte, und bemerte nur, daß die Menge desselben auch hier nur höchst unbedeutend ist, und bey dem durch
-die Analysen ausgewiesenen Eisengehalte dieser Steine (mit Inbegriff des Schwefeleisens = 27 bis 32 Percent) kaum in An-
-schlag gebracht werden kann; daß übrigens die Atome davon keinesweges mit Rinde-Substanz verwechselt werden können.
-c diesen Gemengthei- finden sich an andern Stücken dieser Metee- Steine nicht selten berachtliche partien und Masen
-causiger und ungich iessere als bey iegens einen andern, mit Ausnahme jener von Parma, und etwa der von Benares,
-aartirchen und uisa) eingemengt, wie bey Beschreibung eines zweiten, auf dieser Tafel dargestellten, und in dieser Bezie-
-hung besonders ausgezeichneten Bruchstückes, gezeigt werden wird.
-(4) Dieser Mangel an Gediegeneisen, wodurch sich die Steine von Stannern mit jenen von Chassigny bisher ausschließlich (denn
-von jenen von Alais ist es zweifelhaft, und von jenen von Agen erwähnter Maßen unrichtig) von allen bisher bekannten Me-
-teor-Steinen auszeichnen, spricht sich auch durch das bedeutend geringere specifische Gewicht aus ( 3,1 bis 3,2), welches
-nur bey jenen von Alais noch geringer ist ( 1,9); dagegen jenem der Steine von Benares, Eggenfeld, Parma, Siena,
-Maurkirchen, als den, jenen von Stannern in jeder Beziehung nächst verwandtesten Meteor-Steinen (wo dasselbe zwischen
-3,3 und 3,4 schwankt) -- die auch nur einen geringen Gehalt an Gediegeneisen zeigen -- am nächsten kömmt. Bey den mei-
-sten übrigen Meteor-Steinen steht dasselbe zwischen 3,5 und 3,7. Vom Ensisheimer ist das specifische Gewicht mit 3,23
-zu gering angegeben worden, wie nach der ausgezeichneten Dichtheit der Masse dieses Steines und dem nicht so ganz unbe-
-deutenden Gehalt an Gediegeneisen zu vermuthen war, und beträgt nach eigener Wiegung 3,480 bis 3,490. Eine merkwür-
-dige Abweichung in dieser Beziehung zeigt die Masse der Steine von Chassigny, deren specisisches Gewicht-- bey gänzlichem Man-
-gel an mechanisch eineenengee Geiegeneisen, und seost anSchefefeleisen- nach eigener leberneugung, doch 3,5o berrägt)
-och bestinmmter äußert sich übrigens der Mangel an Gediegeneisen bey diesen Steinen von Stannern durch die gänzliche un-
-"eesa. oes ai fu sa er Rinde auf die enpnnndsichste Magnernadel, die nur von eeterer an einzelnen sel-
-tenen Puncten kaum merklich in Bewegung gesetzt wird, und aus der fein gepülverten Masse und Rinde nur äußerst wenige,
-einzelne mikroscopische Körnchen anzieht, die allem Ansehen nach Eisenoxydul sind. Da übrigens der Total-Gehalt an Eisen
-der Steine von Stannern nach den Analysen Mosers, Klaproths und Vauquelins zwischen 27 und 32 Percent be-
-trägt, das eingemengte Schwefeleisen im Durchschnitt nach einer oberflächlichen Schätzung kaum 5 Percent der Masse, das
-eben so vorhandene Oxyd aber kaum so viel betragen kann; so muß der größte Antheil des Gehaltes in den erdigen Gemeng-
-theilen chemisch gebunden (as Oryd nach Moser und Vauauelin), oder in irgend einem Zustande verarot enthalten
-sein.
+# Siena.
 
+Dasselbe Stück von dem Steinfalle bei Siena in Italien, welches der ausgezeichneten Form wegen bereits auf der zweiten Tafel von einer andern Ansicht gegeben worden ist, von einer polierten frischen Bruchfläche dargestellt, die mit zwei Rändern an die Außenrinde stößt, und, auf etwa 1 Quadrat-Zoll Oberfläche, bei vollkommener Abglättung, aber etwas matter und ungleichförmiger eigentlicher Politur, die innere Beschaffenheit der Steinmasse zu erkennen gibt.
 
-### 0076
+Es zeigt dieselbe einen ziemlich festen Cohäsions-Zustand, der jedoch --- wie eine zweite frische, aber rohe Bruchfläche noch besser erkennen läßt --- ziemlich nahe ans Zerreibliche gränzt, und einen, zum Theil mehr oder weniger feinen, hie und da etwas undeutlich ausgesprochenen, verworrenen, zum Theil aber einen sehr grobbröckligen, und sehr auffallend ausgesprochenen, breccieartigen, im Ganzen daher sehr ungleichförmigen, aber ziemlich festen Aggregats-Zustand; eine --- abgesehen von dem breccieartigen Gemengtheile --- körnige Textur von äußerst feinem Korne, und im Ganzen eine merklich, obgleich nicht sehr stark und etwas ungleichförmig, vorwaltende Grundmasse von ganz mattem, erdigen Ansehen, und licht aschgrauer, aber mehr ins Schmutzig- und Gelblich-Graue als ins Blauliche ziehender Farbe, welche dem andern Gemengtheile, anscheinend, zum Cemente dient.
 
-Siena.
-61
-agcee Stück von dem Steinfalle bey Siena in Italien, welches der ausgezeichneten Form wegen bereits auf
-der zweiten Tafel von einer andern Ansicht gegeben worden ist, von einer polierten frischen Bruchfläche dargestellt, die
-mit zwei Rändern an die Außenrinde stößt, und, auf etwa 1 Quadrat-Zoll Oberfläche, bey vollkommener Abglät-
-tung, aber etwas matter und ungleichförmiger eigentlicher Politur, die innere Beschaffenheit der Steinmasse zu erken-
-nen gibt.
-Es zeigt dieselbe einen ziemlich festen Cohäsions-Zustand, der jedoch --- wie eine zweite frische, aber rohe Bruch-
-fläche noch besser erkennen läßt -- ziemlich nahe ans Zerreibliche gränzt, und einen, zum Theil mehr oder weniger
-feinen, hie und da etwas undeutlich ausgesprochenen, verworrenen, zum Theil aber einen sehr grobbröckligen, und sehr
-auffallend ausgesprochenen, breccieartigen, im Ganzen daher sehr ungleichförmigen, aber ziemlich festen Aggregats-
-Zustand; eine - abgesehen von dem breccieartigen Gemengtheile --- körnige Textur von äußerst feinem Korne, und
-im Ganzen eine merklich, obgleich nicht sehr stark und etwas ungleichförmig, vorwaltende Grundmasse von ganz mat-
-tem, erdigen Ansehen, und licht aschgrauer, aber mehr ins Schmutzig- und Gelblich-Graue als ins Blauliche ziehender
-Farbe, welche dem andern Gemengtheile, anscheinend, zum Cemente dient.
-Sie unterscheidet sich demnach, außer der kleinen Verschiedenheit im Cohäsions-Zustande und der Farbe, von je-
-ner des vorigen Steines durch das mehr offenbare Vorwalten der Grundmasse, und durch ein, wenigstens zum Theil,
-deutlicheres Hervortreten des andern (olivinartigen) Gemengtheiles.
-Dieser erscheint nähmlich hier, theils in eben so verschieden gestalteten und eckigen, mehr oder weniger scharf -- im
-Ganzen jedoch durchaus schärfer --- begränzten, ganz ähnlichen Flecken von verschiedener Größe, derselben Dichtheit
-und Festigkeit, gleichen, obgleich meistens mehr ins Dunkle bis ins Dunkelblaue und Bräunlich- und Schwärzlich-Graue
-ziehenden Farben-Tingirungen, und ähnlichem fettigen Glanze, wie die ausgezeichnetern Massen dieses Gemengtheiles in
-jenem Bruchstücke, und überhaupt in den Steinen von Stannern; theils aber auch schon, wie in den meisten andern
-Meteor-Steinen, in größern oder kleinern, rundlichten oder ovalen Massen von bestimmterer Absonderung und noch grö-
-ßerer Dichtheit, die demnach auf der rohen Bruchfläche unverbrochen, als erhabene Körner, zum Theil selbst als Kü-
-gelchen erscheinen. Mitunter zeigen sich der Art Massen, selbst schon von einigem Grade von Durchscheinenheit und von
-grünlich-grauer ins Lauchgrüne fallender Farbe, und Graf Bournon und Klaproth bemerkten selbst in Bruch-
-stücken von Steinen dieses Herkommens ganz durchscheinende, ja vollkommen durchsichtige Körner von gelblicher und
-grünlich-gelber Farbe und fast vollkommenem Glasglanze (1).
-Von den metallischen, dem bewaffneten, so wie selbst dem freyen Auge zwar deutlich erkennbaren, aber nur spar-
-sam erscheinenden Gemengtheilen zeigt sich der eine --- das Gediegeneisen --- nur in einzelnen, zerstreuten, meistens
-äußerst zarten Puncten oder Körnern, von licht eisengrauer, ins Silberweiße fallender Farbe, und starkem metallischen
-Glanze, und zwar auf der rohen Fläche als kleine Zacken, auf der polierten als Puncte oder kleine, äußerst zart zackig
-gerandete Fleckchen; der andere --- das Schwefeleisen -- theils in eben so zarten und zerstreuten einzelnen Körnern,
-theils in kleinen Partien feinkörnig, und hie und da zu etwas größern Massen bröcklig angehäuft, von zinkgrauer, bald
-ins Röthliche, bald ins Speisgelbe ziehender Farbe und ziemlich starkem metallischen Glanze (2).
-(1) So daß demnach dieser Gemengtheil hier in allen Graden von Ausbildung, Ausscheidung und Absonderung, von dem unvoll-
-kommensten, kaum von der Grundmase unterscheidbaren Zusa., sey den Steinen von Stannern ooiooi aund zum
-ieiöänen et.
-"n s.s, inehi ssl, ss, s ' . ,, si den voutemrensten, ie beo inancen enedenn e-
-teor-Seinen dliori aber in sibiesch, in Steinen oon einem und demselben Ereignise, zun Thell selbst in ei-
-nem und demselben Bruchstücke vorkömm.
-(2) Der geringe Gehalt an eingemengtem, regulinischem sowohl als geschwefeltem, Eisen spricht sich übrigens sowohl durch das ziem-
-uch niedere soeeische ewicht ( 3,3 si ,, as durch die angerst schwache Wirtung der Steinmase auf den Magnet aus;
-iioichen s T as se de silsis- in nins, sn- ise d ghäci desicseni in ochear so nrs se 5, "a s1a. .t6
-etwa 28 Percent (als durch die Operation erhaltenes Oryd). Da nun, nach einer oberslächlichen Schäsung, das sichtlich ein-
-gemengte Gediegeneisen talmn bis6 eerane, das esen so dorhandene- Schwefeleisen aser nr wenig mehr berragen dirfte,
-vom eingemengten Oryde sch aber nur wenig epur sindet; s muß in bedeutender Antheil ienes Gehaltes in den edigen Ge-
-mengtheilen chemisch gebunden oder verlarvt enthalten sein.
-2
+Sie unterscheidet sich demnach, außer der kleinen Verschiedenheit im Cohäsions-Zustande und der Farbe, von jener des vorigen Steines durch das mehr offenbare Vorwalten der Grundmasse, und durch ein, wenigstens zum Theil, deutlicheres Hervortreten des andern (olivinartigen) Gemengtheiles.
 
+Dieser erscheint nähmlich hier, theils in eben so verschieden gestalteten und eckigen, mehr oder weniger scharf --- im Ganzen jedoch durchaus schärfer --- begränzten, ganz ähnlichen Flecken von verschiedener Größe, derselben Dichtheit und Festigkeit, gleichen, obgleich meistens mehr ins Dunkle bis ins Dunkelblaue und Bräunlich- und Schwärzlich-Graue ziehenden Farben-Tingirungen, und ähnlichem fettigen Glanze, wie die ausgezeichnetern Massen dieses Gemengtheiles in jenem Bruchstücke, und überhaupt in den Steinen von Stannern; theils aber auch schon, wie in den meisten andern Meteor-Steinen, in größern oder kleinern, rundlichten oder ovalen Massen von bestimmterer Absonderung und noch größerer Dichtheit, die demnach auf der rohen Bruchfläche unverbrochen, als erhabene Körner, zum Theil selbst als Kügelchen erscheinen. Mitunter zeigen sich der Art Massen, selbst schon von einigem Grade von Durchscheinenheit und von grünlich-grauer ins Lauchgrüne fallender Farbe, und Graf Bournon und Klaproth bemerkten selbst in Bruchstücken von Steinen dieses Herkommens ganz durchscheinende, ja vollkommen durchsichtige Körner von gelblicher und grünlich-gelber Farbe und fast vollkommenem Glasglanze.*
 
-### 0077
+*) So daß demnach dieser Gemengtheil hier in allen Graden von Ausbildung, Ausscheidung und Absonderung, von dem unvollkommensten, kaum von der Grundmasse unterscheidbaren Zustande, wie bei den Steinen von Stannern _a potiori_ (und zum Theil bei jenen von Parma, Ensisheim, L'Aigle u. a.), durch die vollkommneren Mittelzustände, wie _a potiori_ bei den Steinen von Benares, Timochin (Tabor, Barbotan, Eichstädt u. a.), bis zu dem vollkommensten, wie bei manchen andern Meteor-Steinen (_a potiori_ aber im sibirischen Eisen), in Steinen von einem und demselben Ereignisse, zum Theil selbst in einem und demselben Bruchstücke vorkömmt.
 
-Von mechanisch eingemengtem Oxyde oder ähnlichen Partikelchen findet sich nur äußerst wenig, und nur sehr wenige
-kleine Stellen von schmutzig graulich-gelber, ins Bräunlich- und Röthlich-Gelbe verlaufender Farbe, geben die Gegen-
-wart von Rostflecken zu erkennen.
-Von Adern, Gängen oder einer anderweitigen Zustandsveränderung der Steinmasse findet sich aber, weder an die-
-sem, noch an irgend einem der mehreren von mir gesehenen Bruchstücke von Steinen dieses Herkommens, auch nur
-die entfernteste Andeutung.
-Benare s.
-Ez ausgezeichnetes, 44 Loth schweres Bruchstück eines, wahrscheinlich ursprünglich ziemlich gioß gewesenen Steines
-von jenen, welche am 19. December 1798, Abends, bey Krakhut in der Nähe von Benares in Bengalen
-gefallen sind, und welches die kaiserl. Sammlung 1807 von dem jüngst verstorbenen Charles Greville aus Lon-
-don zum Geschenke erhielt (1).
-Es ist dasselbe von einer der größern, rohen Bruchflächen dargestellt, welche das Innere der Steinmasse auf einer
-Ausdehnung von etwa 2 Quadrat-Zoll Oberfläche, und auf 4, 1 bis 1 Zoll und mehr Entfernung von der äußer-
-sten mit Rinde bedeckten Oberfläche des Steines zeigt.
-Der Cohäsions-Zustand der Masse im Ganzen ist nur wenig fester und dichter als bey den Steinen von Stan-
-nern, und merklich geringer als bey jenen von Siena. Die Grundmasse für sich ist selbst ziemlich leicht zerreiblich,
-und zerstiebt beym Versuche, Feuer zu schlagen; übrigens ist sie sehr feinkörnig, doch minder so als jene der Steine von
-Siena. Der Aggregats-Zustand ist ziemlich locker, und bey weitem mehr als bey den Steinen von Stannern
-und Siena, da die Gemengtheile größten Theils sehr ungleichartig sind, und der eine sehr ausgeschieden und meistens
-scharf abgesondert ist; übrigens fein sandsteinartig, hinsichtlich des einen; grob körnig und kugelicht, hinsichtlich des an-
-dern Gemengtheiles; und im Ganzen von mandelsteinartigem Ansehen.
-Die Grundmasse, die sich, obgleich sie nicht sehr bedeutend über die übrigen Gemengtheile vorwaltet, doch als sol-
-che wegen der Ausgeschiedenheit und scharfen Begränzung dieser, sehr deutlich ausspricht, und gewisser Maßen als Ce-
-ment derselben erscheint --- hat ein ganz mattes, erdiges, rauhes, mageres Ansehen, und eine sehr licht, nur etwas
-schmutzig aschgraue, stark ins Weiße fallende Farbe.
-Der olivinartige Gemengtheil, der beynahe fast die Hälfte der Steinmasse beträgt, erscheint hier auf der rohen
-Fläche in Gestalt vieler, mehr oder weniger über die Oberfläche hervorragender, zum Theil kleiner und sehr kleiner, zum
-Theil aber auch bedeutend großer (von der Größe eines Hirsekornes oder kleinen Nadelkopfes bis zu der einer großen
-Erbse von 1 bis 24 Linie im Durchmesser, und selbst noch mehr), selten stumpfeckiger und bloß abgerundeter, ge-
-wöhnlich ovaler oder rundlichter, meistens aber vollkommen kugelförmiger Massen, wovon die kleinern und die minder
-scharf begränzten und weniger kugelicht ausgeschiedenen fester und inniger von der Grundmasse eingeschlossen sind, und
-gleichsam in dieselbe übergehen, die größern und vollkommen kugelicht abgesonderten aber bisweilen so lose sitzen, daß sie
-leicht aus derselben heraus fallen oder ausgebrochen werden können. Erstere sind gewöhnlich von Partikelchen der Grund-
-masse eingehüllt, und haben demnach wie diese ein mattes, rauhes, erdiges Ansehen, und eine gleiche, nur etwas dunk-
-lere Farbe; letztere, zumahl die vollkommen kugelichten dagegen, haben meistens eine ganz glatte, schwach und etwas
-fettig glänzende Oberfläche, und eine schiefer- oder bräunlich-graue, bisweilen schmutzig lauch- oder olivengrüne Farbe.
-Gebrochen zeigen erstere zwar ungleich mehr Festigkeit, Dichtheit und Härte als die Grundmasse, doch bey weitem nicht
-so sehr wie letztere, welche ziemlich leicht Funken am Stahle geben, und deren scharfkantige Bruchstücke selbst etwas das
-Glas ritzen, oder dasselbe wenigstens matt machen; auch zeigen diese einen vollkommenen, flachmuschelichen Bruch, in-
-(1) Obgleich dieser Steinfall ziemlich bedeutend und ergiebig war, auch von ansäßigen Engländern das Factum gleich an Ort und
-ene nersucht, betant genacht un et- teine nach ropa versendet ene,e, finden sich-
-stücke im Besitze bekannter Anstalten oder Sammlungen. So meines Wissens nur im Pariser Museum, im Mus. brit. zu
-London, in De Drées, Blumenbachs und Klaproths Sammlung, wohin sie wohl sämmtlich durch Greville
-gekommen sind.
+Von den metallischen, dem bewaffneten, so wie selbst dem freien Auge zwar deutlich erkennbaren, aber nur sparsam erscheinenden Gemengtheilen zeigt sich der eine --- das Gediegeneisen --- nur in einzelnen, zerstreuten, meistens äußerst zarten Puncten oder Körnern, von licht eisengrauer, ins Silberweiße fallender Farbe, und starkem metallischen Glanze, und zwar auf der rohen Fläche als kleine Zacken, auf der polierten als Puncte oder kleine, äußerst zart zackig gerandete Fleckchen; der andere --- das Schwefeleisen --- theils in eben so zarten und zerstreuten einzelnen Körnern, theils in kleinen Partien feinkörnig, und hie und da zu etwas größern Massen bröcklig angehäuft, von zinkgrauer, bald ins Röthliche, bald ins Speisgelbe ziehender Farbe und ziemlich starkem metallischen Glanze.*
 
+*) Der geringe Gehalt an eingemengtem, regulinischem sowohl als geschwefeltem, Eisen spricht sich übrigens sowohl durch das ziemlich niedere specifische Gewicht (= 3,3 bis 3,4), als durch die äußerst Wirkung der Steinmasse auf den Magnet aus; inzwischen ist der Total-Gehalt derselben an Eisen nicht unbedeutend, und beträgt nach Howard bei 35, nach Klaproth etwa 28 Percent (als durch die Operation erhaltenes Oxyd). Da nun, nach einer oberflächlichen Schätzung, das sichtlich eingemengte Gediegeneisen kaum 4 bis 6 Percent, das eben so vorhandene Schwefeleisen aber nur wenig mehr betragen dürfte, vom eingemengten Oxyde sich aber nur wenig Spur findet; so muß ein bedeutender Antheil jenes Gehaltes in den erdigen Gemengtheilen chemisch gebunden oder verlarvt enthalten sein.
 
-### 0078
+Von mechanisch eingemengtem Oxyde oder ähnlichen Partikelchen findet sich nur äußerst wenig, und nur sehr wenige kleine Stellen von schmutzig graulich-gelber, ins Bräunlich- und Röthlich-Gelbe verlaufender Farbe, geben die Gegenwart von Rostflecken zu erkennen.
 
-63
-deß jener der erstern sich in verschiedenen Abstufungen aus dem erdigen durch den dichten und ebenen nur allmählich dem-
-selben nähert. Nur wenige, selbst von den ausgeschiedensten, zeigen einigen Grad von Durchscheinenheit an den scharfen
-Kanten ihrer Bruchstücke, alle aber im Bruche und auf einer geschnittenen und polierten Fläche --- wo sie mehr oder
-weniger rissig und zersprungen erscheinen - nach den verschiedenen Graden ihrer Dichtheit, einen mehr oder weniger
-fettigen, oder doch schimmernden Glanz, und eine aus dem Grauen ins Lauch- oder schmutzig Olivengrüne und ins
-Bräunliche ziehende Farbe. Dort, wo der Art vollkommen kugelichte und scharf ausgeschiedene Massen im Bruche aus-
-gefallen sind, findet sich eine dem Volumen und der Form derselben entsprechende Grube in der Grundmasse, deren
-Wände, von übrigens mattem, erdigem Ansehen und weißlich-grauer Farbe, verdichtet und gleichsam geglättet er-
-scheinen (1).
-Die Gediegeneisentheilchen zeigen sich beynahe noch sparsamer, aber in etwas gröbern Körnern und Zacken als an
-den Steinen von Siena, und ebenfalls von licht stahlgrauer, ino Silberweiße fallender Farbe und metallischem Glanze;
-die Kies-Partikelchen dagegen zwar eben so sparsam in zersteeuten, zarten, glänzenden, meistens gelblichen Körnern, häu-
-figer aber in größern Partien feinkörnig, oder als größere Massen bröcklig (in etwas stumpskantigen, minder spröden
-und leicht zerreiblichen Stücken) angehäuft, und mehr von zinkgrauer, etwas ins Röthliche ziehender Farbe und schwä-
-cherem Glanze (2). Von Rostflecken zeigt sich kaum eine Spur (obgleich doch, und zwar schon vor eilf Jahren, eine
-Fläche des Stückes abgeschliffen und poliert worden war), und eben so wenig von deutlich eingemengtem Oxyde. Auch
-von Adern und Gängen, oder einer sonstigen Zustandsveränderung der Steinmasse, findet sich durchaus keine Andeutung
-an diesem Stücke.
-Timochin.
-s, arakteristisches Stück, 4 Loth 3 Quentchen wiegend, von dem am 13. März 1807 bey Timochin (im Juch-
-now'schen Kreise, im Smolensk'schen Gouvernement) in Rußland einzeln niedergefallenen, bey 140 Pfund wie-
-genden Steine (3), welches Klaproth von einem mir zur Ansicht mitgetheilten 18 Loth schweren Bruchstücke in sei-
-nem Besitze, abschneiden zu lassen gestattete, und der kaiserl. Sammlung gefälligst überließ.
-Es zeigt dasselbe das Innere der Steinmasse auf einer geschliffenen und polierten, nur an einer Seite an Rinde
-anstehenden Fläche, von 24 Quadrat-Zoll Oberfläche.
-Der Cohäsions-Zustand der Masse im Ganzen ist nicht viel fester und dichter als bey den Steinen von Bena-
-res, aber inniger, wie es scheint, durch Vermittelung der so häufig eingemengten, rauhen und zackigen Gediegenei-
-sentheilchen, und vorzüglich der vielen Rostflecke. Die Grundmasse für sich wäre, abgesehen von letztern, auch wohl
-etwas zerreiblich; in jenem Zusammenhange gibt sie aber, wahrscheinlich doch nur mittelst des häufig vorkommenden oli-
-vinartigen Gemengtheiles, ziemlich leicht Funken am Stahle. Uebrigens ist sie nicht sonderlich feinkörnig, weniger bey-
-nahe als die der Steine von Benares.
-Der Aggregats-Zustand ist, obgleich der olivinartige Gemengtheil so häufig, und zum Theil eben so scharf be-
-gränzt (aber lange nicht so abgesondert) und kugelicht (aber viel kleiner) ausgeschieden erscheint --- und wahrscheinlich
-(1) So wie diese Steine einerseits durch die Beschaffenheit der Grundmasse -- und in vielen andern Beziehungen --- jenen von
-Siena (und noch mehr ienen von Maurkirchen, Parma, Eggenfeld) gleichen; so nähern sich dieselben andererseits durch die
-m .. ncheiung sowohl, als dunch Bechanenheit es n incrtigen Gemengheiles - wenigstens in den bier einzen
-vorkommenden niedern und mittlern Graden -- den meisten übrigen Meteor-Steinen, zumahl jenen von Timochin (Eich-
-städt, Tabor, Barbotan u. v. a.). Nur die besondere Größe einzelner Massen desselben, und die vollkommene Ausscheidung
-und sfnterg, aiiger derselben aus der erunmasse, ist diesen Steinen ganz eigenthümlich, obgleich sich auch hierin jene
-von Weston denselben sehr nähern.
-(2) Auch hier spricht sich der geringe Gehalt an Gediegeneisen (das kaum 3 Percent) und an Schwefeleisen (das höchstens das Dop-
-pelte von jenem betragen möchte) durch das geringe specifische Gewicht (- 3,35) und durch den anserst schwachen Magnenis.
-us der Steinnagn. in anen aus, h eercg der oat Gehal an Eisen auch bey diesen Steinen nach 5oward und
-Vauquelin 34 bis 38 Percent.
-c nser misland duefen senchstacke von diesem Stein
-n, und außer dem Klaproth'schen ist
-mir nur eines in Blumenbachs, und ein anderes in Chta
-Q 2
+Von Adern, Gängen oder einer anderweitigen Zustandsveränderung der Steinmasse findet sich aber, weder an diesem, noch an irgend einem der mehreren von mir gesehenen Bruchstücke von Steinen dieses Herkommens, auch nur die entfernteste Andeutung.
 
+# Benares.
 
-### 0079
+Ein ausgezeichnetes, 4 3/4 Loth schweres Bruchstück eines, wahrscheinlich ursprünglich ziemlich groß gewesenen Steines von jenen, welche am 19. December 1798, Abends, bei Krakhut in der Nähe von Benares in Bengalen gefallen sind, und welches die kaiserl. Sammlung 1807 von dem jüngst verstorbenen Charles Greville aus London zum Geschenke erhielt.*
 
-auch durch Vermittelung der Eisentheilchen und Nostflecke --- viel inniger und fester, obgleich lange nicht so, wie bey
-andern Meteor-Steinen (z. B. jenen von Charsonville, Sales, selbst jenen von Siena, zumahl aber jenen
-von Ensisheim, L'Aigle u. a.), mehr sandsteinartig, von gröberem und ungleichförmigem Korne, und --- der ge-
-ringen Menge und Kleinheit der weniger scharf ausgeschiedenen Massen des andern Gemengtheiles wegen --- mehr von
-klein porphyrartigem als mandelsteinartigem Ansehen.
-Die Grundmasse, welche hier sehr stark vorwaltet, --- obgleich sie sich, da sie sehr häufig und unmerklich in den an-
-dern Gemengtheil übergeht, nur schwach ausspricht -- hat ein ganz mattes und erdiges, aber kein so rauhes und ma-
-geres Ansehen, und eine aschgraue, nur wenig ins Blauliche ziehende Farbe.
-Der olivinartige Gemengtheil, der, in so ferne er deutlich ausgesprochen erscheint, kaum der ganzen Steinmasse
-betragen möchte, zeigt sich auf dieser polierten Fläche sehr ungleichförmig zerstreut --- aber ziemlich gleichartig, und
-nicht sehr abweichend in Größe, Gestalt, Dichtheit, Farbe und Glanz -- in kleinen, sehr und ganz kleinen (selten
-von I, meistens nur von Linie im Durchmesser und noch weniger), meistens rundlichten, selbst auch vollkommen kuge-
-lichten Körnern, von grauer, ins Lauch- und schmutzig Oliven-Grüne, ooer ins Braune ziehender Farbe, und schwa-
-chem, fettigem Glanze.
-Es sind diese Körner zwar scharf begränzt und ausgeschieden, aber bey weitem nicht- so, wie wenigstens viele in
-den Steinen von Benares (selbst nicht wie manche in jenen von Weston; dagegen genau so wie die meisten in den
-Steinen von Eichstädt, Tabor, Barbotan u. a.), aus der Grundmasse abgesondert, sondern innig von der-
-selben eingeschlossen und festsitzend, so daß sie an rohen Bruchflächen nie ausgefallen oder ausgebrochen, aber auch nicht
-verbrochen, und mit rauher, erdiger Oberfläche, mehr oder weniger halbkugelicht, hervorragend erscheinen. Sie sind etwas
-schwer zersprengbar, zeigen einen dichten, ebenen Bruch, der sich mehr oder weniger dem flachmuschelichen nähert, und
-geben unbestimmt eckige, nur wenig scharfkantige, meistens vollkommen undurchsichtige, oder nur schwach an den Kan-
-ten durchscheinende Bruchstücke (1).
-Außer diesen einzelnen, durch Farbe und Schärfe der Begränzung mehr ausgesprochenen und auffallenden, findet
-sich aber noch eine Menge ähnlicher, zum Theil noch weit kleinerer Körner, die aber nur auf der polierten Fläche als
-Puncte oder kleine und äußerst kleine Fleckchen zur Ansicht kommen, die sich von der Grundmasse --- mit der sie innig
-verbunden sind, und in welche sie zum Theil überzugehen scheinen --- bloß durch eine bald etwas lichtere, bald etwas
-dunklere Farbe, etwas mehr Dichtheit, durch ein feineres Korn und durch ihre Figurirung -- die durch eine mehr oder
-weniger scharfe, oft kaum merkliche Ausscheidungslinie oder Begränzung bestimmt wird -- unterscheiden (2).
-Der Gehalt an mechanisch und sichtlich eingemengtem Gediegeneisen ist bey diesen Steinen ausgezeichnet stark, und
-beträgt fast 20 Percent, oder beynahe den fünften Theil der Steinmasse (3). Die Eisentheilchen erscheinen auf den ro-
-hen Bruchflächen als einzelne, mehr oder weniger hervorragende, ziemlich starke, rauhe Zacken und Körner von eisen-
-grauer Farbe und schwachem metallischen Glanze, in so ferne sie nicht von erdigen Massentheilchen bedeckt sind. Auf
-der polierten Fläche zeigen sie sich sehr häufig und ziemlich gleichförmig vertheilt, als mehr oder weniger zarte Puncte,
-als größere oder kleinere, meistens gezackte Flecke, und als mehr oder weniger gebogene, ästige und zum Theil zusam-
-men hängende Linien und Adern, von sehr licht stahlgrauer, ins Silberweiße ziehender Farbe, und ziemlich starkem me-
-tallischen Glanze. Dagegen ist der Gehalt an Schwefeleisen höchst unbedeutend, und selbst auf der polierten Fläche
-kann man nur äußerst zarte, mikroscopische Puncte, die hie und da zu kleinen Flecken angehäuft sind, und sich durch
-(1) Ihre Beschaffenheit ist in allen Beziehungen dieselbe, wie die der ähnlichen in den Steinen von Siena, Benares, und vielen
-andern (und selbst im sibirischen Eisen), einzeln und selten, in vielen andern Meteor-Steinen aber, als jenen von Eichstädt,
-Tabor, Barbotan u. a., häufig und vorwaltend in diesem Grade von Ausbildung vorkommenden Massen dieses Gemeng-
-theiles.
-(2) Von eben der Beschaffenheit, wie dieser Gemengtheil wieder einzeln in den meisten Meteor-Steinen, häusig und beynahe aus-
-chießuch aber in andern (z. B. in ienen von Charsonvile, Sales, Berlanguillas, Apt, ork, Lisa u. a.) vorzukommen
-psegt.
-(3) Dieser beträchtliche Gehalt an Gediegeneisen, den Klaproth und N. A. Scherer, nach den Resultaten ihrer Analysen,
-auf beynahe 18 Percent angeben, gibt sich auch durch das bedeutende specifische Gewicht (= 3,700 -- worin diese Steine
-wohl nur von jenen von Eichstädt übertroffen werden dürften, und welchem sich jene von Tipperary, Tabor, Charsonville, Tou-
-louse, Errleben nur zu nähern scheinen --), und durch eine sehr starke Wirkung auf den Magnet zu erkennen. Klaproth
-gibt übrigens noch 25, Scherer 17 Percent als den Gehalt dieser Steine an oxydirtem Eisen an, dessen Vorhandensein
-ersterer den später, durch die Einwirkung unsrer Atmosphäre, entstandenen Rostflecken zuschreibt.
+Es ist dasselbe von einer der größern, rohen Bruchflächen dargestellt, welche das Innere der Steinmasse auf einer Ausdehnung von etwa 2 Quadrat-Zoll Oberfläche, und auf 1/2, 1 bis 1 1/2 Zoll und mehr Entfernung von der äußersten mit Rinde bedeckten Oberfläche des Steines zeigt.
 
+Der Cohäsions-Zustand der Masse im Ganzen ist nur wenig fester und dichter als bei den Steinen von Stannern, und merklich geringer als bei jenen von Siena. Die Grundmasse für sich ist selbst ziemlich leicht zerreiblich, und zerstiebt beim Versuche, Feuer zu schlagen; übrigens ist sie sehr feinkörnig, doch minder so als jene der Steine von Siena. Der Aggregats-Zustand ist ziemlich locker, und bei weitem mehr als bei den Steinen von Stannern und Siena, da die Gemengtheile größten Theils sehr ungleichartig sind, und der eine sehr ausgeschieden und meistens scharf abgesondert ist; übrigens fein sandsteinartig, hinsichtlich des einen; grob körnig und kugelicht, hinsichtlich des andern Gemengtheiles; und im Ganzen von mandelsteinartigem Ansehen.
 
-### 0080
+Die Grundmasse, die sich, obgleich sie nicht sehr bedeutend über die übrigen Gemengtheile vorwaltet, doch als solche wegen der Ausgeschiedenheit und scharfen Begränzung dieser, sehr deutlich ausspricht, und gewisser Maßen als Cement derselben erscheint --- hat ein ganz mattes, erdiges, rauhes, mageres Ansehen, und eine sehr licht, nur etwas schmutzig aschgraue, stark ins Weiße fallende Farbe.
 
-65
-eine zinkweiße, etwas ins Gelbliche oder Nöthliche fallende Farbe, und einen etwas schwächern Glanz auszeichnen, da-
-für erkennen. Besonders häufig aber zeigen sich die Nostflecke, so daß man sie nach Chladni allerdings für diese
-Steine (aber eben so für die Steine von Eichstädt, Charsonville, Barbotan u. e. a.) als charakteristisch
-ansehen kann, indem sie beynahe die Hälfte der Steinmasse ausmachen, und derselben ein ganz eigenthümliches mar-
-morirtes Ansehen geben. Sie sind übrigens hier sehr klein, zart, matt, erdig, und von besonders dunkler gelblich-brau-
-ner Farbe.
-Von Oxyd oder ähnlichen Partikelchen zeigt sich keine deutliche Spur; eben so wenig von Adern und Gängen oder
-einer andern Veränderung der Steinmape.
-Charsonville.
-ESnn großes, 1 Pfund schweres Stück von einem der am 23. November 1810 in der Gegend von Charsonville bey
-Orleans (Departement du Loiret) in Frankreich niedergefallenen Steine, welches während meiner Anwesenheit
-in Paris (1815) auf mein Ansuchen und mit Genehmigung der königlichen Administration des Museums der Natur-
-geschichte, von einem daselbst aufbewahrten Bruchstücke (1), von 11 Pfund am Gewichte, abgeschnitten, und mir,
-nebst mehreren andern, für die kaiserliche Sammlung gefälligst mitgetheilt wurde (2).
-Es ist dasselbe, auf der zum Theil mit Rinde bedeckten, zum Theil verbrochenen, gewölbten Außenseite liegend, von
-der durch den Schnitt erhaltenen, ganz ebenen, aber noch unpolierten Fläche dargestellt, die das Innere der Steinmasse
-auf einer Ausdehnung von ungefähr 4 Quadrat-Zoll, und, wo am dicksten, in einer Tiefe von beynahe 14 Zoll von
-der äußern Oberfläche des Steines, zur Ansicht bringt.
-Der Cohäsions-Zustand der Masse ist sehr fest und dicht, so daß sie sich hierin den compactesten und härtesten
-Meteor-Steinen (jenen von Ensisheim, Erxleben, Chantonnay) nähert, indeß sie doch nur etwas schwer
-Funken gibt. Der Aggregats-Zustand ist ebenfalls sehr fest und innig, und dabey auch sehr gleichförmig - da der
-olivinartige Gemengtheil äußerst wenig, nur höchst unvollkommen und schwach ausgeschieden, und von der Grundmasse
-in allen Beziehungen nur wenig abweichend, und selbst sehr gleichförmig erscheint --- und dicht sandsteinartig, von äu-
-ßerst feinem, sehr gleichförmigen Korne.
-Die Grundmasse, welche hier besonders stark vorwaltet, und abgesehen von den eingemengten Metalltheilchen, und
-ohne Loupe betrachtet, bis auf wenige Massen, in welchen sich der andere Gemengtheil etwas deutlicher ausspricht, bey-
-nahe die ganze Steinmasse zu constituiren scheint, indem sie größten Theils allmählich und sehr unmerklich in jenen
-übergeht - hat ein ganz mattes, erdiges, aber, selbst auf rohen Bruchstellen, eben kein sehr rauhes noch mageres
-Ansehen, und eine aschgraue, nur wenig ins Blauliche ziehende Farbe.
-Der olivinartige Gemengtheil erscheint darin nur sehr schwach und undeutlich ausgesprochen, in sehr sparsamen,
-einzelnen, zerstreuten, sehr und äußerst kleinen, oft kaum merklich ausgeschiedenen, oder doch nur sehr schwach begränz-
-ten, meistens rundlichen oder ovalen, doch auch stumpfeckigen Körnern, von mattem, erdigen Ansehen, und licht asch-
-grauer, gelblicher, blaulicher, nur selten bräunlicher Farbe. Die meisten dieser Massen unterscheiden sich bloß durch et-
-was größere Dichtheit, Feinheit im Korne, und durch ihren Umriß von der Grundmasse, und gleichen zum Theil voll-
-kommen jenen, welche in dem zuvor beschriebenen Steine von Timochin in ziemlicher Menge, einzeln aber in den mei-
-(1) In dem, dem Werke Chladnis angeschlossenen Verzeichnisse der Meteor-Massen der kaiserl. Sammlung, ist aus Versehen
-bieses ncnheaa a ein ganzer Stein algtgeten orden. n sigotde Morogues verläilichen üiber die-
-sen Steincan gse sich aber, daß dasden tnt nur ein Bruchstne, und zwar von dem einen größern der niedergefallenen
-und aufgefundenen Steine war, dessen Gewicht bey 40 Pfund betrug, welches D. Pellieux zu Bangenci an den damah-
-ligen Minister des Innern (Grafen Montalivet) einsendete, von welchem dasselbe an das königl. Museum abgegeben
-wurde.
-(2) Obgleich dieser Steinfall hinsichtlich der Zahl der gefallenen Steine nicht sehr beträchtlich war, indem deren nur drei im Falle
-beobachtet, und davon selbst nur zwei aufgefunden wurden; so gehört er doch der Masse nach zu den bedeutenderen, da der
-eine der aufgefundenen Steine bey 40, der andere 20 Pfund wog. Indessen ist mir außer obigem getheilten Bruchstücke nur
-noch eines in De Drées, und ein zweites in Chladnis Besitze bekannt.
-N
+Der olivinartige Gemengtheil, der beinahe fast die Hälfte der Steinmasse beträgt, erscheint hier auf der rohen Fläche in Gestalt vieler, mehr oder weniger über die Oberfläche hervorragender, zum Theil kleiner und sehr kleiner, zum Theil aber auch bedeutend großer (von der Größe eines Hirsekornes oder kleinen Nadelkopfes bis zu der einer großen Erbse von 1 1/2 bis 2 1/2 Linie im Durchmesser, und selbst noch mehr), selten stumpfeckiger und bloß abgerundeter, gewöhnlich ovaler oder rundlichter, meistens aber vollkommen kugelförmiger Massen, wovon die kleinern und die minder scharf begränzten und weniger kugelicht ausgeschiedenen fester und inniger von der Grundmasse eingeschlossen sind, und gleichsam in dieselbe übergehen, die größern und vollkommen kugelicht abgesonderten aber bisweilen so lose sitzen, daß sie leicht aus derselben heraus fallen oder ausgebrochen werden können. Erstere sind gewöhnlich von Partikelchen der Grundmasse eingehüllt, und haben demnach wie diese ein mattes, rauhes, erdiges Ansehen, und eine gleiche, nur etwas dunklere Farbe; letztere, zumahl die vollkommen kugelichten dagegen, haben meistens eine ganz glatte, schwach und etwas fettig glänzende Oberfläche, und eine schiefer- oder bräunlich-graue, bisweilen schmutzig lauch- oder olivengrüne Farbe. Gebrochen zeigen erstere zwar ungleich mehr Festigkeit, Dichtheit und Härte als die Grundmasse, doch bei weitem nicht so sehr wie letztere, welche ziemlich leicht Funken am Stahle geben, und deren scharfkantige Bruchstücke selbst etwas das Glas ritzen, oder dasselbe wenigstens matt machen; auch zeigen diese einen vollkommenen, flachmuschelichen Bruch, indeß jener der erstern sich in verschiedenen Abstufungen aus dem erdigen durch den dichten und ebenen nur allmählich demselben nähert. Nur wenige, selbst von den ausgeschiedensten, zeigen einigen Grad von Durchscheinenheit an den scharfen Kanten ihrer Bruchstücke, alle aber im Bruche und auf einer geschnittenen und polierten Fläche --- wo sie mehr oder weniger rissig und zersprungen erscheinen --- nach den verschiedenen Graden ihrer Dichtheit, einen mehr oder weniger fettigen, oder doch schimmernden Glanz, und eine aus dem Grauen ins Lauch- oder schmutzig Olivengrüne und ins Bräunliche ziehende Farbe. Dort, wo der Art vollkommen kugelichte und scharf ausgeschiedene Massen im Bruche ausgefallen sind, findet sich eine dem Volumen und der Form derselben entsprechende Grube in der Grundmasse, deren Wände, von übrigens mattem, erdigem Ansehen und weißlich-grauer Farbe, verdichtet und gleichsam geglättet erscheinen.*
 
+*) Obgleich dieser Steinfall ziemlich bedeutend und ergiebig war, auch von ansäßigen Engländern das Factum gleich an Ort und Stelle untersucht, bekannt gemacht und viele Steine nach Europa versendet wurden; so finden sich doch nur wenige Bruchstücke im Besitze bekannter Anstalten oder Sammlungen. So meines Wissens nur im Pariser Museum, im Mus. brit. zu London, in De Drées, Blumenbachs und Klaproths Sammlung, wohin sie wohl sämmtlich durch Greville gekommen sind.
 
-### 0081
+Die Gediegeneisentheilchen zeigen sich beinahe noch sparsamer, aber in etwas gröbern Körnern und Zacken als an den Steinen von Siena, und ebenfalls von licht stahlgrauer, ino Silberweiße fallender Farbe und metallischem Glanze; die Kies-Partikelchen dagegen zwar eben so sparsam in zersteeuten, zarten, glänzenden, meistens gelblichen Körnern, häufiger aber in größern Partien feinkörnig, oder als größere Massen bröcklig (in etwas stumpskantigen, minder spröden und leicht zerreiblichen Stücken) angehäuft, und mehr von zinkgrauer, etwas ins Röthliche ziehender Farbe und schwächerem Glanze*. Von Rostflecken zeigt sich kaum eine Spur (obgleich doch, und zwar schon vor eilf Jahren, eine Fläche des Stückes abgeschliffen und poliert worden war), und eben so wenig von deutlich eingemengtem Oxyde. Auch von Adern und Gängen, oder einer sonstigen Zustandsveränderung der Steinmasse, findet sich durchaus keine Andeutung an diesem Stücke.
 
-65
-sten Meteor-Steinen, und zwar gemeinschaftlich mit andern vorkommen, die in verschiedenen und weit höhern Graden
-von Ausbildung und Ausscheidung sich befinden. Nur sehr wenige davon zeigen sich an den rohen Bruchstellen als voll-
-kommen ausgeschieden oder abgesondert von der Grundmasse, in Kugel- oder Körnerform, mit vorragender convexer
-Oberfläche; die meisten sind mit der Grundmasse zugleich gebrochen, und zeigen nur einen dichtern, ebenern Bruch (1).
-Die Gediegeneisentheilchen werden durch ihre Menge und zum Theil durch ihre Beschaffenheit charakteristisch für diese
-Steine. Sie erscheinen nähmlich äußerst häufig -- so daß ihre Masse zusammen genommen, nach einer oberflächli-
-chen Abschätzung, gut den vierten Theil des Ganzen betragen möchte (2) -- höchst unregelmäßig zwar, aber doch
-ziemlich gleichförmig, und im Ganzen sehr dicht eingestreut, und auf dieser geschnittenen Fläche als etwas erhabene,
-äußerst zarte Puncte von licht eisengrauer Farbe und etwas mattem metallischen Glanze, die hin und wieder zusam-
-men gehäuft und gewisser Maßen zusammen geflossen, mehr oder weniger Adern gleichende, nur selten und wenig zu-
-sammen hängende, gezackte, gekörnte und gleichsam geträufte, kleine Flecke oder Massen bilden, welche sich mit einem
-stählernen Instrumente sehr leicht breit und platt drücken und ritzen lassen, und dann (wie an den rohen Bruchstellen)
-einen höhern metallischen Glanz und eine stark ins Silberweiße fallende Farbe zeigen.
-Von Kiestheilchen findet sich dagegen nur wenig Spur in äußerst zarten Puncten, von etwas stärkern metallischem
-Glanze, und einer aus dem Weißen ins Messinggelbe ziehender Farbe, und noch weniger von Oxyden oder ähnlichen
-Partikelchen; um so häufiger erscheinen aber die Nostflecke, die durch ihre Menge sowohl da sie der ganzen Oberfläche
-ein zart marmorirtes Ansehen geben -- als durch ihre Zartheit und Farbe --- indem sie meistens als einzelne, äußerst
-feine Puncte, die nur stellenweise in Flecke zusammen geflossen sind, und von einer eigenen graulich-gelblichen Farbe
-erscheinen --- ebenfalls als charakteristisch für diese Steine angesehen werden könnten, in so ferne sie nicht späterhin und
-zufällig entstanden sind (3).
-Das Merkwürdigste an diesem Steine, und weßhalb auch dessen bildliche Darstellung versucht wurde, sind die
-Adern und Gänge von einer, scheinbar, fremdartigen Substanz, welche auf dessen Oberfläche erscheinen und die Stein-
-masse durchziehen, von welchen bereits oben in der Einleitung zur Erklärung dieser Tafel im Allgemeinen gesprochen
-wurde, und die bey diesen Steinen, zwar gerade nicht am häufigsten (denn ungleich häufiger zeigen sie sich bey jenen von
-Agen und Lissa), aber durch Stärke und Ausdehnung am ausgezeichnetsten vorkommen.
-Es zeigen sich auf der geschnittenen Fläche dieses Stückes zwei solche Adern (4). Die eine davon geht von einem
-(1) Wenn das quantitative Verhältniß der nächsten Bestandtheile von mehreren Meteor-Steinen mit Verläßlichkeit angegeben
-wäre; so ließe sich vielleicht -- wie bereits oben erwähnt worden ist - mit einiger Gewißheit nachweisen, daß in demselben
-und nicht in bloßen Zustandsveränderungen der Steinmase, der nächste Grund der eben so auffallenden als mannigfaltigen
-uweichungen in der Menge, Bechanenseit n. n d nns stheiles lieg-, wi-
-dieß zum Theil aus den ehandenen naysen her-or z gehen scheine. on den eiten Meteor-Steinen nähmlich, in wel-
-chen dieser Gemengtheil nur schwach und unvollkommen ausgesprochen ist (wie z. B. in jenen von Stannern, Parma, Char-
-sonville, Doroninsk, L'Aigle, Ensisheim), weisen jene einen verhältnißmäßig geringern Gehalt an Talkerde (nähmlich zwi-
-schen 2 und 13 Percent), und dabey einen nicht ganz unbedeutenden Gehalt an Thon-und Kalkerde (von ersterer 3 bis 9,
-i terer4ui -eeun er- " snen sesese scssse, ies nsr .i nen tsesande-
-öi se i s sesis- n . s es eis s-tene.
-Errleben, Chassigny), einen weit größern Gehat an aen. , bis 2 pereent,, aber tein- Spir, oder
-doch nur äußernt wenis (1 und pereent von ienen on ertrlen), an Ton- ans gars . Seeine son Tinochin
-ßliens i ieden ehnlt äneee a iz, snn Tbon af ,
-n gaele asiee aanf eieen )
-(2) Bigot de Morogues schätzt den Gehalt auf 31 Percent. Vauquelin gibt den Gehalt des von ihm analysirten Stü-
-ckes im Ganzen mit 25,8 als regulinisch an (nach Calelt, denn er hatte nach seinen erfahren aues Eisen daraus als Oryd
-nelilsi s sssisess ksitl. es sl si s ä si- - endn. -
-nicht größer ist, als bey den meisten Meteor-Steinen, und dag, da sich dieser Gehat, dem außern Ansehen nach, schon in
-dn nec-nlscs ineenginorslsesesin nsnsnicht, disreni oeni, eeen- - e"-
-rr ihalten sehn ts. durch da- sreisch- e-lh-
-äe--n Duchschile is sn eisheäis en ess ssse ssssi,, onosn- es is sst a-l-
-Wirkung der Steinmasse auf den Magnet.
-(3) Es ist bemerkenswerth, daß die Rostflecke an diesem Stücke in einem Zeitraume von fünf Jahren, während welchem dasselbe
-der eus, ien eihee s seuine ansge- sesauns ausgesee ear, "inmehet, noch in iegen
-einer Beziehung verändert haben.
-1.. zr
-in dem einen zwar viele, aber äußerst zarte, dem freyen Ange kaum sichtbare dern, in dem andern mehrere, aber durchaus
+# Timochin.
 
+Ein charakteristisches Stück, 4 Loth 3 Quentchen wiegend, von dem am 13. März 1807 bei Timochin (im Juchnow'schen Kreise, im Smolensk'schen Gouvernement) in Rußland einzeln niedergefallenen, bei 140 Pfund wiegenden Steine,* welches Klaproth von einem mir zur Ansicht mitgetheilten 18 Loth schweren Bruchstücke in seinem Besitze, abschneiden zu lassen gestattete, und der kaiserl. Sammlung gefälligst überließ.
 
-### 0082
+Es zeigt dasselbe das Innere der Steinmasse auf einer geschliffenen und polierten, nur an einer Seite an Rinde anstehenden Fläche, von 2 1/2 Quadrat-Zoll Oberfläche.
 
-67
-Nande des Stückes etwas schief quer über die Fläche zum andern, die aber beyde nicht die Gränzen des ursprünglichen
-Steines und dessen Oberfläche bezeichnen, indem sie verbrochen und rindenlos sind. Sie ist an einem Ende bey Li-
-nien breit, verschmälert sich allmählich, und läuft gegen das andere beynahe haarfein aus. Im Verlaufe macht sie nur
-einige schwache und kleine Biegungen, und erscheint bald breiter, bald schmäler, so daß sie an einigen Stellen , gleich
-unmittelbar darauf schnell abnehmend, kaum Linie breit ist, zeigt aber nur einen einzigen, zarten Seitenzweig im
-ersten Drittel ihres Laufes, der unter einem ziemlich spitzen Winkel von ihr ausgeht, schief vor- und aufwärts steigt,
-und sich sehr bald haarfein in die Steinmasse verläuft. In derselben Gegend zeigt sich ein eben so zarter, aber unaus-
-gefüllter, leerer Riß oder Sprung in der Steinmasse, der quer vom Rande herkömmt, und sich nahe an der Haupt-
-ader verliert, ohne mit ihr in Berührung zu kommen; ein zweiter ähnlicher zeit sich am andern Ende derselben, der
-eine Strecke weit schief einwärts geht. An beyden Nändern des Stückes, wo diee Ader ausgeht, und wo absichtlich
-ein kleines Stück abgeschlagen wurde, um den Verlauf in die Tiefe zu verfolgen, eigt sich, daß diese Ader eine an
-Breite oder Mächtigkeit den beyden Ausgängen entsprechende Lage bezeichnet, die in shiefer Richtung (unter einem
-Winkel von etwa 60 gegen die Oberfläche) die Steinmasse auf eine Tiese von einem halben Zoll durchsetzt.
-Die zweite Ader geht von demselben Rande aus, weicht aber im Verlaufe von jener ab, unt zieht ebenfalls etwas
-schief und quer über die Fläche gegen einen andern Rand hin, wo wirklich von Außen Rinde ansteht, in welche sie sich
-verläuft. Sie ist beynahe durchaus im ganzen Verlaufe haarfein, nur in ihrer Mitte bildet sie gleichsan einen ovalen
-Wulst oder Botzen (2 Linien lang, 1 Linie breit), der durch einen quer aus der Mitte der Fläche herkommenden schwa-
-chen Riß etwas zerklüftet ist --- und erscheint zwei Mahl etwas bogenförmig in entgegen gesetzten Richtungen geschwun
-gen. Sie zeigt wohl hin und wieder eine Spur von Seitenzweigen, die von ihr unter verschiedenen Winkeln und in
-verschiedenen Richtungen ausgehen, und gegen einen Rand hin oder in die Steinmasse verlaufen --- sie sind aber mi-
-kroscopisch fein, so wie eine ähnliche Ader, die in geringer Entfernung von dieser, und fast in paralleler Richtung mit
-ihr, frey mitten auf der Fläche eine Strecke fortläuft; dagegen findet sich ein Netz von ähnlichen Adern, gegen den ei-
-nen Rand des Stückes, die theils von diesem, theils von jener Hauptader ausgehen, und eben so wechselseitig gegen
-einander sich verlaufen, unter sich verzweigen, einmünden, und verschiedentlich sich durchschneiden und kreuzen.
-Alle diese Adern zeigen, sowohl auf der geschnittenen Fläche als an den, dieser entgegen gesetzten, frischen Bruch-
-stellen, eine matte, schwärzlich- blaulich-oder dunkel schiefer-graue Farbe, durch welche allein sie sich von der übrigen
-Steinmasse unterscheiden. Die Substanz selbst ist gar nicht fremdartig, durch gar nichts von jener getrennt, sondern
-bloß durch die Farbe, durch diese aber scharf von ihr geschieden; im Gegentheil ist die Verbindung und der Zusammen-
-hang mit derselben sehr fest und innig, so zwar, daß die Steinmasse beynahe leichter quer über als an und in der
-Richtung dieser Adern bricht, zumahl wenn sie von einiger Dicke sind. Die Unebenheiten jener setzen sich ununterbrochen
-und in derselben Richtung über diese fort; der Bruch ist ganz derselbe, nur etwas dichter, und an einer, obgleich nur
-kleinen Stelle der breitern Ader, zeigt sich eine Spur von unvollkommen schiefriger Textur, in perpendiculärer, aber
-etwas schiefer und gekrümmter Richtung. Es wirkt diese Ader-Substanz übrigens etwas stärker als die übrige Stein-
-masse, aber doch schwächer als die Außenrinde, auf die Magnetnadel, auch ist dicht an ihr und mitten in ihr, eben so
-wie in der ganzen Masse, Gediegeneisen eingesprengt. Mit der Rinde des Steines hat sie weder der Farbe, noch weni-
-ger der Textur und übrigen Beschaffenheit nach, die geringste Aehnlichkeit. Von einer anderweitigen, dieser Substanz
-mehr oder weniger ähnlichen Beschaffenheit der Steinmasse, von Absonderungsflächen oder metallischem Anfluge zeigt
-sich an diesem Stücke keine deutliche Spur (1).
-stärkere, und darunter eine von 1 bis 3 Linien in der Breite oder Mächtigkeit, und von sehr abweichender Dicke oder Tiefe.
-Hauy und Vauquelin haben an dem großen Bruchstücke des Museums, welches mit letzterm Stücke Bigot's von dem-
-fenen ieen ranmnt, nur eine Ader senere, indeß an dem hier beschriebenen, unmittelbar von ersterem abgeschnittenen
-Stücke, deren zwei vorkommen.
-(1) An einem kleinen Stücke, daß ich selbst besitze, findet sich eine Absonderungsfläche mit metallischem, gravhitähnlichen Anfluge,
-ganz von der Art, wie an den Steinen von York, Sigena, Laponas zc.
-R 2
+Der Cohäsions-Zustand der Masse im Ganzen ist nicht viel fester und dichter als bei den Steinen von Benares, aber inniger, wie es scheint, durch Vermittelung der so häufig eingemengten, rauhen und zackigen Gediegeneisentheilchen, und vorzüglich der vielen Rostflecke. Die Grundmasse für sich wäre, abgesehen von letztern, auch wohl etwas zerreiblich; in jenem Zusammenhange gibt sie aber, wahrscheinlich doch nur mittelst des häufig vorkommenden olivinartigen Gemengtheiles, ziemlich leicht Funken am Stahle. Uebrigens ist sie nicht sonderlich feinkörnig, weniger beinahe als die der Steine von Benares.
 
+Der Aggregats-Zustand ist, obgleich der olivinartige Gemengtheil so häufig, und zum Theil eben so scharf begränzt (aber lange nicht so abgesondert) und kugelicht (aber viel kleiner) ausgeschieden erscheint --- und wahrscheinlich auch durch Vermittelung der Eisentheilchen und Nostflecke --- viel inniger und fester, obgleich lange nicht so, wie bei andern Meteor-Steinen (z. B. jenen von Charsonville, Sales, selbst jenen von Siena, zumahl aber jenen von Ensisheim, L'Aigle u. a.), mehr sandsteinartig, von gröberem und ungleichförmigem Korne, und --- der geringen Menge und Kleinheit der weniger scharf ausgeschiedenen Massen des andern Gemengtheiles wegen --- mehr von klein porphyrartigem als mandelsteinartigem Ansehen.
 
-### 0083
+*) So wie diese Steine einerseits durch die Beschaffenheit der Grundmasse --- und in vielen andern Beziehungen --- jenen von Siena (und noch mehr jenen von Maurkirchen, Parma, Eggenfeld) gleichen; so nähern sich dieselben andererseits durch die Art der Ausscheidung sowohl, als durch die Beschaffenheit des olivinartigen Gemengtheiles --- wenigstens in den hier einzeln vorkommenden niedern und mittlern Graden --- den meisten übrigen Meteor-Steinen, zumahl jenen von Timochin (Eichstädt, Tabor, Barbotan u. v. a.). Nur die besondere Größe einzelner Massen desselben, und die vollkommene Ausscheidung und Absonderung einiger derselben aus der Grundmasse, ist diesen Steinen ganz eigenthümlich, obgleich sich auch hierin jene von Weston denselben sehr nähern.
 
-68
-Sales.
-E, carakteristisches Stück, 24 Loth schwer, von dem am 12. März 1798 bey Sales (nicht weit von Ville
-Franche, Departement du Rhone) in Frankreich (1) einzeln gefallenen Steine, der ungefähr 20 bis 25 Pfund
-wog, welches die kaiserl. Sammlung der gefälligen Mittheilung des Marquis De Drée verdankt.
-Es ist dasselbe von einer der größern, abgeschliffenen Flächen dargestellt, die das Innere der Steinmasse auf einem
-Flächenraume von etwa 14 Quadrat-Zol, und auf wenigstens 14 Zoll Entfernung von der äußersten Oberfläche des
-Steines zeigt, wo nähmlich an einer Oeite Rinde ansteht.
-Der Cohäsions-Zustand ist bernahe eben so dicht und fest, wie am Steine von Charsonville; die Härte der
-Steinmasse im Ganzen doch bedertend geringer, da sie nur schwer und schwach Funken gibt. Der Aggregats-Zustand
-ist zwar (des schon etwas häufger und zum Theil mehr ausgesprochenen olivinartigen Gemengtheiles wegen) im Ganzen
-gröber, doch beynahe ebe so dicht und innig; die Textur von eben so feinem und gleichförmigen Korne, beynahe noch
-in einem höhern Grad, und die ziemlich stark vorwaltende, aber im Ganzen nur wenig durch die Gemengtheile herausge-
-hobene Grundmassevon mattem, erdigem Ansehen, und von licht aschgrauer, beynahe gar nicht ins Blauliche fallender Farbe.
-Der oliviartige Gemengtheil erscheint darin weit häufiger als im Steine von Charsonville, und theils, und
-zwar größten Theils, in ganz ähnlichen, ebenfalls nur schwach und undeutlich ausgesprochenen, sehr kleinen, schwach
-begränzten und innig mit der Grundmasse verbundenen, runden, ovalen, mitunter auch stumpfeckigen Körnern und Man-
-deln von mattem, erdigem Ansehen, und licht und dunkler aschgrauer, mehr oder weniger ins Blauliche ziehender Farbe,
-die dem Ganzen ein schwach porphyrartiges Ansehen geben; tbeils aber auch, obgleich in einem nur geringen Verhält-
-uisse, in einzelnen, kleinen und größern, scharf ausgeschiedenen und begränzten (zum Theil selbst durch eine zarte, ver-
-tiefte Linie von der Grundmasse abgesonderten), meistens vollkommen kugelichten (ganz jenen ausgesprochenern im
-Steine von Timochin und vielen von jenen im Steine von Benares ähnlichen) Körnern, von dunkel blaulich-
-grauer, ins Lauchgrüne ziehender Farbe, etwas fettigem Glanze, größerer Dichtheit, Härte, rissiger Oberfläche u. s. w.,
-die auch auf den rohen Bruchflächen als insitzende Kügelchen mit hervorragender convexer Oberfläche, auch wohl schon
-ausgebrochen, erscheinen.
-Der Gehalt an Gediegeneisen zeigt sich dagegen ungleich geringer als am Steine von Charsonville (2) (Ti-
-mochin u. v.a.), und die Eisentheilchen erscheinen größten Theils --- außer in eben nicht sehr häufig eingestreuten, zarten
-Puncten und Körnern -- von seltnerer Art des Vorkommens, nähmlich in beträchtlichern Massen, die auf der polierten
-Fläche als unregelmäßig gestaltete, eckige, zum Theil gezackte und kleinästige, scharf begränzte, aber fest eingeschlossene
-Flecke von licht eisengrauer, stark ins Silberweiße fallender Farbe, und mit starkem metallischen Glanze sich zeigen,
-und wovon einer der größern hier, von ovaler, etwas keilförmiger Gestalt, 2 Linien in der Länge, und 14 in der größ-
-ten Breite mißt (3).
-Kiestheilchen lassen sich nur äußerst wenige, höchst zart eingesprengt und feinkörnig angehäuft, auf der polierten
-Fläche durch eine mattere, aus dem Zinkgrauen etwas ins Röthliche stechende, auf den rohen Bruchflächen aber durch
-eine glänzendere, und mehr ins Gelbe ziehende Farbe von jenen unterscheiden (4). Von Oxydkörnern zeigt sich keine
-(1) Der verzögerten Bekanntwerdung des Factums, die wir den spätern, eifrigen Nachforschungen des Marquis De Drée ver-
-e,ä s e leselnese d decgesalenen aae ia e nnsshresen, ß ete ni,e i ,nente daven nmh-
-weisbar vorhanden sind, wovon sich eines im Mus. brit. zu London, aus Greville's Vermächtniß, und ähnliche in De
-Drees, iumnenbachs und Ehiadnis Besite sich sennden.
-(2) Ich fand das specifische Gewicht eines kleinen, rindelosen, und, nach möglichst genauer Prüfung, von größern Gediegenei-
-sencheilchen gan freyen Stücke- -- a nun aber das n gesßeren asen senste iintseneie n can.
-zen bald mehr betragen dürfte, als das zart eingesprengte zusammen genommen, und ersteres demnach auf die ganze Steinmasse
-bertheilt werden muste; so möchte das seeissche Gewicht oyhi sischen 3, n 36 antngenen sein, weches der wahre
-Total-Gehalt an Gediegeneisen, nach obernächlicher Abschätzung ( etwa 0,o8 bis ", d entspräche. (Vauauelin erhielt
-bey der nalyse 38 eeeenesehen von den asen Eisentheichen i i- Wirtung de- Seennasse auf den
-nieh ss s cnen sss enn--
-(3) De Drée fand in einem Stücke dieses Steines ein 24 Gran wiegendes Korn von Gediegeneisen.
-(4) Es ist dieser Kies sehr spröde, leicht zersprengbar, und läßt sich sehr leicht zum feinsten Puler zerreiben, zeigt sich aber auch
-as solche- gant ohe Wieung anf die bmaanerndel.
+*) Auch hier spricht sich der geringe Gehalt an Gediegeneisen (das kaum 3 Percent) und an Schwefeleisen (das höchstens das Doppelte von jenem betragen möchte) durch das geringe specifische Gewicht (= 3,35) und durch den äußerst schwachen Magnetismus der Steinmasse im Ganzen aus; doch beträgt der Total-Gehalt an Eisen auch bei diesen Steinen nach Howard und Vauquelin 34 bis 38 Percent.
 
+*) Außer Rußland dürften Bruchstücke von diesem Steine wohl sehr selten zu finden sein, und außer dem Klaproth'schen ist mir nur eines in Blumenbachs, und ein anderes in Chladnis Besitze bekannt.
 
-### 0084
+Die Grundmasse, welche hier sehr stark vorwaltet, --- obgleich sie sich, da sie sehr häufig und unmerklich in den andern Gemengtheil übergeht, nur schwach ausspricht --- hat ein ganz mattes und erdiges, aber kein so rauhes und mageres Ansehen, und eine aschgraue, nur wenig ins Blauliche ziehende Farbe.
 
-Spur, und von Nostflecken nur äußerst wenig. Zarte, mikroscopisch feine, schwärzliche Adern durchziehen die Masse
-nach allen Richtungen, ohne doch die Nänder, selbst dieser kleinen Fläche, zu berühren; von Absonderungsflächen oder
-einem metauischen Ansluge findet sich aber an diesem Stücke sonst keine weitere Andeutung.
-Stannern.
-1 4 Loth schweres Bruchstück von demselben großen, ursprünglich bey 4 Pfund schwer gewesenen Steine von
-Stannern, von welchem, durch Zerschlagen der davon erhaltenen Hälfte, auch das oben beschriebene und Fig. 5 der
-vorigen Tafel abgebildete Stück erhalten worden war.
-Dieses Bruchstück --- von welchem hier des Naumes wegen nur ein Theil vorgestellt ist -- zeigt auf seiner gan-
-zen, bedeutend großen, rohen Bruchfläche von 5 Quadrat-Zoll Ausdehnung, an allen Rändern an Rinde anstoßend,
-das gewöhnliche, sehr zarte und feine, und hier ganz besonders gleichförmige Gemenge der beyden erdigen Gemengtheile
-von ganz gleicher Textur und Beschaffenheit, nur daß sich der olivinartige etwas durch Farbe und größere Dichtheit un-
-terscheidet, ohne sich jedoch durch eine bestimmtere Form oder schärfere Begränzung auszuzeichnen.
-Das Merkwürdige an diesem Stücke ist der ausgezeichnete Gehalt an Schwefeleisen. Es ist dasselbe hier nur we-
-nig in zarten Puncten und Körnern eingestreut, dagegen an mehreren Stellen in beträchtlichen Massen eingemengt.
-Eine solche fast viereckige von 4 Zoll Ausdehnung zeigt sich, und zwar ganz dicht, kaum auf 1 Linie Entfernung von der
-anstehenden Ninde an dem einen Rande, zerklüftet und in unregelmäßige, unbestimmt eckige, ziemlich scharfkantige Bruch-
-stücke zersprungen und bröcklig angehäuft, von körniger Textur, ziemlich dunkelgrauer, weiß schimmernder, ins Röthliche
-stechender Farbe, und mit schwachem metallischen Glanze. An einer andern Stelle, ganz dicht an der Rinde, findet
-sich eine kleinere Masse, die zum Theil wie geschmolzen aussieht, von pfauenschweifigem Farbenspiele und etwas stärke-
-rem Glanze.
-S
+Der olivinartige Gemengtheil, der, in so ferne er deutlich ausgesprochen erscheint, kaum 1/6 der ganzen Steinmasse betragen möchte, zeigt sich auf dieser polierten Fläche sehr ungleichförmig zerstreut --- aber ziemlich gleichartig, und nicht sehr abweichend in Größe, Gestalt, Dichtheit, Farbe und Glanz --- in kleinen, sehr und ganz kleinen (selten von 1/2, meistens nur von 1/4 Linie im Durchmesser und noch weniger), meistens rundlichten, selbst auch vollkommen kugelichten Körnern, von grauer, ins Lauch- und schmutzig Oliven-Grüne, oder ins Braune ziehender Farbe, und schwachem, fettigem Glanze.
 
+Es sind diese Körner zwar scharf begränzt und ausgeschieden, aber bei weitem nicht- so, wie wenigstens viele in den Steinen von Benares (selbst nicht wie manche in jenen von Weston; dagegen genau so wie die meisten in den Steinen von Eichstädt, Tabor, Barbotan u. a.), aus der Grundmasse abgesondert, sondern innig von derselben eingeschlossen und festsitzend, so daß sie an rohen Bruchflächen nie ausgefallen oder ausgebrochen, aber auch nicht verbrochen, und mit rauher, erdiger Oberfläche, mehr oder weniger halbkugelicht, hervorragend erscheinen. Sie sind etwas schwer zersprengbar, zeigen einen dichten, ebenen Bruch, der sich mehr oder weniger dem flachmuschelichen nähert, und geben unbestimmt eckige, nur wenig scharfkantige, meistens vollkommen undurchsichtige, oder nur schwach an den Kanten durchscheinende Bruchstücke.*
 
-### 0085
+Außer diesen einzelnen, durch Farbe und Schärfe der Begränzung mehr ausgesprochenen und auffallenden, findet sich aber noch eine Menge ähnlicher, zum Theil noch weit kleinerer Körner, die aber nur auf der polierten Fläche als Puncte oder kleine und äußerst kleine Fleckchen zur Ansicht kommen, die sich von der Grundmasse --- mit der sie innig verbunden sind, und in welche sie zum Theil überzugehen scheinen --- bloß durch eine bald etwas lichtere, bald etwas dunklere Farbe, etwas mehr Dichtheit, durch ein feineres Korn und durch ihre Figurirung -- die durch eine mehr oder weniger scharfe, oft kaum merkliche Ausscheidungslinie oder Begränzung bestimmt wird --- unterscheiden.*
 
-Achte und neunte Tafel.
+Der Gehalt an mechanisch und sichtlich eingemengtem Gediegeneisen ist bei diesen Steinen ausgezeichnet stark, und beträgt fast 20 Percent, oder beinahe den fünften Theil der Steinmasse.* Die Eisentheilchen erscheinen auf den rohen Bruchflächen als einzelne, mehr oder weniger hervorragende, ziemlich starke, rauhe Zacken und Körner von eisengrauer Farbe und schwachem metallischen Glanze, in so ferne sie nicht von erdigen Massentheilchen bedeckt sind. Auf der polierten Fläche zeigen sie sich sehr häufig und ziemlich gleichförmig vertheilt, als mehr oder weniger zarte Puncte, als größere oder kleinere, meistens gezackte Flecke, und als mehr oder weniger gebogene, ästige und zum Theil zusammen hängende Linien und Adern, von sehr licht stahlgrauer, ins Silberweiße ziehender Farbe, und ziemlich starkem metallischen Glanze. Dagegen ist der Gehalt an Schwefeleisen höchst unbedeutend, und selbst auf der polierten Fläche kann man nur äußerst zarte, mikroscopische Puncte, die hie und da zu kleinen Flecken angehäuft sind, und sich durch eine zinkweiße, etwas ins Gelbliche oder Nöthliche fallende Farbe, und einen etwas schwächern Glanz auszeichnen, dafür erkennen. Besonders häufig aber zeigen sich die Nostflecke, so daß man sie nach Chladni allerdings für diese Steine (aber eben so für die Steine von Eichstädt, Charsonville, Barbotan u. e. a.) als charakteristisch ansehen kann, indem sie beinahe die Hälfte der Steinmasse ausmachen, und derselben ein ganz eigenthümliches marmorirtes Ansehen geben. Sie sind übrigens hier sehr klein, zart, matt, erdig, und von besonders dunkler gelblich-brauner Farbe.
+
+*) Ihre Beschaffenheit ist in allen Beziehungen dieselbe, wie die der ähnlichen in den Steinen von Siena, Benares, und vielen andern (und selbst im sibirischen Eisen), einzeln und selten, in vielen andern Meteor-Steinen aber, als jenen von Eichstädt, Tabor, Barbotan u. a., häufig und vorwaltend in diesem Grade von Ausbildung vorkommenden Massen dieses Gemengtheiles.
+
+*) Von eben der Beschaffenheit, wie dieser Gemengtheil wieder einzeln in den meisten Meteor-Steinen, häufig und beinahe auschließlich aber in andern (z. B. in jenen von Charsonville, Sales, Berlanguillas, Apt, York, Lissa u. a.) vorzukommen pflegt.
+
+*) Dieser beträchtliche Gehalt an Gediegeneisen, den Klaproth und N. A. Scherer, nach den Resultaten ihrer Analysen, auf beinahe 18 Percent angeben, gibt sich auch durch das bedeutende specifische Gewicht (= 3,700 --- worin diese Steine wohl nur von jenen von Eichstädt übertroffen werden dürften, und welchem sich jene von Tipperary, Tabor, Charsonville, Toulouse, Erxleben nur zu nähern scheinen ---), und durch eine sehr starke Wirkung auf den Magnet zu erkennen. Klaproth gibt übrigens noch 25, Scherer 17 1/2 Percent als den Gehalt dieser Steine an oxydirtem Eisen an, dessen Vorhandensein ersterer den später, durch die Einwirkung unsrer Atmosphäre, entstandenen Rostflecken zuschreibt.
+
+Von Oxyd oder ähnlichen Partikelchen zeigt sich keine deutliche Spur; eben so wenig von Adern und Gängen oder einer andern Veränderung der Steinmasse.
+
+# Charsonville.
+
+Ein großes, 1 Pfund schweres Stück von einem der am 23. November 1810 in der Gegend von Charsonville bei Orleans (Departement du Loiret) in Frankreich niedergefallenen Steine, welches während meiner Anwesenheit in Paris (1815) auf mein Ansuchen und mit Genehmigung der königlichen Administration des Museums der Naturgeschichte, von einem daselbst aufbewahrten Bruchstücke,* von 11 Pfund am Gewichte, abgeschnitten, und mir, nebst mehreren andern, für die kaiserliche Sammlung gefälligst mitgetheilt wurde.*
+
+Es ist dasselbe, auf der zum Theil mit Rinde bedeckten, zum Theil verbrochenen, gewölbten Außenseite liegend, von der durch den Schnitt erhaltenen, ganz ebenen, aber noch unpolierten Fläche dargestellt, die das Innere der Steinmasse auf einer Ausdehnung von ungefähr 4 Quadrat-Zoll, und, wo am dicksten, in einer Tiefe von beinahe 1 1/2 Zoll von der äußern Oberfläche des Steines, zur Ansicht bringt.
+
+Der Cohäsions-Zustand der Masse ist sehr fest und dicht, so daß sie sich hierin den compactesten und härtesten Meteor-Steinen (jenen von Ensisheim, Erxleben, Chantonnay) nähert, indeß sie doch nur etwas schwer Funken gibt. Der Aggregats-Zustand ist ebenfalls sehr fest und innig, und dabei auch sehr gleichförmig --- da der olivinartige Gemengtheil äußerst wenig, nur höchst unvollkommen und schwach ausgeschieden, und von der Grundmasse in allen Beziehungen nur wenig abweichend, und selbst sehr gleichförmig erscheint --- und dicht sandsteinartig, von äußerst feinem, sehr gleichförmigen Korne.
+
+Die Grundmasse, welche hier besonders stark vorwaltet, und abgesehen von den eingemengten Metalltheilchen, und ohne Loupe betrachtet, bis auf wenige Massen, in welchen sich der andere Gemengtheil etwas deutlicher ausspricht, beinahe die ganze Steinmasse zu constituiren scheint, indem sie größten Theils allmählich und sehr unmerklich in jenen übergeht --- hat ein ganz mattes, erdiges, aber, selbst auf rohen Bruchstellen, eben kein sehr rauhes noch mageres Ansehen, und eine aschgraue, nur wenig ins Blauliche ziehende Farbe.
+
+Der olivinartige Gemengtheil erscheint darin nur sehr schwach und undeutlich ausgesprochen, in sehr sparsamen, einzelnen, zerstreuten, sehr und äußerst kleinen, oft kaum merklich ausgeschiedenen, oder doch nur sehr schwach begränzten, meistens rundlichen oder ovalen, doch auch stumpfeckigen Körnern, von mattem, erdigen Ansehen, und licht aschgrauer, gelblicher, blaulicher, nur selten bräunlicher Farbe. Die meisten dieser Massen unterscheiden sich bloß durch etwas größere Dichtheit, Feinheit im Korne, und durch ihren Umriß von der Grundmasse, und gleichen zum Theil vollkommen jenen, welche in dem zuvor beschriebenen Steine von Timochin in ziemlicher Menge, einzeln aber in den meisten Meteor-Steinen, und zwar gemeinschaftlich mit andern vorkommen, die in verschiedenen und weit höhern Graden von Ausbildung und Ausscheidung sich befinden. Nur sehr wenige davon zeigen sich an den rohen Bruchstellen als vollkommen ausgeschieden oder abgesondert von der Grundmasse, in Kugel- oder Körnerform, mit vorragender convexer Oberfläche; die meisten sind mit der Grundmasse zugleich gebrochen, und zeigen nur einen dichtern, ebenern Bruch.*
+
+*) In dem, dem Werke Chladnis angeschlossenen Verzeichnisse der Meteor-Massen der kaiserl. Sammlung, ist aus Versehen dieses Bruchstück als ein ganzer Stein angegeben worden. Aus Bigot de Morogues verläßlichen Nachrichten über diesen Steinfall ergibt sich aber, daß dasselbe selbst nur ein Bruchstück, und zwar von dem einen größern der niedergefallenen und aufgefundenen Steine war, dessen Gewicht bei 40 Pfund betrug, welches D. Pellieux zu Baugenci an den damahligen Minister des Innern (Grafen Montalivet) einsendete, von welchem dasselbe an das königl. Museum abgegeben wurde.
+
+*) Obgleich dieser Steinfall hinsichtlich der Zahl der gefallenen Steine nicht sehr beträchtlich war, indem deren nur drei im Falle beobachtet, und davon selbst nur zwei aufgefunden wurden; so gehört er doch der Masse nach zu den bedeutenderen, da der eine der aufgefundenen Steine bei 40, der andere 20 Pfund wog. Indessen ist mir außer obigem getheilten Bruchstücke nur noch eines in De Drées, und ein zweites in Chladnis Besitze bekannt.
+
+*) Wenn das quantitative Verhältniß der nächsten Bestandtheile von mehreren Meteor-Steinen mit Verläßlichkeit angegeben wäre; so ließe sich vielleicht --- wie bereits oben erwähnt worden ist --- mit einiger Gewißheit nachweisen, daß in demselben und nicht in bloßen Zustandsveränderungen der Steinmasse, der nächste Grund der eben so auffallenden als mannigfaltigen Abweichungen in der Menge, Beschaffenheit und in der Art der Auscheidung und Absonderung dieses Gemengtheiles liege, wie dieß zum Theil aus den vorhandenen Analysen hervor zu gehen scheint. Von den meisten Meteor-Steinen nähmlich, in welchen dieser Gemengtheil nur schwach und unvollkommen ausgesprochen ist (wie z. B. in jenen von Stannern, Parma, Charsonville, Doroninsk, L'Aigle, Ensisheim), weisen jene einen verhältnißmäßig geringern Gehalt an Talkerde (nähmlich zwischen 2 und 13 Percent), und dabei einen nicht ganz unbedeutenden Gehalt an Thon- und Kalkerde (von ersterer 3 bis 9, von letzterer 4 bis 12 Percent) aus; von jenen dagegen, wo derselbe häufiger, deutlich ausgesprochen, oder in einem besonders hohen Grade von Ausbildung, oder vollends vorwaltend erscheint (wie in jenen von Eichstädt, Tabor, Benares, Eggenfeld, Erxleben, Chassigny), einen weit größern Gehalt an Talkerde (17 bis 21; 23; 26 bis 32 Percent), aber keine Spur, oder doch nur äußerst wenig (1 1/4 und 1/2 Percent von jenen von Erxleben), an Thon- und Kalkerde. Die Steine von Timochin hielten in beiden Beziehungen gerade das Mittel. (Klaproth gibt deren Gehalt an Talkerde auf 14 1/4, von Thon auf 1, und von Kalkerde auf 3/4 Percent an.)
+
+Die Gediegeneisentheilchen werden durch ihre Menge und zum Theil durch ihre Beschaffenheit charakteristisch für diese Steine. Sie erscheinen nähmlich äußerst häufig --- so daß ihre Masse zusammen genommen, nach einer oberflächlichen Abschätzung, gut den vierten Theil des Ganzen betragen möchte* --- höchst unregelmäßig zwar, aber doch ziemlich gleichförmig, und im Ganzen sehr dicht eingestreut, und auf dieser geschnittenen Fläche als etwas erhabene, äußerst zarte Puncte von licht eisengrauer Farbe und etwas mattem metallischen Glanze, die hin und wieder zusammen gehäuft und gewisser Maßen zusammen geflossen, mehr oder weniger Adern gleichende, nur selten und wenig zusammen hängende, gezackte, gekörnte und gleichsam geträufte, kleine Flecke oder Massen bilden, welche sich mit einem stählernen Instrumente sehr leicht breit und platt drücken und ritzen lassen, und dann (wie an den rohen Bruchstellen) einen höhern metallischen Glanz und eine stark ins Silberweiße fallende Farbe zeigen.
+
+*) Bigot de Morogues schätzt den Gehalt auf 31 Percent. Vauquelin gibt den Gehalt des von ihm analysirten Stückes im Ganzen mit 25,8 als regulinisch an (nach Calcül, denn er hatte nach seinen Verfahren alles Eisen daraus als Oxyd im _maximum_, also etwa 36 Percent erhalten). Es ergibt sich hieraus, daß der Total-Gehalt dieser Steine an Eisen eben nicht größer ist, als bei den meisten Meteor-Steinen, und daß, da sich dieser Gehalt, dem äußern Ansehen nach, schon in dem mechanisch eingemengten Gediegeneisen ausspricht, in diesen Steinen wenig oder gar nichts oxydirt, vererzt oder sonst verlarvt enthalten sein könne. Der starke Gehalt an Gediegeneisen bewährt sich übrigens nicht nur durch das specifische Gewicht (das --- im Durchschnitt und mit Hinsicht auf Adern und Rinde --- zwischen 3,6 und 3,7 fällt), sondern auch durch sehr starke Wirkung der Steinmasse auf den Magnet.
+
+Von Kiestheilchen findet sich dagegen nur wenig Spur in äußerst zarten Puncten, von etwas stärkern metallischem Glanze, und einer aus dem Weißen ins Messinggelbe ziehender Farbe, und noch weniger von Oxyden oder ähnlichen Partikelchen; um so häufiger erscheinen aber die Nostflecke, die durch ihre Menge sowohl --- da sie der ganzen Oberfläche ein zart marmorirtes Ansehen geben --- als durch ihre Zartheit und Farbe --- indem sie meistens als einzelne, äußerst feine Puncte, die nur stellenweise in Flecke zusammen geflossen sind, und von einer eigenen graulich-gelblichen Farbe erscheinen --- ebenfalls als charakteristisch für diese Steine angesehen werden könnten, in so ferne sie nicht späterhin und zufällig entstanden sind.*
+
+*) Es ist bemerkenswerth, daß die Rostflecke an diesem Stücke in einem Zeitraume von fünf Jahren, während welchem dasselbe der Luft, dem Lichte und selbst häufiger Betastung ausgesetzt war, sich gar nicht merklich vergrößert, vermehrt, noch in irgend einer Beziehung verändert haben.
+
+Das Merkwürdigste an diesem Steine, und weßhalb auch dessen bildliche Darstellung versucht wurde, sind die Adern und Gänge von einer, scheinbar, fremdartigen Substanz, welche auf dessen Oberfläche erscheinen und die Steinmasse durchziehen, von welchen bereits oben in der Einleitung zur Erklärung dieser Tafel im Allgemeinen gesprochen wurde, und die bei diesen Steinen, zwar gerade nicht am häufigsten (denn ungleich häufiger zeigen sie sich bei jenen von Agen und Lissa), aber durch Stärke und Ausdehnung am ausgezeichnetsten vorkommen.
+
+Es zeigen sich auf der geschnittenen Fläche dieses Stückes zwei solche Adern.* Die eine davon geht von einem
+
+Rande des Stückes etwas schief quer über die Fläche zum andern, die aber beide nicht die Gränzen des ursprünglichen Steines und dessen Oberfläche bezeichnen, indem sie verbrochen und rindenlos sind. Sie ist an einem Ende bei 5/4 Linien breit, verschmälert sich allmählich, und läuft gegen das andere beinahe haarfein aus. Im Verlaufe macht sie nur einige schwache und kleine Biegungen, und erscheint bald breiter, bald schmäler, so daß sie an einigen Stellen 1/2, gleich unmittelbar darauf schnell abnehmend, kaum 1/4 Linie breit ist, zeigt aber nur einen einzigen, zarten Seitenzweig im ersten Drittel ihres Laufes, der unter einem ziemlich spitzen Winkel von ihr ausgeht, schief vor- und aufwärts steigt, und sich sehr bald haarfein in die Steinmasse verläuft. In derselben Gegend zeigt sich ein eben so zarter, aber unausgefüllter, leerer Riß oder Sprung in der Steinmasse, der quer vom Rande herkömmt, und sich nahe an der Hauptader verliert, ohne mit ihr in Berührung zu kommen; ein zweiter ähnlicher zeit sich am andern Ende derselben, der eine Strecke weit schief einwärts geht. An beiden Nändern des Stückes, wo diee Ader ausgeht, und wo absichtlich ein kleines Stück abgeschlagen wurde, um den Verlauf in die Tiefe zu verfolgen, eigt sich, daß diese Ader eine an Breite oder Mächtigkeit den beiden Ausgängen entsprechende Lage bezeichnet, die in shiefer Richtung (unter einem Winkel von etwa 60° gegen die Oberfläche) die Steinmasse auf eine Tiese von einem halben Zoll durchsetzt.
+
+*) Bigot de Morogues, welcher Gelegenheit hatte, Bruchstücke von beiden aufgefundenen Steinen zu untersuchen, bemerkte in dem einen zwar viele, aber äußerst zarte, dem freien Auge kaum sichtbare Adern, in dem andern mehrere, aber durchaus stärkere, und darunter eine von 1 bis 3 Linien in der Breite oder Mächtigkeit, und von sehr abweichender Dicke oder Tiefe. Hauy und Vauquelin haben an dem großen Bruchstücke des Museums, welches mit letzterm Stücke Bigots von demselben Steine herstammt, nur eine Ader bemerkt, indeß an dem hier beschriebenen, unmittelbar von ersterem abgeschnittenen Stücke, deren zwei vorkommen.
+
+Die zweite Ader geht von demselben Rande aus, weicht aber im Verlaufe von jener ab, unt zieht ebenfalls etwas schief und quer über die Fläche gegen einen andern Rand hin, wo wirklich von Außen Rinde ansteht, in welche sie sich verläuft. Sie ist beinahe durchaus im ganzen Verlaufe haarfein, nur in ihrer Mitte bildet sie gleichsan einen ovalen Wulst oder Botzen (2 Linien lang, 1 Linie breit), der durch einen quer aus der Mitte der Fläche herkommenden schwachen Riß etwas zerklüftet ist --- und erscheint zwei Mahl etwas bogenförmig in entgegen gesetzten Richtungen geschwun gen. Sie zeigt wohl hin und wieder eine Spur von Seitenzweigen, die von ihr unter verschiedenen Winkeln und in verschiedenen Richtungen ausgehen, und gegen einen Rand hin oder in die Steinmasse verlaufen --- sie sind aber mikroscopisch fein, so wie eine ähnliche Ader, die in geringer Entfernung von dieser, und fast in paralleler Richtung mit ihr, frey mitten auf der Fläche eine Strecke fortläuft; dagegen findet sich ein Netz von ähnlichen Adern, gegen den einen Rand des Stückes, die theils von diesem, theils von jener Hauptader ausgehen, und eben so wechselseitig gegen einander sich verlaufen, unter sich verzweigen, einmünden, und verschiedentlich sich durchschneiden und kreuzen.
+
+Alle diese Adern zeigen, sowohl auf der geschnittenen Fläche als an den, dieser entgegen gesetzten, frischen Bruchstellen, eine matte, schwärzlich- blaulich- oder dunkel schiefer-graue Farbe, durch welche allein sie sich von der übrigen Steinmasse unterscheiden. Die Substanz selbst ist gar nicht fremdartig, durch gar nichts von jener getrennt, sondern bloß durch die Farbe, durch diese aber scharf von ihr geschieden; im Gegentheil ist die Verbindung und der Zusammenhang mit derselben sehr fest und innig, so zwar, daß die Steinmasse beinahe leichter quer über als an und in der Richtung dieser Adern bricht, zumahl wenn sie von einiger Dicke sind. Die Unebenheiten jener setzen sich ununterbrochen und in derselben Richtung über diese fort; der Bruch ist ganz derselbe, nur etwas dichter, und an einer, obgleich nur kleinen Stelle der breitern Ader, zeigt sich eine Spur von unvollkommen schiefriger Textur, in perpendiculärer, aber etwas schiefer und gekrümmter Richtung. Es wirkt diese Ader-Substanz übrigens etwas stärker als die übrige Steinmasse, aber doch schwächer als die Außenrinde, auf die Magnetnadel, auch ist dicht an ihr und mitten in ihr, eben so wie in der ganzen Masse, Gediegeneisen eingesprengt. Mit der Rinde des Steines hat sie weder der Farbe, noch weniger der Textur und übrigen Beschaffenheit nach, die geringste Aehnlichkeit. Von einer anderweitigen, dieser Substanz mehr oder weniger ähnlichen Beschaffenheit der Steinmasse, von Absonderungsflächen oder metallischem Anfluge zeigt sich an diesem Stücke keine deutliche Spur.*
+
+*) An einem kleinen Stücke, daß ich selbst besitze, findet sich eine Absonderungsfläche mit metallischem, graphitähnlichen Anfluge, ganz von der Art, wie an den Steinen von York, Sigena, Laponas zc.
+
+# Sales.
+
+Ein carakteristisches Stück, 2 1/2 Loth schwer, von dem am 12. März 1798 bei Sales (nicht weit von Ville Franche, Departement du Rhone) in Frankreich* einzeln gefallenen Steine, der ungefähr 20 bis 25 Pfund wog, welches die kaiserl. Sammlung der gefälligen Mittheilung des Marquis De Drée verdankt.
+
+*) Der verzögerten Bekanntwerdung des Factums, die wir den spätern, eifrigen Nachforschungen des Marquis De Drée verdanken, und der Unbedeutenheit der niedergefallenen Masse ist es zuzuschreiben, daß nur mehr wenige Fragmente davon nachweisbar vorhanden sind, wovon sich eines im Mus. brit. zu London, aus Grevilles Vermächtniß, und ähnliche in De Drées, Blumnenbachs und Chladnis Besitze sich befinden.
+
+Es ist dasselbe von einer der größern, abgeschliffenen Flächen dargestellt, die das Innere der Steinmasse auf einem Flächenraume von etwa 1 1/4 Quadrat-Zoll, und auf wenigstens 1 1/2 Zoll Entfernung von der äußersten Oberfläche des Steines zeigt, wo nähmlich an einer Seite Rinde ansteht.
+
+Der Cohäsions-Zustand ist beinahe eben so dicht und fest, wie am Steine von Charsonville; die Härte der Steinmasse im Ganzen doch bedeutend geringer, da sie nur schwer und schwach Funken gibt. Der Aggregats-Zustand ist zwar (des schon etwas häufiger und zum Theil mehr ausgesprochenen olivinartigen Gemengtheiles wegen) im Ganzen gröber, doch beinahe eben so dicht und innig; die Textur von eben so feinem und gleichförmigen Korne, beinahe noch in einem höhern Grade, und die ziemlich stark vorwaltende, aber im Ganzen nur wenig durch die Gemengtheile herausgehobene Grundmassen von mattem, erdigem Ansehen, und von licht aschgrauer, beinahe gar nicht ins Blauliche fallender Farbe.
+
+Der olivinartige Gemengtheil erscheint darin weit häufiger als im Steine von Charsonville, und theils, und zwar größten Theils, in ganz ähnlichen, ebenfalls nur schwach und undeutlich ausgesprochenen, sehr kleinen, schwach begränzten und innig mit der Grundmasse verbundenen, runden, ovalen, mitunter auch stumpfeckigen Körnern und Mandeln von mattem, erdigem Ansehen, und licht und dunkler aschgrauer, mehr oder weniger ins Blauliche ziehender Farbe, die dem Ganzen ein schwach porphyrartiges Ansehen geben; tbeils aber auch, obgleich in einem nur geringen Verhältuisse, in einzelnen, kleinen und größern, scharf ausgeschiedenen und begränzten (zum Theil selbst durch eine zarte, vertiefte Linie von der Grundmasse abgesonderten), meistens vollkommen kugelichten (ganz jenen ausgesprochenern im Steine von Timochin und vielen von jenen im Steine von Benares ähnlichen) Körnern, von dunkel blaulichgrauer, ins Lauchgrüne ziehender Farbe, etwas fettigem Glanze, größerer Dichtheit, Härte, rissiger Oberfläche u. s. w., die auch auf den rohen Bruchflächen als insitzende Kügelchen mit hervorragender convexer Oberfläche, auch wohl schon ausgebrochen, erscheinen.
+
+Der Gehalt an Gediegeneisen zeigt sich dagegen ungleich geringer als am Steine von Charsonville* (Timochin u. v. a.), und die Eisentheilchen erscheinen größten Theils --- außer in eben nicht sehr häufig eingestreuten, zarten Puncten und Körnern --- von seltnerer Art des Vorkommens, nähmlich in beträchtlichern Massen, die auf der polierten Fläche als unregelmäßig gestaltete, eckige, zum Theil gezackte und kleinästige, scharf begränzte, aber fest eingeschlossene Flecke von licht eisengrauer, stark ins Silberweiße fallender Farbe, und mit starkem metallischen Glanze sich zeigen, und wovon einer der größern hier, von ovaler, etwas keilförmiger Gestalt, 2 Linien in der Länge, und 1 1/2 in der größten Breite mißt.*
+
+*) Ich fand das specifische Gewicht eines kleinen, rindelosen, und, nach möglichst genauer Prüfung, von größern Gediegeneisentheilchen ganz freien Stücke = 3,434; da nun aber das in größeren Massen zerstreut eingemengte Gediegeneisen im Ganzen bald mehr betragen dürfte, als das zart eingesprengte zusammen genommen, und ersteres demnach auf die ganze Steinmasse vertheilt werden müßte; so möchte das das specifische Gewicht wohl zwischen 3,5 und 3,6 anzusetzen sein, welchem auch der wahre Total-Gehalt an Gediegeneisen, nach oberflächlicher Abschätzung (= etwa 0,08 bis 0,10) entspräche. (Vauquelin erhielt bei der Analyse 38 Percent als Oxyd.) Abgesehen von den größern Eisentheilchen ist die Wirkung der Steinmasse auf den Magnet auch nur schwach, eben so wie bei den Steinen von Lissa, stärker jedoch als bei jenen von Siena und Benares.
+
+*) De Drée fand in einem Stücke dieses Steines ein 24 Gran wiegendes Korn von Gediegeneisen.
+
+Kiestheilchen lassen sich nur äußerst wenige, höchst zart eingesprengt und feinkörnig angehäuft, auf der polierten Fläche durch eine mattere, aus dem Zinkgrauen etwas ins Röthliche stechende, auf den rohen Bruchflächen aber durch eine glänzendere, und mehr ins Gelbe ziehende Farbe von jenen unterscheiden.* Von Oxydkörnern zeigt sich keine Spur, und von Rostflecken nur äußerst wenig. Zarte, mikroscopisch feine, schwärzliche Adern durchziehen die Masse nach allen Richtungen, ohne doch die Nänder, selbst dieser kleinen Fläche, zu berühren; von Absonderungsflächen oder einem metauischen Ansluge findet sich aber an diesem Stücke sonst keine weitere Andeutung.
+
+*) Es ist dieser Kies sehr spröde, leicht zersprengbar, und läßt sich sehr leicht zum feinsten Puler zerreiben, zeigt sich aber auch als solches ganz ohne Wirkung auf die Magnetnadel.
+
+# Stannern.
+
+Ein 13 1/2 Loth schweres Bruchstück von demselben großen, ursprünglich bei 4 Pfund schwer gewesenen Steine von Stannern, von welchem, durch Zerschlagen der davon erhaltenen Hälfte, auch das oben beschriebene und Fig. 5 der vorigen Tafel abgebildete Stück erhalten worden war.
+
+Dieses Bruchstück --- von welchem hier des Naumes wegen nur ein Theil vorgestellt ist --- zeigt auf seiner ganzen, bedeutend großen, rohen Bruchfläche von 5 Quadrat-Zoll Ausdehnung, an allen Rändern an Rinde anstoßend, das gewöhnliche, sehr zarte und feine, und hier ganz besonders gleichförmige Gemenge der beiden erdigen Gemengtheile von ganz gleicher Textur und Beschaffenheit, nur daß sich der olivinartige etwas durch Farbe und größere Dichtheit unterscheidet, ohne sich jedoch durch eine bestimmtere Form oder schärfere Begränzung auszuzeichnen.
+
+Das Merkwürdige an diesem Stücke ist der ausgezeichnete Gehalt an Schwefeleisen. Es ist dasselbe hier nur wenig in zarten Puncten und Körnern eingestreut, dagegen an mehreren Stellen in beträchtlichen Massen eingemengt. Eine solche fast viereckige von 1/4 Zoll Ausdehnung zeigt sich, und zwar ganz dicht, kaum auf 1 Linie Entfernung von der anstehenden Rinde an dem einen Rande, zerklüftet und in unregelmäßige, unbestimmt eckige, ziemlich scharfkantige Bruchstücke zersprungen und bröcklig angehäuft, von körniger Textur, ziemlich dunkelgrauer, weiß schimmernder, ins Röthliche stechender Farbe, und mit schwachem metallischen Glanze. An einer andern Stelle, ganz dicht an der Rinde, findet sich eine kleinere Masse, die zum Theil wie geschmolzen aussieht, von pfauenschweifigem Farbenspiele und etwas stärkerem Glanze.
+
+# Achte und neunte Tafel.
+
 D. gweck der bildlichen Darstellungen dieser Tafeln ist die Versinnlichung des merkwürdigen krystallinischen Gefüges
 der vorzüglichsten Gediegeneisen-Massen, deren meteorischer Ursprung theils factisch erwiesen, theils höchst wahrscheinlich,
 ja unbezweifelbar ist, und deren Untersuchung in jener Beziehung mir bisher möglich war (1). Es zeigt sich dasselbe
