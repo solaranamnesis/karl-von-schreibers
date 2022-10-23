@@ -1006,764 +1006,140 @@ Das Merkwürdige an diesem Stücke ist der ausgezeichnete Gehalt an Schwefeleise
 
 # Achte und neunte Tafel.
 
-D. gweck der bildlichen Darstellungen dieser Tafeln ist die Versinnlichung des merkwürdigen krystallinischen Gefüges
-der vorzüglichsten Gediegeneisen-Massen, deren meteorischer Ursprung theils factisch erwiesen, theils höchst wahrscheinlich,
-ja unbezweifelbar ist, und deren Untersuchung in jener Beziehung mir bisher möglich war (1). Es zeigt sich dasselbe
-am schönsten und deutlichsten auf ganz ebenen, rein abgeschliffenen und fein polierten Flächen solcher Massen --- in so
-ferne diese nicht etwa durch künstliche Hitze oder durch mechanische Gewalt vorher eine Veränderung erlitten haben (2)-
-(1) Es ist die Entdeckung dieser Eigenthümlichkeit des Gediegeneisens, wahrhaft meteorischen Ursprunges, schon seit mehreren Iah-
-ren srtsnnn, denn Hee Dieere . isnnaceten nachte sie bereits im Jahre s ie elegenheit deree-
-sen physich echnischen Bersuche, die er mne dei enm gi en, und wir waren weit enfernt se gehein zu
-öalen, n eneeine s irfelse uen mienkcsäsisssnnseen esnh incs iherhelt, ud ien- ate, an aise- ci-
-ss. sssil ,cile seen se i..n is,s ss s,i en, d n na , "
-zwar seit 1809, mit den übrigen vorhandenen Meteor-Massen und der zahlreichen Suite von ausgewählten Stücken vom
-Steinfaule zu Stannern vereinigt, une ur sich benehende Sammlung abgeschiosen, am kaisert. Mineralien Cabinette
-zur öffentlichen Ansicht ausgestellt. Noch in demselben Jahre hatte Herr v. Widmannstätten Gelegenheit, an einem aus-
-gezeichnet schönen Ladenstact om sieischen eien ee se, ener utrschen Sammlung - deren sachverständiger Besi-
-iis sse seeinniis äs isls iseis ssseiiä s esen, da- damitr sn der aeein ei-
-in heher- eresie nee äe i .ä Sne om e litener eis-n, eiche- di- aiseri eäunin
-een dirch iss erhaten ane, inn in grosen Gediegeneisen easse, i
-Elbogen in Böhnen an das taisent casinete abgegeben urde; endlich 1815 an dem Stücke vom karpathischen
-ä., ss n s . . ssitse. s ie- nnrer eenre- enlseas-
-dähh . äs sig, ehadune urch eune in iaetteren, u er
-nach Maßgabe der Dauer des peozeses, in mehe oder woenger erhabenen und vertieften Figuren (en basrelie) ausspricht;
-e sinsinslies ges nfes, si li seses, d- icets- et, is lns
-telbare Abdrücke solcher Flächen mittelst Druckerschware e msa feisn eih a natürliche Forn oder Stereotyp benu-
-tzend -- eine vollkommen getreue und leicht vervielfachbare Darstellung zu bewirken, und der gute Erfolg dieses Verfahrens
-beranlaßte uns 1813, von der großen geästen Flache der Elbogner Masse, welche das Gefüge besonders schön nd dennch
-zeigte, solche unmittelbare Abdrucke in hinlänglicher Menge abziehen zu machen, um sie als Belege zu einer Abhandlung zu
-gebrauchen, die wir damahls schon über diesen Gegenstand auszuarbeiten und bekannt zu machen dachten. Allein Zeitumstände
-und Verhältnisse erschwerten unsere Arbeiten, die eine Reihe von mühsamen und ununterbrochenen Versuchen und Untersuchun-
-gen nothwendig machten, und brachten uns zuletzt -- wie mirs 180 mit meinen früheren ahnlichen unternehmungen ergan-
-gen war -- ganz davon ab, so daß jene Autographe bis zu dieser Stunde, als sie endlich eine neue Veranlassung -- leider
-nur zu unvorbereitet und peremtorisch -- ans Tageslicht ruft, unbenutzt liegen blieben. Inzwischen wurde der Gegenstand
-durch munduiche Mieheilungen, znahl durch rende und eisende, immer mehr und mehr bekannter, und endlich, vorzüg-
-ssä s iis. t ä ce esinins in ien, n sehieche d, aens- mnse -i ihen
-dnh. ae - hen- ie ien in nneennn, sneenlich zur Sprache gebracht; so aßerten Her Gibernialrerb
-meann peg, an desen Beranilnlin,, ie deihei seiner achriche bon de- Eibogner maste d-, eoerus,
-Heft 9, und nach dieses letztern Mitheilung, Schweiger (813, Iournal für Chemie und Physit, Bd. 7 ihre, und
-siäsni fss s, , sser - iiai, iserrs ncninl . seine melnins us erschrune draisi-, i h uiser ee-
-". aee erahnte desselben bey Gelegenheit einer Mthnasung über die orientalischen damaseirten Kingen (815 in
-iä 5in .isii esitehssls i ssis ätsits-o ins e
-in Geneähen wmit itenchafichen Feeunden, auf meiner deschaiftsreise nach Paris, 1815, in Deutschland und Frantreich
-verbreitet, und in der Foige durch Mietheilung von einzelnen Biättern iener autographischen Abdrücke an einige meiner Cor-
-respondenten, dort und ach incngiand noch genauer bekannt, und veranlaßte die Aeußerungen Gillet de Laumonts (our-
-ae- mine- v. e. ee s,, s Ssmnerias (in ainer Boriesnn, an der esnigl. Benerischen Atadenie de-
-isenschaften in eeneaa iss, iheene iin de- il. ..7, und Shweigg- Iornal fu- Eheund
-Fhnne, d ,, un eeonard de-enenn Talhenouche sae ninerale-
-gie, Bd. 12).
-(2) Wird nähmlich ein Stück einer solchen Masse, und zwar bloß kalt und nur nach einer Richtung mehr oder weniger platt gehäm-
-ert, n n st abgeschißen, ssere n geas-,s- einen sc anf uicht snhn nänen natcien iund- nne wenenfrrmi e n
-rscseornenh geohene üns "ei änint, s seriehiedesen äiss-ngen, ns es el parane orraanfeende, in Be-
-laufe sehr ungleich begränzte, oft feckartig ausgebreitete, erhabene Linien, und unregelmäßige, mehr oder weniger zusammen-
-sst l äi siitt. sscsäei sl is nma e cnt. . n. -
-Stück aber vollends heiß und nach verschiedenen Richtungen gehämmert; so erscheint eine höchst unvollkommene und verworrene
+Der Zweck der bildlichen Darstellungen dieser Tafeln ist die Versinnlichung des merkwürdigen krystallinischen Gefüges der vorzüglichsten Gediegeneisen-Massen, deren meteorischer Ursprung theils factisch erwiesen, theils höchst wahrscheinlich, ja unbezweifelbar ist, und deren Untersuchung in jener Beziehung mir bisher möglich war.* Es zeigt sich dasselbe am schönsten und deutlichsten auf ganz ebenen, rein abgeschliffenen und fein polierten Flächen solcher Massen --- in so ferne diese nicht etwa durch künstliche Hitze oder durch mechanische Gewalt vorher eine Veränderung erlitten haben* --- wenn dieselben mit Salpetersäure* übergossen werden, und diese eine Zeitlang auf die Oberfläche eingewirkt hat.* Die Einwirkung geht gewöhnlich auf der Stelle vor sich, und nach wenigen Minuten schon, oft augenblicklich, zeigt sich das Gefüge in den gleich näher zu beschreibenden geraden Streifen und winkeligen Figuren, die sich aber noch gar nicht durch Erhabenheit und Vertiefung, sondern bloß, gleichsam als ein oberflächlicher Anflug, oder vielmehr wie angehaucht, durch Farbe und Glanz aussprechen; die Streifen nähmlich erscheinen matt und von sehr licht stahlgrauer, die Figuren oder Zwischenfelder dagegen, welche von jenen begränzt oder eingeschlossen werden, zwar ebenfalls matt, aber doch --- bei schiefer Richtung der Fläche --- mit einigem Schimmer von ihrem Rande her, und von ziemlich dunkler, eisengrauer Farbe; die Ränder von beiden endlich sind von einer gemeinschaftlichen, zarten Linie eingefaßt, die aber ebenfalls nur bei schräger Richtung und bei Wendungen deutlich sichtbar wird, und sich dann durch eine silberweiße Farbe, und durch einen starken, spiegelnden Glanz auszeichnet. In größern oder kleinern Klüften, und in zarten, oft sehr feinen Rissen --- welche sich ursprünglich schon und vor der Aetzung auf der Oberfläche zeigten --- aber auch häufig zerstreut eingemengt und fest eingeschlossen, in einzelnen kleinen und äußerst kleinen Partien bröcklig ober feinkörnig angehäuft, oft auch nur als einzelne zarte Körner eingesprengt in die übrige Metallmasse, erscheint eine andere metallische Substanz --- in so ferne sie nicht hier und da durch Schnitt und Schliff der Fläche ausgesprengt worden ist --- von ziemlich starkem Glanze und silberweißer oder zinkgrauer, bisweilen etwas ins Gelbliche oder Röthliche ziehender Farbe, auf welche die Säure schon etwas weniger als auf die übrige Oberfläche eingewirkt zu haben scheint.
 
+*) Es ist die Entdeckung dieser Eigenthümlichkeit des Gediegeneisens, wahrhaft meteorischen Ursprunges, schon seit mehreren Jahren ziemlich bekannt; denn Herr Director v. Widmannstätten machte sie bereits im Jahre 1808 bei Gelegenheit der ersten physisch-technischen Versuche, die er mit der Agramer Eisenmasse vornahm, und wir waren weit entfernt sie geheim zu halten, im Gegentheile ward dieselbe allen Wissenschaftsfreunden gelegenheitlich mitgetheilt, und jene Masse, an welcher (wie bereits oben erwähnt wurde) eine bedeutende Fläche geätzt worden war, um das Gefüge darzustellen, bleib nach wie vor, und zwar seit 1809, mit den übrigen vorhandenen Meteor-Massen und der zahlreichen Suite von ausgewählten Stücken vom Steinfalle zu Stannern vereinigt, und als eine für sich bestehende Sammlung abgeschlossen, am kaiserl. Mineralien-Cabinette zur öffentlichen Ansicht ausgestellt. Noch in demselben Jahre hatte Herr v. Widmannstätten Gelegenheit, an einem ausgezeichnet schönen Ladenstücke vom sibirischen Eisen aus der Von der Null'schen Sammlung --- deren sachverständiger Besitzer sich sehr bereitwillig fand den Schnitt wund Schliff dieses kostbaren Stückes zu gestatten, da es damit von der andern Seite ein höheres Interesse gewann; --- im Jahre 1810 aber an dem Stücke vom Mexikaner Eisen, welches die kaiserl. Sammlung eben durch Klaproth erhalten hatte; dann im Jahre 1812 an der großen Gediegeneisen-Masse, welche vom Magistrate zu Elbogen in Böhmen an das kaiserl. Naturalien-Cabinett abgegeben wurde; endlich 1815 an dem Stücke vom karpathischen Eisen, welches Herr Baron v. Brudern dem kaiserl. Cabinette zum Geschenke machte --- jene interessante Entdeckung zu bewähren. Da sich jenes Gefüge auf ebenen und polierten Flächen bei der Behandlung durch Aetzung in tastbaren, und zwar nach Maßgabe der Dauer des Prozesses, in mehr oder weniger erhabenen und vertieften Figuren (_en basrelief_) ausspricht; so kam Herr v. Widmannstätten gleich Anfangs, bei der Agramer Masse schon, auf die glückliche Idee, durch unmittelbare Abdrücke solcher Flächen mittelst Druckerschwärze --- die Masse selbst gleich als natürliche Form oder Stereotyp benützend --- eine vollkommen getreue und leicht vervielfachbare Darstellung zu bewirken, und der gute Erfolg dieses Verfahrens veranlaßte uns 1813, von der großen geätzten Fläche der Elbogner Masse, welche das Gefüge besonders schön und deutlich zeigte, solche unmittelbare Abdrücke in hinlänglicher Menge abziehen zu machen, um sie als Belege zu einer Abhandlung zu gebrauchen, die wir damahls schon über diesen Gegenstand auszuarbeiten und bekannt zu machen dachten. Allein Zeitumstände und Verhältnisse erschwerten unsere Arbeiten, die eine Reihe von mühsamen und ununterbrochenen Versuchen und Untersuchungen nothwendig machten, und brachten uns zuletzt --- wie mirs 1809 mit meinen früheren ähnlichen Unternehmungen ergangen war --- ganz davon ab, so daß jene Autographe bis zu dieser Stunde, als sie endlich eine neue Veranlassung --- leider nur zu unvorbereitet und peremtorisch --- ans Tageslicht ruft, unbenutzt liegen blieben. Inzwischen wurde der Gegenstand durch mündliche Mittheilungen, zumahl durch Fremde und Reisende, immer mehr und mehr bekannter, und endlich, vorzüglich theils durch Chladni selbst --- der während seines Aufenthalts in Wien, im Frühjahr 1812, Zeuge unsrer frühern und damahligen Versuche war --- theils auf dessen Anregung öffentlich zur Sprache gebracht; so äußerten Herr Gubernialrath Neumann in Prag, auf dessen Veranlassung, bei Gelegenheit seiner Nachricht von der Elbogner Masse (1812, Hesperus, Heft 9), und nach dieses letztern Mittheilung, Schweigger (1813, Journal für Chemie und Physik, Bd. 7) ihre, und Chladni selbst (1815, in Gilberts Annalen, Bd. 50) seine Meinung und Erfahrung darüber, und auch unser Herr v. Hammer erwähnte desselben bei Gelegenheit einer Muthmaßung über die orientalischen damascirten Klingen (1815, in den Fundgruben des Orients, Bd. 4, daraus im Hesperus Heft 9). Späterhin ward der Gegenstand vollends durch mich selbst in Gesprächen mit wissenschaflichen Freunden, auf meiner Geschäftsreise nach Paris, 1815, in Deutschland und Frankreich verbreitet, und in der Folge durch Mittheilung von einzelnen Blättern jener autographischen Abdrücke an einige meiner Correspondenten, dort und auch England noch genauer bekannt, und veranlaßte die Aeußerungen Gillet de Laumonts (Jour. des Mines, Vol. 38, Sept. 1815), und Sömmerrings (in einer Vorlesung an der königl. Bayerischen Akademie der Wissenschaften im Februar 1816, abgedruckt in der Bibl. univers. T. 7, und in Schweiggers Journal für Chemie und Physik, Bd. 20), Schweiggers (in dessen Journal, Bd. 19), und Leonhards (in dessen Taschenbuche für Mineralogie, Bd. 12).
 
-### 0086
+*) Wird nähmlich ein Stück einer solchen Masse, und zwar bloß kalt und nur nach einer Richtung mehr oder weniger platt gehämmert, dann erst abgeschliffen, poliert und geätzt; so zeigen sich auf licht stahlgrauem matten Grunde nur wellenförmige und verschiedentlich gebogene und gekrümmte, nach verschiedenen Richtungen, und nur zum Theil parallel verlaufende, im Verlaufe sehr ungleich begränzte, oft feckartig ausgebreitete, erhabene Linien, und unregelmäßige, mehr oder weniger zusammenhangende Winkelzüge von licht stahlgrauer, stark ins Silberweiße fallender Farbe und einigem Glanze. Wird ein solches Stück aber vollends heiß und nach verschiedenen Richtungen gehämmert; so erscheint eine höchst unvollkommene und verworrene Zeichnung, von der sich zuletzt, bei fortgesetzter ähnlicher Behandlung, [...] Spur verliert, und die licht stahlgraue Oberfläche durch die Einwirkung der Säure nicht verändert, sondern nur etwas, und zwar im Ganzen und gleichförmig, dunkler gefärbt und matt erscheint.
 
-71
-wenn dieselben mit Salpetersäure (1) übergossen werden, und diese eine Zeitlang auf die Oberfläche eingewirkt hat (2).
-Die Einwirkung geht gewöhnlich auf der Stelle vor sich, und nach wenigen Minuten schon, oft augenblicklich, zeigt sich
-das Gefüge in den gleich näher zu beschreibenden geraden Streifen und winkeligen Figuren, die sich aber noch gar nicht
-durch Erhabenheit und Vertiefung, sondern bloß, gleichsam als ein oberflächlicher Anflug, oder vielmehr wie angehaucht,
-durch Farbe und Glanz aussprechen; die Streifen nähmlich erscheinen matt und von sehr licht stahlgrauer, die Figuren
-oder Zwischenfelder dagegen, welche von jenen begränzt oder eingeschlossen werden, zwar ebenfalls matt, aber doch --
-bey schiefer Richtung der Fläche - mit einigem Schimmer von ihrem Rande her, und von ziemlich dunkler, eisen-
-grauer Farbe; die Ränder von beyden endlich sind von einer gemeinschaftlichen, zarten Linie eingefaßt, die aber eben-
-falls nur bey schräger Richtung und bey Wendungen deutlich sichtbar wird, und sich dann durch eine silberweiße Farbe,
-und durch einen starken, spiegelnden Glanz auszeichnet. In größern oder kleinern Klüften, und in zarten, oft sehr
-feinen Rissen --- welche sich ursprünglich schon und vor der Aetzung auf der Oberfläche zeigten -- aber auch häufig zer-
-streut eingemengt und fest eingeschlossen, in einzelnen kleinen und äußerst kleinen Partien bröcklig ober feinkörnig ange-
-häuft, oft auch nur als einzelne zarte Körner eingesprengt in die übrige Metallmasse, erscheint eine andere metallische
-Substanz -- in so ferne sie nicht hier und da durch Schnitt und Schliff der Fläche ausgesprengt worden ist --- von
-ziemlich starkem Glanze und silberweißer oder zinkgrauer, bisweilen etwas ins Gelbliche oder Röthliche ziehender Farbe,
-auf welche die Säure schon etwas weniger als auf die übrige Oberfläche eingewirkt zu haben scheint.
-Wird die Aetzung längere Zeit fortgesetzt, so erscheinen die einzelnen Theile des Gefüges nicht nur immer deutli-
-cher, sondern allmählich und immer mehr und mehr, und zwar in verschiedenen Graden vertieft, und es zeigen sich jene
-Streifen nun am tiefsten, die Zwischenfelder oder Figuren dagegen etwas weniger tief, deren Einfassungslinien aber
-und die Massen jener bröcklig-körnigen Substanz am erhabensten. Hat man demnach die Aetzung bis auf einen ge-
-wissen Grad (3) fortgesetzt; so ist die ganze Zeichnung eines unmittelbaren Abdruckes von der Fläche mittelst Drucker-
-schwärze fähig, indem die erhabensten Stellen sich stark, die minder erhabenen schwächer, die tiefern dagegen sich gar
-s er
-önch di inirtuns de Saur- nicht verlndert, sondern uun etees, und gr in s aättz. n slss
-und matt erscheint.
-(1) Schwefel- und Salzsäure bewirken zwar dieselbe Erscheinung, aber nicht so vollkommen, und langsamer. Sehr concentrirte
-rauchende Salpetersäure wirkt zwar schneller, aber oft zu tumultuarisch; man thut am besten, dieselbe, wenn man gerade
-nicht schnell und tief ätzen will, mit etwa zwei auch drei Theil Wasser zu verdünnen. Die zu ätzende Fläche muß in eine fe-
-ste, vollkommen horizontale Lage gebracht, und mit einem, etwa eine Linie hohen Saum oder Rand von Wachs umgeben
-werden, damit die Säure nicht absließe, die doch oder; Linie hoch die Fläche gleichförmig bedecken sou. Wenn die Aetzung
-etwas tief zu geschehen hat, so ist nothwendig die Säure zu wiederhohlten Mahlen zu erneuern, und dabey ist es gut,
-wenn man unter einem die Fläche jedes Mahl mit reinem Wasser abspült, auch wohl mittelst eines Pinsels oder einer feinen
-Burse aseree,eu, sie von dem erzeugten Eisenoxyde, und dem, bey Verdünstung des Fluidums, darauf niedergeschlagenen sal-
-petersauren Eisen zu reinigen, welche die Einwirkung der frisch aufgegossenen Säure verhindern würden. Soll die Aetzung sehr
-tief (z. B.4 bis Linie tief) eindringen; so fordert dieß, auch bey jenem Verfahren, mehrere Tage Zeit, und wenn man
-de eozeß beschleunigen will, muß die Wirkung der Säure außerdem noch durch Wärme, auch wohl durch Zusatz von etwas
-Salzsaure, verstärkt werden.
-(2) Eine Spur von dem Gefüge zeigt sich zwar schon, aber nur wie ein Hauch, und nur bey gewissen Wendungen gegen das Licht,
-auf einer Fläche die vorläufig aus dem Rohen geschliffen und adoucirt worden ist; sie verliert sich aber ganz wieder während
-des weitern Polierens, so daß eine vollends fein polierte Fläche, abgesehen von den durch Farbe, Glanz und Tertur sich aus-
-zeichnenden, zerstreut eingemengten Massen der heterogenen bröcklig- törnigen Substanz, ein vollkommen gleichförmiges Anse-
-hen von licht stahlgrauer, mehr oder weniger ins Silberweiße fallender Farbe, und von ziemlich starkem, metallisch spiegeln-
-den Glanze zeigt. Auffallend und ausgezeichnet schön aber spricht sich das Gefüge auf solchen fein polierten Flächen aus, wenn
-man dieselben, wie Stahl, auf die gewöhnliche Art durch Erhitzung blau anlaufen läßt. Anstatt nähmlich, daß dieselben mit
-den bekannten Farben, aus dem Goldgelben ins Veilchenblaue bis ins Dunkelblaue in allmählicher Progression nach der Dauer
-des Prozeses, gleichförmig anlaufen, zeigen sie vielmehr diese Farben, wenn der Prozeß bis zum Erscheinen des Blauen gekom-
-men ist, alle zugleich, und zwar nach den verschiedenen Theilen des Gefüges, eine ähnliche Zeichnung wie die Aetzung hervor-
-bringend. Die Streifen nähmlich erscheinen purpurroth ins Blaue, die Zwischenfelder oder Figuren bald aus dem Blauen,
-bald aus dem Rothen ins Goldgelbe (nach Glattheit oder Streifung derselben) verlaufend, die Rander oder Einfassungslinien
-aber, so wie selbst die zartesten Schraffirungslinien, rein Goldgelb, jene Massen der körnig-bröckligen Substanz endlich von
-etwas matter und ins Messinggelbe fallender Farbe.
-(3) Auf etwa Linie der tiefsten Stellen. Es darf natürlich dieser Grad nicht um gar viel überschritten werden, weil sonst die
-minder erhabenen Stellen im Verhältniß zu den erhabensten zu tief zu liegen kommen, und sich nur schwach oder gar nicht
-ausdrucken.
-S 2
+*) Schwefel- und Salzsäure bewirken zwar dieselbe Erscheinung, aber nicht so vollkommen, und langsamer. Sehr concentrirte rauchende Salpetersäure wirkt zwar schneller, aber oft zu tumultuarisch; man thut am besten, dieselbe, wenn man gerade nicht schnell und tief ätzen will, mit etwa zwei auch drei Theil Wasser zu verdünnen. Die zu ätzende Fläche muß in eine feste, vollkommen horizontale Lage gebracht, und mit einem, etwa eine Linie hohen Saum oder Rand von Wachs umgeben werden, damit die Säure nicht abfließe, die doch 1/4 oder 1/2 Linie hoch die Fläche gleichförmig bedecken soll. Wenn die Aetzung etwas tief zu geschehen hat, so ist nothwendig die Säure zu wiederhohlten Mahlen zu erneuern, und dabei ist es gut, wenn man unter einem die Fläche jedes Mahl mit reinem Wasser abspült, auch wohl mittelst eines Pinsels oder einer feinen Bürste abstreift, um sie von dem erzeugten Eisenoxyde, und dem, bei Verdünstung des Fluidums, darauf niedergeschlagenen salpetersauren Eisen zu reinigen, welche die Einwirkung der frisch aufgegossenen Säure verhindern würden. Soll die Aetzung sehr tief (z. B. 1/4 bis 1/2 Linie tief) eindringen; so fordert dieß, auch bei jenem Verfahren, mehrere Tage Zeit, und wenn man de Prozeß beschleunigen will, muß die Wirkung der Säure außerdem noch durch Wärme, auch wohl durch Zusatz von etwas Salzsäure, verstärkt werden.
 
+*) Eine Spur von dem Gefüge zeigt sich zwar schon, aber nur wie ein Hauch, und nur bei gewissen Wendungen gegen das Licht, auf einer Fläche die vorläufig aus dem Rohen geschliffen und adoucirt worden ist; sie verliert sich aber ganz wieder während des weitern Polierens, so daß eine vollends fein polierte Fläche, abgesehen von den durch Farbe, Glanz und Textur sich auszeichnenden, zerstreut eingemengten Massen der heterogenen bröcklig-körnigen Substanz, ein vollkommen gleichförmiges Ansehen von licht stahlgrauer, mehr oder weniger ins Silberweiße fallender Farbe, und von ziemlich starkem, metallisch spiegelnden Glanze zeigt. Auffallend und ausgezeichnet schön aber spricht sich das Gefüge auf solchen fein polierten Flächen aus, wenn man dieselben, wie Stahl, auf die gewöhnliche Art durch Erhitzung blau anlaufen läßt. Anstatt nähmlich, daß dieselben mit den bekannten Farben, aus dem Goldgelben ins Veilchenblaue bis ins Dunkelblaue in allmählicher Progression nach der Dauer des Prozeses, gleichförmig anlaufen, zeigen sie vielmehr diese Farben, wenn der Prozeß bis zum Erscheinen des Blauen gekommen ist, alle zugleich, und zwar nach den verschiedenen Theilen des Gefüges, eine ähnliche Zeichnung wie die Aetzung hervorbringend. Die Streifen nähmlich erscheinen purpurroth ins Blaue, die Zwischenfelder oder Figuren bald aus dem Blauen, bald aus dem Rothen ins Goldgelbe (nach Glattheit oder Streifung derselben) verlaufend, die Rander oder Einfassungslinien aber, so wie selbst die zartesten Schraffirungslinien, rein Goldgelb, jene Massen der körnig-bröckligen Substanz endlich von etwas matter und ins Messinggelbe fallender Farbe.
 
-### 0087
+Wird die Aetzung längere Zeit fortgesetzt, so erscheinen die einzelnen Theile des Gefüges nicht nur immer deutlicher, sondern allmählich und immer mehr und mehr, und zwar in verschiedenen Graden vertieft, und es zeigen sich jene Streifen nun am tiefsten, die Zwischenfelder oder Figuren dagegen etwas weniger tief, deren Einfassungslinien aber und die Massen jener bröcklig-körnigen Substanz am erhabensten. Hat man demnach die Aetzung bis auf einen gewissen Grad* fortgesetzt; so ist die ganze Zeichnung eines unmittelbaren Abdruckes von der Fläche mittelst Druckerschwärze fähig, indem die erhabensten Stellen sich stark, die minder erhabenen schwächer, die tiefern dagegen sich gar nicht ausdrucken, und da sie alle regelmäßig abwechseln und unter einander verbunden sind, so erhält man solcher Gestalt nicht nur eine ganz vollkommene und genaue Darstellung der geätzten Fläche, sondern auch ein treues Bild des natürlichen Gefüges der Masse, wie sich dasselbe durch die Aetzung ausspricht.*
 
-72
-nicht ausdrucken, und da sie alle regelmäßig abwechseln und unter einander verbunden sind, so erhält man solcher Gestalt
-nicht nur eine ganz vollkommene und genaue Darstellung der geätzten Fläche, sondern auch ein treues Bild des natut..
-chen Gefüges der Masse, wie sich dasselbe durch die Aetzung ausspricht (1).
-Die neunte Tafel zeigt nun einen solchen unmittelbaren Abdruck von einer großen, auf den gehörigen Grad geätz-
-ten Fläche an der Eisenmasse von Elbogen, die ich ihres autographischen Vorzuges wegen, und da sie das zusam-
-men gesetzteste Gefüge zeigt, nach welchem sich jenes der übrigen Massen am besten vergleichend beschreiben läßt, als Norm
-(1) Obgleich die Möglichkeit des Vorkommens von wahrhaft meteorischem Gediegeneisen ohne solchem Gefüge nicht geradezu in Ab-
-rede gestellt werden kann, zumahl wenn dasselbe - was jedoch nicht wahrscheinlich is bon einer bloßen Zustands-Modin-
-cation des reinen Metalles, und bloß von einer regelmäßigen mechanischen Lagerung und Fügung der Grundtheilchen, nicht
-aber von eigenen
-ischung egelnäßigen Mengung- ni d sondernngsverhalnmiste asyangen soulte, so ist doch mertwourdig, daß dasselbe
-noch bey auen Gediegeneisen-Massen gefunden wurde, deren meorischer urpenn gleich nicht -s we von der Agra-
-mer factisch erwiesen, aber doch der vollkommensten Aehnlichkeit wegen nie ieser und nach allen physischen und chemischen
-eriterien unbezweifelbar ist, und selbst bey den kleinen, echanisch eingenengten Maaten von Gediegeneisen in Meteor-Siei-
-nen - in so ferne dieselben nur Größe genug hatten, um darauf ohne Veränderung ihrer Structur (durch allzustarke Fler-
-schung z. B.) untersucht werden zu können - dagegen keine Spur davon bey solchen, die jenen Forderungen, eine ähnliche
-erenf beähren, he oitosnmen entsrechen, ind d aach nrn. se iec hres usennaess gen meehr ode-
-weniger für problematisch angesehen werden, als sie zum Theil an Orten gefunden worden sind, wo man keinen Grund hat
-"ie-in.es- i ie n t.7slt il7isiii
-sseesen ise, e e dahe eesnmnen, dee nech oeichei irdicen eoes siset worden ie ien-
-ienen achen, äisnt, cin,, assssi,, ziorne n. , die diseigen- aberanh des al- einenthümlich un. charat-
-teristisch (obgleich wohl nicht minder unter gewissen Restrietionen fir jenen ursorung angesehenen Gehaltes an Nickel erman-
-geln, und daher um so billiger bezweifelt werden. Indeß waren wir, troa "ieoeohoylten Versuchen, doch auch nicht im
-Stande, eine Spur jenes Gefüges an den uns zu Gebothe stebend- Stucken vom Cap'schen und dem Peruanischen Eisen
-zum Vorschein zu bringen, obgleich dieselben us verläßlichen Händen erhalten worden sind -- so daß über deren Echt-
-he hnnchach ieee eisg in,lss ein iite eut- inden aann ud da doch uber deren nbeeefelsar meeeeichenu-
-igrnrne ssl ilihenssess öäs andere als entscheidend berrachtete Criterium, nähmlich der Gehalt an Nicket, un ao in
-einem ganz ähnlichen quantitativen Verhältnisse, und die meisten übrigen physischen und chemischen Eigenschaften, Bürgschaft
-z ieisten scheinen - oorlngst abaesorochen ist. es frägt sich dennach noc,, o aa rscheenen ees Gedanee a ,. el.
-dingtes und beständiges Mertnahl des meteorischen Gediegeneisens zu betrachten sey; und beynahe eben so sehr steht es in
-zrage, o es denselben, wenigstens streng genommen, ausschließend zukomne. Denn einerseits lant sich die Msgüichtei ei
-ne hnlichen Zustands Modiscation und einer gleichen Tendenz zur Krystalisation, so wie eines ahnichen Michhnnie n
-Mengungsverhältnisses mit ähnlichen Stoffen (mit Schwefel zu Eisen- und Magnetkies; mit Kohle zu Stahl und Graphit;
-iinin, aghnesiuun, nd "ielleich- seiss m icee, achden dieses der ene- a- nachst uache ene- Erchei-
-nung zu Grunde läge, bey terrestrischem und künstlich erzeugtem regulinischen Eisen nicht längnen, in egentheite beseisen
-"steres deutliche Anzeigen eines und zwar ganz ähnlichen krystallinischen Gefüges, im Bruche mancher Roheisen-Stacke, e-
-teres (nur wie es scheint, mit Ausnahme des Nickels zur Zeit noch) die Resultate mehrerer Analysen verschiedener Arten von
-oh und Frischeisen-Massen (man sehe was hierüber Herr Profesor Hausmann in dem gehaltreichen Aufsatze -- Spe-
-cimen Crystallographiae metallurgicae -- vorgelesen im May 1818 in der königl. Gesellschaft der Wissenschaften zu Göt-
-tingen, und abgedruckt in den neuern Schriften derselben, Bd. 4, 1820, in beyden Beziehungen vorgebracht hat), anderer-
-seits zeigt beynahe jedes künstliche Rohheisen (so wie nahmentlich auch das Cillier, des Fundortes wegen für problematisch an-
-gesehene, metallische Eisen) eine, obgleich nur entfernt ähnliche, und keineswegs so regelmäßige Figurirung, und zwar stets
-und in mannigfaltig abweichenden Modificationen, die sich auch nur schwach, bloß obersächlich und gewöhnich sowohl nach dem
-Schliffe als nach der feinen Politur, durch Aetzung aber (unsern Erfahrungen nach) keinesweges vollkommener und en bas-
-reliel (wie auch Daniell's Versuche lehren -- mit deren Resultaten man übrigens die unsrer Aetzungsversuche mit dem
-Meteor-Eisen verwechselt zu haben scheint -- wohin wohl auch das, durch eine ähnliche Procedur bewirkte und auf gleichem
-Principe beruhende, Moiriren des verzinnten Bleches zu zählen sein dürfte) ausspricht: inzwischen hat doch Gillet de Lau-
-mont, seiner Versicherung nach, an einem Stücke durch Kunst geschmolzenen, reinen, regulinischen Eisen, von besonders
-deutlich blätterigem Gefüge (en grand lames), tiefe, glänzende Streifen (des stries prosondes), die sich sogar eben
-so () und zwar unter gleichen Winkeln, wie am Elbogner Eisen, durchkreuzten, durch Aetzung erhalten.
-Nichts desto weniger dürfte denn doch das Erscheinen jenes Gefüges von der Art und Beschafsenheit, wie es sich am Agra-
-mer Eisen, als Prototyp, und diesem ganz ähnlich, und mit nur sehr unbedeutenden Abweichungen bey der Böhmischen, Kar-
-pathischen und Mexikanischen derben Eisenmasse zeigt, für das Meteor-Eisen charakteristisch, und demselben ausschließlich ei-
-genthümlich sein, so wie dasselbe auf ein Mischungs- und Mengungsverhältniß, auf eine Vereinigung und Absonderung von
-Bestand- und Gemengtheilen nach einem bestimmten Affinitäts und Krystallisationsgesetze, und auf einen Prozeß hinzudeu-
-ten scheint, auf welche wir von nichts ganz ähnlichem, auf unsern Planeten vorkommenden, nach Analogie schließen können.
+*) Auf etwa 1/12 Linie der tiefsten Stellen. Es darf natürlich dieser Grad nicht um gar viel überschritten werden, weil sonst die minder erhabenen Stellen im Verhältniß zu den erhabensten zu tief zu liegen kommen, und sich nur schwach oder gar nicht ausdrucken.
 
+*) Obgleich die Möglichkeit des Vorkommens von wahrhaft meteorischem Gediegeneisen ohne solchem Gefüge nicht geradezu in Abrede gestellt werden kann, zumahl wenn dasselbe --- was jedoch nicht wahrscheinlich ist --- von einer bloßen Zustands-Modification des reinen Metalles, und bloß von einer regelmäßigen mechanischen Lagerung und Fügung der Grundtheilchen, nicht aber von einer besondern und eigenthümlichen, chemischen oder mechanischen Verbindung mit andern Stoffen, einem eigenen Mischungs- und regelmäßigen Mengungs- und Absonderungsverhältnisse abhangen sollte; so ist doch merkwürdig, daß dasselbe noch bei allen Gediegeneisen-Massen gefunden wurde, deren meteorischer Ursprung, wenn gleich nicht --- so wie von der Agramer --- factisch erwiesen, aber doch der vollkommensten Aehnlichkeit wegen mit dieser und nach allen physischen und chemischen Criterien unbezweifelbar ist, und selbst bei den kleinen, mechanisch eingenengten Massen von Gediegeneisen in Meteor-Steinen --- in so ferne dieselben nur Größe genug hatten, um darauf ohne Veränderung ihrer Structur (durch allzustarke Fletschung z. B.) untersucht werden zu können --- dagegen keine Spur davon bei solchen, die jenen Forderungen, eine ähnliche Herkunft zu bewähren, nicht vollkommen entsprechen, und die auch nur in so ferne noch ihres Ursprunges wegen mehr oder weniger für problematisch angesehen werden, als sie zum Theil an Orten gefunden worden sind, wo man keinen Grund hat natürliche Eisenlager in der Nähe, oder die frühere Existenz von Eisenhütten zu vermuthen, und es sich zur Zeit nicht wohl begreifen läßt, wie sie dahin gekommen, oder durch welchen irdischen Prozeß sie dort gebildet worden sein konnten: wie jene Massen von Aachen, Mailand, Cilly, Kamsdorf, Florac, u. m. a., die übrigens aber auch des als eigenthümlich und charakteristisch (obgleich wohl nicht minder unter gewissen Restrictionen) für jenen Ursprung angesehenen Gehaltes an Nickel ermangeln, und daher um so billiger bezweifelt werden. Indeß waren wir, trotz [...] widerhohlten Versuchen, doch auch nicht im Stande, eine Spur jenes Gefüges an den uns zu Gebothe stebend- [...] Stücken vom Cap'schen und dem Peruanischen Eisen zum Vorschein zu bringen, obgleich dieselben [...] ganz verläßlichen Händen erhalten worden sind --- so daß über deren Echtheit hinsichtlich ihrer Herstammu- [...] -ein Zweifel Statt finden kann --- und da doch über deren unbezweifelbar meteorischen Ursprung --- für welchen selbst das andere als entscheidend betrachtete Criterium, nähmlich der Gehalt an Nickel, und zwar in einem ganz ähnlichen quantitativen Verhältnisse, und die meisten übrigen physischen und chemischen Eigenschaften, Bürgschaft zu leisten scheinen --- vorlängst abgesprochen ist. Es frägt sich demnach noch, ob das Erscheinen dieses Gefüges als ein unbedingtes und beständiges Merkmahl des meteorischen Gediegeneisens zu betrachten sei; und beinahe eben so sehr steht es in Frage, ob es denselben, wenigstens streng genommen, ausschließend zukomme. Denn einerseits läßt sich die Möglichkeit einer ähnlichen Zustands-Modification und einer gleichen Tendenz zur Krystalisation, so wie eines ähnlichen Mischungs- und Mengungsverhältnisses mit ähnlichen Stoffen (mit Schwefel zu Eisen- und Magnetkies; mit Kohle zu Stahl und Graphit; mit Silicium, Magnesium, und vielleicht selbst mit Nickel), je nachdem dieses oder jenes als nächste Ursache jener Erscheinung zu Grunde läge, bei terrestrischem und künstlich erzeugtem regulinischen Eisen nicht läugnen, in Gegentheile beweisen ersteres deutliche Anzeigen eines und zwar ganz ähnlichen krystallinischen Gefüges, im Bruche mancher Roheisen-Stücke, letzteres (nur wie es scheint, mit Ausnahme des Nickels zur Zeit noch) die Resultate mehrerer Analysen verschiedener Arten von Roh- und Frischeisen-Massen (man sehe was hierüber Herr Profesor Hausmann in dem gehaltreichen Aufsatze --- _Specimen Crystallographiae metallurgicae_ --- vorgelesen im Mai 1818 in der königl. Gesellschaft der Wissenschaften zu Göttingen, und abgedruckt in den neuern Schriften derselben, Bd. 4, 1820, in beiden Beziehungen vorgebracht hat), andererseits zeigt beinahe jedes künstliche Rohheisen (so wie nahmentlich auch das Cillier, des Fundortes wegen für problematisch angesehene, metallische Eisen) eine, obgleich nur entfernt ähnliche, und keineswegs so regelmäßige Figurirung, und zwar stets und in mannigfaltig abweichenden Modificationen, die sich auch nur schwach, bloß oberflächlich und gewöhnich sowohl nach dem Schliffe als nach der feinen Politur, durch Aetzung aber (unsern Erfahrungen nach) keinesweges vollkommener und _en basrelief_ (wie auch Daniells Versuche lehren --- mit deren Resultaten man übrigens die unsrer Aetzungsversuche mit dem Meteor-Eisen verwechselt zu haben scheint --- wohin wohl auch das, durch eine ähnliche Procedur bewirkte und auf gleichem Principe beruhende, Moiriren des verzinnten Bleches zu zählen sein dürfte) ausspricht: inzwischen hat doch Gillet de Laumont, seiner Versicherung nach, an einem Stücke durch Kunst geschmolzenen, reinen, regulinischen Eisen, von besonders deutlich blätterigem Gefüge (_en grand lames_), tiefe, glänzende Streifen (_des stries profondes_), die sich sogar eben so (?) und zwar unter gleichen Winkeln, wie am Elbogner Eisen, durchkreuzten, durch Aetzung erhalten.  
+Nichts desto weniger dürfte denn doch das Erscheinen jenes Gefüges von der Art und Beschaffenheit, wie es sich am Agramer Eisen, als Prototyp, und diesem ganz ähnlich, und mit nur sehr unbedeutenden Abweichungen bei der Böhmischen, Karpathischen und Mexikanischen derben Eisenmasse zeigt, für das Meteor-Eisen charakteristisch, und demselben ausschließlich eigenthümlich sein, so wie dasselbe auf ein Mischungs- und Mengungsverhältniß, auf eine Vereinigung und Absonderung von Bestand- und Gemengtheilen nach einem bestimmten Affinitäts- und Krystallisationsgesetze, und auf einen Prozeß hinzudeuten scheint, auf welche wir von nichts ganz ähnlichem, auf unsern Planeten vorkommenden, nach Analogie schließen können.
 
-### 0088
+Die neunte Tafel zeigt nun einen solchen unmittelbaren Abdruck von einer großen, auf den gehörigen Grad geätzten Fläche an der Eisenmasse von Elbogen, die ich ihres autographischen Vorzuges wegen, und da sie das zusammen gesetzteste Gefüge zeigt, nach welchem sich jenes der übrigen Massen am besten vergleichend beschreiben läßt, als Norm wähle, obgleich dieses Vorrecht, an sich und der Folgerungen wegen, der Agramer Masse, als Prototyp, gebührte.*
 
--
-73
-wähle, obgleich dieses Vorrecht, an sich und der Folgerungen wegen, der Agramer Masse, als Prototyp, ge-
-bührte (1).
-Bey Betrachtung dieses Abdruckes fallen nun auf den ersten Blick oben erwähnte Streifen auf, welche, da sie auf
-der geätzten Fläche die tiefsten Stellen ausmachen, hier unabgedruckt und weiß, und nur durch ihre Begränzung --
-durch jene erhabenen Einfassungslinien bezeichnet erscheinen, in so ferne nicht einige zart erhaben punctirt, gesiri-
-chelt oder gestreift vorkommen. Da sich diese Streifen häufig durchschneiden, durchkreuzen, und folglich sich wechselseitig
-und hinsichtlich ihrer Vertheilung sehr unregelmäßig unterbrechen, so erscheinen sie von sehr verschiedener Ausdehnung in
-der Länge, und zwar hier von einer halben bis zu sieben Linien, und beynahe in allen denkbaren Zwischenmaßen; de-
-gegen zeigen sie nur wenig Verschiedenheit in der Breite, die nur zwischen und Linie abweicht, und nur bey einzel-
-nen wenigen z oder eine ganze Linie beträgt. Bey etwas genauerer Betrachtung findet man bald, daß diese Streifen
-regelmäßig und genau, aber ungleich an Menge und ganz unordentlich in der Aufeinanderfolge, einer drei- und zum
-Theil einer vierfachen Richtung folgen; daß die nach einer Richtung gehenden unter sich einen vollkommenen Parallelis-
-mus beobachten, und daß sie sich nach diesen verschiedenen Richtungen regelmäßig und unter bestimmten Winkeln durch-
-schneiden oder unterbrechen. Die eine dieser Richtungen geht (nach der Lage der Fläche, in welcher dieselbe hier vor-
-gestellt ist -- mit dem schmälern Theile nach oben ---) vollkommen senkrecht. Die Streifen welche ihr folgen, schei-
-nen von allen übrigen am häufigsten und am gleichförmigsten vertheilt vorzukommen, sind auch unter sich am gleichför-
-migsten, die schmälsten, zärtesten, und am schärfsten gerandet oder begränzt. Die andere Richtung geht schief von der
-Rechten zur Linken abwärts, so daß die Streifen -- welche im Ganzen minder zahlreich, ziemlich gleichsörmig vertheilt,
-aber ungleichförmiger unter sich, meistens länger und etwas breiter (so daß an Masse im Ganzen das ersetzt wird, was
-etwa an Menge gegen erstere gebrechen möchte), und nicht so schnurscharf gerandet sind --- die ersteren meistens unter ei-
-nem Winkel von 60 (nur selten unter einem merklich davon abweichenden und dann doch immer zwischen 56 und 65
-fallenden Winkel) durchschneiden. Die dritte Richtung geht jener entgegen gesetzt, schief von der Linken zur Rechten
-abwärts, und die derselben folgenden Streifen sind noch weniger zahlreich selbst als letztere, dagegen meistens bedeutend
-länger, und im Durchschnitt auffallend breiter (so daß sich das Verhältniß der Masse gegen jene wieder auszugleichen
-scheint), viel ungleichförmiger vertheilt, noch weit ungleichförmiger unter sich. weniger scharf und seyr ungleich begränzt
-- so daß sie in ihrem Verlaufe nicht selten u"ol9 oreit, hie und da bauchig und geschweift erscheinen -- und sie
-durchschneiden die Streifen der sen.eyten Nichtung sowohl, als die der andern schiefen, unter ganz ähnlichen Winkeln
-wie diese jene, so daß ourch ihre wechselseitige Durchkreuzung Dreyecke gebildet werden, die theils, und zwar meistens,
-vollkommen gleichseitig, theils gleichschenklich (wo zwei Winkel gleich sind, z. B. - 62 zum dritten - 56), theils,
-obgleich nur selten, ganz ungleichseitig sind (z. B. mit Winkeln - 56, 60 und 64). Außer diesen zeigen sich ähn-
-liche Streifen, aber in ungleich geringerer Menge, meistens partienweise von 3, 4 bis 8 und 9 zusammen gereiht, dicht
-an einander, und sehr ungleichförmig vertheilt. Diese sind höchst ungleichförmig unter sich, bald kurz, bald lang, von
-1 bis 6, und selbst von 9 Linien Länge, aber bedeutend breiter als alle vorigen, von bis zu einer vollen Linie, im
-Verlaufe übrigens oft sehr abweichender Breite, und meistens sehr ungleichförmig begränzt, so daß ihre Ränder oft sehr
-ausgeschweift und gebogen erscheinen. Ihre Richtung geht (bey obiger Lage der Fläche) schief von der Linken zur Rech-
-ten abwärts, also gleich jener der Streifen der dritten Richtung, aber nicht parallel mit dieser, sondern unter einem
-Winkel gon beyläufig 27 mit derselben sich kreuzend, und demnach die Streifen der beyden übrigen Richtungen unter
-andern Winkeln als diese durchschneidend, woraus nun wieder mehr oder weniger ungleichseitige Dreyecke, und zwar
-von dreierley Art erwachsen, die aber nicht zahlreich vorkommen, da der Streifen dieser Richtung verhältnißmäßig nur
-wenige, und diese meistens partienweise zusammen gehäuft sind (2).
-(1) Es war nicht möglich, von dieser und den übrigen Gediegeneisen-Massen, ähnliche, zur Bekanntmachung geeignete au-
-tographische Darsenungen ihres Gefüges au dr Sieleen tanertselligen, indem die Zustandebeinaung viele Zeit räubent-
-mechanische Vorarbeiten und Vorkehrungen nothwendig gemacht hätte. Sie sollen für eine künftige Veranlassung vorbereitet
-werden. Vorläufig finden sich von denselben auf der achten Tafel mit möglichster Genauigkeit aus freyer Hand lithographisch
-nach der Natur gefertigte Copien.
-(2) Um sich eine deutliche Ansicht und eine leichte Unterscheidung dieser verschiedenen Streisen nach ihrem meist schnurgeraden, aber
-oft unterbrochenen Laufe, ron den verschiedenen Richtungen welche sie verfolgen, von dem Paralleliens den sie hierin
-halten, und von ihren häufien Durchkreuzungen, zu verschaffen; thut man am besten, wenn man alle Streifen einer jeden
-2
+*) Es war nicht möglich, von dieser und den übrigen Gediegeneisen-Massen, ähnliche, zur Bekanntmachung geeignete autographische Darstellungen ihres Gefüges auf der Stelle zu bewerkstelligen, indem die Zustandebringung viele Zeit raubend mechanische Vorarbeiten und Vorkehrungen nothwendig gemacht hätte. Sie sollen für eine künftige Veranlassung vorbereitet werden. Vorläufig finden sich von denselben auf der achten Tafel mit möglichster Genauigkeit aus freier Hand lithographisch nach der Natur gefertigte Copien.
 
+Bei Betrachtung dieses Abdruckes fallen nun auf den ersten Blick oben erwähnte Streifen auf, welche, da sie auf der geätzten Fläche die tiefsten Stellen ausmachen, hier unabgedruckt und weiß, und nur durch ihre Begränzung --- durch jene erhabenen Einfassungslinien --- bezeichnet erscheinen, in so ferne nicht einige zart erhaben punctirt, gesirichelt oder gestreift vorkommen. Da sich diese Streifen häufig durchschneiden, durchkreuzen, und folglich sich wechselseitig und hinsichtlich ihrer Vertheilung sehr unregelmäßig unterbrechen, so erscheinen sie von sehr verschiedener Ausdehnung in der Länge, und zwar hier von einer halben bis zu sieben Linien, und beinahe in allen denkbaren Zwischenmaßen; dagegen zeigen sie nur wenig Verschiedenheit in der Breite, die nur zwischen 1/4 und 1/2 Linie abweicht, und nur bei einzelnen wenigen 3/4 oder eine ganze Linie beträgt. Bey etwas genauerer Betrachtung findet man bald, daß diese Streifen regelmäßig und genau, aber ungleich an Menge und ganz unordentlich in der Aufeinanderfolge, einer drei- und zum Theil einer vierfachen Richtung folgen; daß die nach einer Richtung gehenden unter sich einen vollkommenen Parallelismus beobachten, und daß sie sich nach diesen verschiedenen Richtungen regelmäßig und unter bestimmten Winkeln durchschneiden oder unterbrechen. Die eine dieser Richtungen geht (nach der Lage der Fläche, in welcher dieselbe hier vorgestellt ist --- mit dem schmälern Theile nach oben ---) vollkommen senkrecht. Die Streifen welche ihr folgen, scheinen von allen übrigen am häufigsten und am gleichförmigsten vertheilt vorzukommen, sind auch unter sich am gleichförmigsten, die schmälsten, zärtesten, und am schärfsten gerandet oder begränzt. Die andere Richtung geht schief von der Rechten zur Linken abwärts, so daß die Streifen --- welche im Ganzen minder zahlreich, ziemlich gleichsörmig vertheilt, aber ungleichförmiger unter sich, meistens länger und etwas breiter (so daß an Masse im Ganzen das ersetzt wird, was etwa an Menge gegen erstere gebrechen möchte), und nicht so schnurscharf gerandet sind --- die ersteren meistens unter einem Winkel von 60° (nur selten unter einem merklich davon abweichenden und dann doch immer zwischen 56 und 65 fallenden Winkel) durchschneiden. Die dritte Richtung geht jener entgegen gesetzt, schief von der Linken zur Rechten abwärts, und die derselben folgenden Streifen sind noch weniger zahlreich selbst als letztere, dagegen meistens bedeutend länger, und im Durchschnitt auffallend breiter (so daß sich das Verhältniß der Masse gegen jene wieder auszugleichen scheint), viel ungleichförmiger vertheilt, noch weit ungleichförmiger unter sich, weniger scharf und sehr ungleich begränzt --- so daß sie in ihrem Verlaufe nicht selten [...] breit, hie und da bauchig und geschweift erscheinen --- und sie durchschneiden die Streifen der se- [...] Richtung sowohl, als die der andern schiefen, unter ganz ähnlichen Winkeln wie diese jene, so daß durch ihre wechselseitige Durchkreuzung Dreiecke gebildet werden, die theils, und zwar meistens, vollkommen gleichseitig, theils gleichschenklich (wo zwei Winkel gleich sind, z. B. = 62 zum dritten = 56°), theils, obgleich nur selten, ganz ungleichseitig sind (z. B. mit Winkeln = 56, 60 und 64°). Außer diesen zeigen sich ähnliche Streifen, aber in ungleich geringerer Menge, meistens partienweise von 3, 4 bis 8 und 9 zusammen gereiht, dicht an einander, und sehr ungleichförmig vertheilt. Diese sind höchst ungleichförmig unter sich, bald kurz, bald lang, von 1 bis 6, und selbst von 9 Linien Länge, aber bedeutend breiter als alle vorigen, von 1/4 bis zu einer vollen Linie, im Verlaufe übrigens oft sehr abweichender Breite, und meistens sehr ungleichförmig begränzt, so daß ihre Ränder oft sehr ausgeschweift und gebogen erscheinen. Ihre Richtung geht (bei obiger Lage der Fläche) schief von der Linken zur Rechten abwärts, also gleich jener der Streifen der dritten Richtung, aber nicht parallel mit dieser, sondern unter einem Winkel gon beiläufig 27° mit derselben sich kreuzend, und demnach die Streifen der beiden übrigen Richtungen unter andern Winkeln als diese durchschneidend, woraus nun wieder mehr oder weniger ungleichseitige Dreiecke, und zwar von dreierley Art erwachsen, die aber nicht zahlreich vorkommen, da der Streifen dieser Richtung verhältnißmäßig nur wenige, und diese meistens partienweise zusammen gehäuft sind.*
 
-### 0089
+*) Um sich eine deutliche Ansicht und eine leichte Unterscheidung dieser verschiedenen Streifen nach ihrem meist schnurgeraden, aber oft unterbrochenen Laufe, von den verschiedenen Richtungen welche sie verfolgen, von dem Parallelismus den sie hierin halten, und von ihren häufigen Durchkreuzungen, zu verschaffen; thut man am besten, wenn man alle Streifen einer jeden Richtung, ihrem ganzen Verlaufe nach, mittelst eines Lineals mit verschieden gefärbten Zeichenstiften (Pastel- oder WachsCrayons) überfährt; so wie, um sich eine möglichst genaue Vorstellung von der Form der Dreiecke und der Beschaffenheit der Winkel zu verschaffen, wenn man einige dieser solcher Gestalt gefärbten Streifen über den Abdruck hinauszieht, und so weit verlängert, bis sich alle, ihrer Richtung nach entgegen gesetzten, außerhalb des Abdruckes wechselseitig durchkreuzen. Man erhält solcher Gestalt, und zwar nach einem beliebig großen Maßstabe, viererlei Dreiecke; nähmlich: aus der Durchkreuzung der drei erstern, regelmäßigen und fast ganz beständigen Richtungen, ein meistens mehr oder weniger vollkommen gleichseitiges Dreieck mit Winkeln von 60° (und wenn man will und mit Präcision verfährt, auch alle kleinen Abweichungen davon, die sich jedoch ziemlich auf Dreiecke mit Winkeln von 62, 62 und 56°, oder 60, 64 und 56° beschränken), und dann aus der Durchkreuzung der Streifen der vierten unregelmäßigern Richtung mit je zwei und zwei der vorher gehenden, dreierlei mehr oder weniger ungleichseitige und ungleichschenkliche Dreiecke (meistens mit Winkeln = 95, 60, 25 oder 98, 55, 27; ferner = 25, 120, 35 oder 30, 115, 35; endlich 60, 85, 35 oder 65, 76, 39°. --- Abweichungen, die übrigens bei oft mangelhafter Schärfe der Streifen und unmöglich zu erreichender Präcision in der Darstellung und Messung, wohl mehr von der Unvollkommenheit der Bestimmung, als von der Unregelmäßigkeit des Gefüges herrühren möchten). Die Rhomben und Trapezen, die durch einzelne Streifen entstehen, welche, einem der Schenkel jener Dreiecke parallel, diese durchschneiden und Segmente derselben bilden, zeigen dem ursprünglichen Dreiecke entsprechende Winkel und Winkel-Supplemente; demnach bei solcher Durchschneidung vollkommen gleichseitiger Dreiecke --- die hier am häufigsten vorkommen --- ein Winkel-Supplement von 60, folglich Winkeln von 120°, wie sie Gillet de Laumont, Leonhard, Schweigger u. a. bemerkt haben.
 
-74
-Bey weiterer Betrachtung des Abdruckes bemerkt man ferner häufige, größere und kleinere, sehr ungleichförmig
-vertheilte und unregelmäßig zerstreute, meistens dreieckige, bisweilen aber auch rhomboidale oder trapezoidale (keines-
-wegs aber vollkommen viereckige - wie zum Theil behauptet wurde --- als welche bey dieser Struetur nicht wohl vor-
-kommen können) Figuren, Felder oder Zwischenräume, welche durch die Durchkreuzung von 3 oder 4 jener Streifen
-verschiedener Nichtungen, oder durch das Zusammenstoßen zweier Dreyecke, gebildet werden, und nothwendig gebildet
-werden müssen, in so ferne nicht jene Streifen -- was bisweilen der Fall ist --- dicht an einander stoßen, und solcher
-Gestalt gar keinen, wenigstens keinen dem freyen Auge anffallenden, Zwischenraum lassen.
-Die Form der Dreyecke und die Beschaffenheit ihrer Winkel entspricht jenen regelmäßigen Richtungen und den oben
-angegebenen Durchkreuzungspuncten der Streifen, und die der Rhomben und Trapezen jenen Dreyecken, in so ferne
-diese durch einzelne, irgend einer jener Nichtungen parallel laufende Streifen wieder durchschnitten, oder in Abschnitte ge-
-theilt worden sind. Es erscheinen diese Figuren oder Felder hier nicht nur im Umrisse, indem sie von jenen, ihnen so-
-wohl als den Streifen als gemeinschaftliche Scheidewand dienenden, erhabenen, und folglich im Abdruck erscheinenden
-Linien begränzt weren, sondern selbst ihrer Oberfläche nach, obgleich etwas schwächer ausgedruckt, und zwar glatt
-und gleichförmig, oder mehr oder wenig - und in diesem Falle etwas stärker ausgedruckt -- mikroscopisch zart punc-
-tirt, gestrichelt oder gestreift, und dieß zwar in verschiedenen, oft sich durchkreuzenden, aber stets ihren Rändern oder
-den Einfassungslinien und den angränzenden Streifen parallel laufenden Richtungen.
-Ferner bemerkt man, hie und da zerstreut, zwischen und auch oft mitten in den Streifen, mehr oder minder stark
-abgedruckte, größere oder kleinere, ganz unregelmäßig und verschieden gestaltete Flecke und Puncte, welche ähnlichen
-Erhabenheiten der Metall-Masse auf der geätzten Fläche, und jenen bereits erwähnten, mechanisch eingemengten Massen
-der heterogenen bröcklig-körnigen Substauz entsprechen.
-Endlich zeigen sich in diesem Abdrucke ziemlich häufige (wohl zwischen 50 und 60) und dem Anscheine nach ganz
-unregelmäßig zerstreute, mehr oder weniger fleckartige, oft ziemlich große, 2, 4, 6, 8 bis 12 und 16 Linien lange,
-und und bis 2 Linien breite, meistens gegen beyde Enden spitz zulaufende Striche, welche die Oberfläche in sehr
-verschiedenen Richtungen, doch, wie es scheint, nicht ganz und gar unabhängig von jenem regelmäßigen Gefüge (indem
-doch wenigsteno drei Richtungen vorherrschen, nach welchen auch diese Striche einen Parallelismus zeigen, obgleich
-kaum eine davon mit einer der Streifen comeiitz, ou-e-ien Es erscheinen diese Striche hier größten Theils oder
-ganz unabgedruckt, und nur im Umrisse durch die begränzende, abgedruat. 1maebung angedeutet -- indem sie be-
-trächtlich tiefen, leeren Nissen entsprechen, die sich, wie bereits oben erwähnt wurde, in o.. etall-Masse selbst, schon
-vor der Aetzung der Fläche vorfanden -- und nur zum Theil fleckig oder punctirt, in so ferne diese noch mit Bröckeln
-und Körnern obiger heterogener Substanz, die durch den Schnitt und Schliff nicht vollends ausgesprengt wurden, stel-
-lenweise ausgefüllt sind (1).
-Richtung, ihrem ganzen Verlaufe nach, mittelst eines Lineals mit verschieden gefärbten Zeichenstiften (Pastel- oder Wachs-
-Crayons) überfährt; so wie, um sich eine möglichst genaue Vorstellung von der Form der Dreyecke und der Beschaffenheit der
-Winkel zu verschaffen, wenn man einige dieser solcher Gestalt gefärbten Streifen über den Abdruck hinauszieht, und so weit
-verlängert, bis sich alle, ihrer Richtung nach entgegen gesetzten, außerhalb des Abdruckes wechselseitig durchkreuzen. Man er-
-hält solcher Gestalt, und zwar nach einem beliebig großen Maßstabe, viererley Dreyecke; nähmlich: aus der Durchkrenzung
-der drei erstern, regelmäßigen und fast ganz beständigen Richtungen, ein meistens mehr oder weniger vollkommen gleichseiti-
-ges Dreyeck mit Winkeln von 60 (und wenn man will und mit Präcision verfährt, auch alle kleinen Abweichungen davon,
-die sich jedoch ziemlich auf Dreyecke mit Winkeln von 62,62 und 56, oder 60,64 und 56 beschränken), und dann aus der
-Durchkreuzung der Streifen der vierten unregelmäßigern Richtung mit je zwei und zwei der vorher gehenden, dreierley mehr
-oder weniger ungleichseitige und ungleichschenkliche Dreyecke (meistens mit Winkeln = 95, 60, 25 oder 98, 55, 27; ferner
-= 25, 120, 35 oder 30, 115, 35; endlich 60, 85, 35 oder 65, 76, 39. -- Abweichungen, die übrigens bey oft man-
-gelhafter Schärfe der Streifen und unmöglich zu erreichender Präcision in der Darstellung und Messung, wohl mehr von der
-unvollkommenheit der Bestimmung, als von der Unregelmäßigkeit des Gefüges herrühren möchten). Die Rhomben und Tra-
-pezen, die durch einzelne Streifen entstehen, welche, einem der Schenkel jener Dreyecke parallel, diese durchschneiden und Seg-
-mente derselben bilden, zeigen dem ursprünglichen Dreyecke entsprechende Winkel und Winkel-Supplemente; demnach bey sol-
-cher Durchschneidung vollkommen gleichseitiger Dreyecke -- die hier am häufigsten vorkommen - ein Winkel-Supplement von
-60, folglich Winkeln von 120, wie sie Gillet de Laumont, Leonhard, Schweigger u. a. bemerkt haben.
-(1) Ein besonderer Abdruck von der geschnittenen und polierten Fläche vor der Aetzung, gab ein reines und deutliches Bild dieser,
-die Gleichförmigkeit und Homogeneität der Metall-Masse unterbrechenden Striche, und von deren Beschaffenheit, Vertheilung
-und Richtung.
+Bei weiterer Betrachtung des Abdruckes bemerkt man ferner häufige, größere und kleinere, sehr ungleichförmig vertheilte und unregelmäßig zerstreute, meistens dreieckige, bisweilen aber auch rhomboidale oder trapezoidale (keineswegs aber vollkommen viereckige --- wie zum Theil behauptet wurde --- als welche bei dieser Struetur nicht wohl vorkommen können) Figuren, Felder oder Zwischenräume, welche durch die Durchkreuzung von 3 oder 4 jener Streifen verschiedener Nichtungen, oder durch das Zusammenstoßen zweier Dreiecke, gebildet werden, und nothwendig gebildet werden müssen, in so ferne nicht jene Streifen --- was bisweilen der Fall ist --- dicht an einander stoßen, und solcher Gestalt gar keinen, wenigstens keinen dem freien Auge anffallenden, Zwischenraum lassen.
 
+Die Form der Dreiecke und die Beschaffenheit ihrer Winkel entspricht jenen regelmäßigen Richtungen und den oben angegebenen Durchkreuzungspuncten der Streifen, und die der Rhomben und Trapezen jenen Dreiecken, in so ferne diese durch einzelne, irgend einer jener Nichtungen parallel laufende Streifen wieder durchschnitten, oder in Abschnitte getheilt worden sind. Es erscheinen diese Figuren oder Felder hier nicht nur im Umrisse, indem sie von jenen, ihnen sowohl als den Streifen als gemeinschaftliche Scheidewand dienenden, erhabenen, und folglich im Abdruck erscheinenden Linien begränzt weren, sondern selbst ihrer Oberfläche nach, obgleich etwas schwächer ausgedruckt, und zwar glatt und gleichförmig, oder mehr oder wenig --- und in diesem Falle etwas stärker ausgedruckt --- mikroscopisch zart punctirt, gestrichelt oder gestreift, und dieß zwar in verschiedenen, oft sich durchkreuzenden, aber stets ihren Rändern oder den Einfassungslinien und den angränzenden Streifen parallel laufenden Richtungen.
 
-### 0090
+Ferner bemerkt man, hie und da zerstreut, zwischen und auch oft mitten in den Streifen, mehr oder minder stark abgedruckte, größere oder kleinere, ganz unregelmäßig und verschieden gestaltete Flecke und Puncte, welche ähnlichen Erhabenheiten der Metall-Masse auf der geätzten Fläche, und jenen bereits erwähnten, mechanisch eingemengten Massen der heterogenen bröcklig-körnigen Substauz entsprechen.
 
-75
-Diese verschiedenen Theile in welchen sich das Gefüge durch den Abdruck ausspricht, zeigen sich nun auf der geätz-
-ten Metall-Fläche selbst, von folgender Beschaffenheit.
-Die nach den vier Nichtungen gehenden Streifen erscheinen bey diesem Grade von Aetzung als die tiefsten Stel-
-len (jene Risse ausgenommen, die aber nicht durch die Aetzung zum Vorschein gebracht worden sind), und zwar alle von
-ganz gleicher Tiefe; die Ränder aber, die im Abdrucke deren Contour gaben, am erhabensien, als Leisten oder dünne
-Zwischenwände, durch welche jene unter sich sowohl als von den Figuren oder Feldern geschieden erden, und die deren,
-nun zum Theil ausgeätzte, Substanz begränzen und gleichsam einfassen, daher wir sie Einfassungsleisten nennen wollen.
-Die vertiefte Oberfläche, oder die rückständige Substanz dieser Streifen, hat ein etwas rauhes, unter dem Mi-
-kroscope gleichsam flachnarbiges oder platt runzlicht-faltiges Ansehen, eine zinkweiße Farbe, und einen schwachen me-
-tallischen, etwas seidenartig schimmernden Glanz; die Leisten dagegen sind vollkommen glatt, und haben eine licht stahl-
-graue, stark ins Silberweiße ziehende Farbe, und einen sehr starken, spiegelicht metallischen Glanz.
-Einige (obgleich hier nur wenige) dieser Streifen erscheinen theils durch einzelne wenige, und dann ziemlich starke,
-theils aber auch durch sehr viele, dicht an einander gereihete, und dann mehr oder weniger zarte, oft mikroscopisch
-feine, bisweilen bloß aus zusammen gereiheten Puncten oder kurzen Strichelchen zusammen gesetzte, oft im Verlaufe
-aussetzende, abgebrochene, erhabene Linien --- die unter sich sowohl als den Einfassungsleisten parallel, aber nicht voll-
-kommen geradlinig, sondern meistens etwas gebogen oder fast wellenförmig verlaufen --- der Länge nach gestreift. Es ha-
-ben diese Linien, die wir zum Unterschiede Streifungs--- oder besser, zumahl sie eine entsprechende Wirkung hervor
-bringen --- Schraffirungsleisten nennen wollen, gleiche Höhe mit den Einfassungsleisten (daher sie auch im Abdrucke er-
-scheinen), mit welchen sie selbst ihrer Substanz nach von ganz gleicher Beschafsenheit zu sein scheinen, wie sie denn
-auch dieselbe Bestimmung haben, indem sie ähnliche Streifen begränzen, nur daß diese oft so mikroscopisch zart sind,
-daß jene Leisten sich fast berühren.
-Die Felder oder Figuren, welche zwischen jenen Stretfen legen turch beren Zusammenstoßen und Durchkreu-
-zen sie gebildet werden -- erscheinen zwar ebenfalls tiefer als die Einfassungsleisten --- die zwischen ihnen und den Strei-
-fen gleichsam die gemeinschaftliche Scheidewand bilden, und daher im Abdrucke auch zugleich die Form und Begränzung
-jener bezeichnen --- aber bey weitem nicht so tief geätzt wie die Streifen, wie sich denn auch iher Oberflache, zumahl
-wenn diese rauh oder gestreift ist, bey einem gewissen Grade von Aetzung, obgleich schwächer als die Einfassungsleisten,
-abdruckt.
-Es haben diese Felder eine eisengraue Farbe, ein ganz mattes metallisches Ansehen, und theils eine glatte, theils
-aber, und zwar durchaus oder nur zum Theil, meistens gegen die Winkel zu, eine rauhe, mikroscopisch fein gekörnte
-Oberfläche; sehr viele aber haben dieselbe ganz, oder zum Theil, zart erhaben gestreift. Diese Streifung (Schraffi-
-rung) wird, so wie vorhin bey den Streifen bemerkt wurde, durch ganz ähnliche, aber gewöhnlich äußerst zarte und
-mikroscopisch feine, mehr oder weniger, doch meistens sehr dicht an einander gereihete, erhabene Linien oder Leisten her-
-vor gebracht, die, bey ihrer Menge und Zartheit, mittelst ihres Glanzes diesen Feldern oft einen seidenartigen Schim-
-mer geben. Es laufen diese Schraffirungsleisten aber auf den einzelnen Feldern nur höchst selten bloß nach einer Rich-
-tung (wie dieß bey den Streifen der Fall ist), sondern gewöhnlich erscheinen sie partienweise, und zwar parallel unter
-sich sowohl als mit eben so vielen Seitenrändern, nach zwei oder drei Richtungen, die sich im Kleinen eben so und
-unter ähnlichen Winkeln durchschneiden und durchkreuzen wie die Streifen im Großen (daher eine wahre Schraffirung
-bewirken). Sehr oft sind diese Leisten nicht nur einzeln oder partienweise solcher Gestalt unterbrochen, sondern sie selbst
-setzen oft aus, und lassen einen glatten Zwischrntuum, oder erscheinen bloß als in eine Linie gereihte Puncte oder
-Strichelchen. Beynahe jedes Feld hat seine eigenthümliche Schraffirung, ohne Bezug auf die nächst liegenden. Jene
-vertieften Streisen scheinen eine vollkommene Trennung oder Isolirung zwischen denselben zu bewirken. Es scheint die-
-selbe übrigens von den Rändern der Felder oder von den Einfassungsleisten her ausgegangen zu sein, wenigstens zeigen
-sich hier immer die meisten Leisten, auch wenn sich im Mittel oft gar keine finden und sie selbst nicht weit hinein reichen,
-sondern als abgebrochene Strichelchen an einem der Ränder erscheinen; inzwischen zeigt sich doch auch oft im Mittel ei-
-nes Feldes die Streifung sleckweise unterbrochen; so daß z. B. mitten in einer Partie senkrecht laufender Leisten ein Fleck
-von ganz unregelmäßiger Form von solchen einer schiefen Richtung vorkommt. In manchen Feldern erscheint die Strei-
-fung nur in Gestalt zarter, mikroscopisch feiner, mehr oder weniger dicht und anscheinend ganz unordentlich zerstreu-
-T2
+Endlich zeigen sich in diesem Abdrucke ziemlich häufige (wohl zwischen 50 und 60) und dem Anscheine nach ganz unregelmäßig zerstreute, mehr oder weniger fleckartige, oft ziemlich große, 2, 4, 6, 8 bis 12 und 16 Linien lange, und (2-3)/12 und 1/2 bis 2 Linien breite, meistens gegen beide Enden spitz zulaufende Striche, welche die Oberfläche in sehr verschiedenen Richtungen, doch, wie es scheint, nicht ganz und gar unabhängig von jenem regelmäßigen Gefüge (indem doch wenigstens drei Richtungen vorherrschen, nach welchen auch diese Striche einen Parallelismus zeigen, obgleich kaum eine davon mit einer der Streifen coincidirt), [...] Es erscheinen diese Striche hier größten Theils oder ganz unabgedruckt, und nur im Umrisse durch die begränzende, abgedruck [...] Umgebung angedeutet --- indem sie beträchtlich tiefen, leeren Rissen entsprechen, die sich, wie bereits oben erwähnt wurde, in [...] Metall-Masse selbst, schon vor der Aetzung der Fläche vorfanden --- und nur zum Theil fleckig oder punctirt, in so ferne diese noch mit Bröckeln und Körnern obiger heterogener Substanz, die durch den Schnitt und Schliff nicht vollends ausgesprengt wurden, stellenweise ausgefüllt sind.*
 
+*) Ein besonderer Abdruck von der geschnittenen und polierten Fläche vor der Aetzung, gab ein reines und deutliches Bild dieser, die Gleichförmigkeit und Homogeneität der Metall-Masse unterbrechenden Striche, und von deren Beschaffenheit, Vertheilung und Richtung.
 
-### 0091
+Diese verschiedenen Theile in welchen sich das Gefüge durch den Abdruck ausspricht, zeigen sich nun auf der geätzten Metall-Fläche selbst, von folgender Beschaffenheit.
 
-76
-ter, noch gar nicht in parallele Linien und nach einer bestimmten Richtung gereiheter, erhabener Puncte (1). Die glat-
-ten Felder erscheinen etwas tiefer geätzt, zumahl aber ist ihr Mittel bisweilen grubenartig vertieft, gleichsam eingesun-
-ken, indeß sich der Rand allmäblich gegen die Einfassungsleisten zu erhebt.
-Die im Abdrucke bemerkten größern und kleinern, unregelmäßig gestalteten und zerstreut in und zwischen den Strei-
-fen erscheinenden Flecke und Puncte, zeigen sich hier als erhabene Massen, und zwar größten Theils von gleicher Höhe
-mit den Einfassungsleisten, mitunter aber auch etwas tiefer, und daher und überhaupt bey näherer Betrachtung der
-Oberfläche noch ungleich häufiger als im Abdrucke, so daß die Masse ganz damit durchsäet erscheint, aber in all zu zar-
-ten Körnern, als daß sie, oft ihrer Erhabenheit ungeachtet, durch den Abdruck bemerkbar werden konnten. Die Sub-
-stanz derselben zeichnet sich von der übrigen Metall-Masse durch ein bröcklig-körniges, oder doch rissiges Aussehen, eine
-matte, dunkel eisengraue, im Schliffe aber hier stark und beynahe ganz rein ins Silberweiße fallende Farbe und star-
-kem spiegelnden Glanze aus.
-Aehnliche, aber meistens mehr vertiefte, und daher im Abdrucke nur im Umrisse und undeutlich erscheinende, und
-größten Theils rundliche oder ovale Flecke von verschiedener, zum Theil bedeutender Größe (von I bis über 2 Linien
-im stärksten Durchmesser), zeigen sich ziemlich häufig und ganz unordentlich zerstreut, aber scharf begränzt, zwischen den
-Streifen und Feldern gleichsam wie eingeknetete oder eingekeilte Massen oder Körner von matter, schwärzlich eisengrauer,
-durch den Schliff nur wenig veränderter Farbe, glatter Oberfläche und einem Ansehen, das zwischen jenem der Sub-
-stanz der Felder und jener bröcklig-körnigen gleichsam das Mittel hält.
-Die beym Abdrucke erwähnten fleckartigen Striche erscheinen hier als wahre Risse und enge Klüfte, die zum Theil
-ziemlich tief (oft über eine Linie), theils senkrecht, theils schief in die Masse eindringen, und die schon ursprünglich vor-
-handen waren und nicht erst durch die Aetzung hervor gebracht worden sind; dagegen ist wohl durch den Schnitt und
-Schliff der Fläche die ursprünglich in denselben enthalten gewesene, bröcklig-körnige Substanz -- die mit jener in
-einzelnen Körnern zerstreut eingesprengten von ganz gleicher Beschaffenheit ist -- vermöge ihrer Sprödigkeit und bröck-
-ligen Anhäufung, mehr oder weniger ausgesprengt worden, und die Risse erscheinen daher stellenweise leer und im Ab-
-drucke demnach bloß nach ihrem, von den angränzenden erhabenen Theilen bestimmten Umrisse, oder nur fleckweise an.
-gedruckt.
-Eine auf der achten Tafel gegebene, mit möglichster Genauigkeit aus freyer Hand lithographisch nach der Natur
-copirte Darstellung eines auf ähnliche Art und in einem gleichen - zum Abdrucke geeigneten --- Grade geätzten Plätt-
-chens von der Agramer Eisenmasse, zeigt ein ganz ähnliches Gefüge, nur mit folgenden kleinen Abweichun-
-gen (2).
-Die Streifen zeigen sich nähmlich hier nur nach drei Richtungen, und zwar in den drei regelmäßigeren, nach wel-
-chen sie vollkommen parallel verlaufen, und zwar so, daß sie sich unter Winkeln von beyläufig 56, 50 und 74 kreu-
-zen; die der vierten Richtung fehlen ganz und gar, und es finden sich demnach, als durch sie gebildete Zwischenfelder
-oder Figuren, nur einerley, und zwar mit äußerst wenig Abweichung, ungleichschenkliche Dreyecke, und, aus deren Ver-
-bindung und Durchschneidung, Rhomben und Trapezen, ebenfalls von wenig Abweichung und mit leicht zu bestimmen-
-den, jenen obiger Dreyecke entsprechenden Winkeln. Die Zeichnung erscheint solcher Gestalt viel einfacher, gleichförmi-
-ger, und zum Theil regelmäßiger, als bey der Elbogner Masse.
-Die Streifen selbst, die im Ganzen jedoch merklich minder zahlreich, dagegen aber etwas stärker und breiter als an
-jener Masse vorkommen -- daher das ganze Gefüge ein etwas gröberes Ansehen hat --- sind übrigens eben so ungleich-
-förmig vertheilt, und die einer Richtung auf ähnliche Art partienweise zusammengehäuft, und nach diesen Nichtungen, mit
-auffallender Uebereinstimmung, eben so an Menge und Masse abweichend, wie an jener; auch durchschneiden und un-
-terbrechen sie sich in einem ähnlichen Grade, und erscheinen demnach im Ganzen von ähnlicher Länge, nur, wie bemerkt,
-im Durchschnitte von etwas stärkerer Breite --- doch so, daß die breitesten kaum 4 Linie erreichen --- und mit einer
-unten - enied-e - rikt,
-iheit der Oberfläche dieser Felder zu verschaffen, ist eine stark
-"esere alsint esieie sens,. sis nmonhnen,
-elche nebenser i iieer 3wischenzeit it der gehörigen Ge-
-nauigkeit zu Stande zu bringen ich nicht vermochte.
-D eschiedn i hen- ön piesn, ee
-Fläche (deren oben bey Be-
-ihreiune rocnnn, g-cesese.,.n.
-ouadrar Zou Ausdehnung, genonmmen.
+Die nach den vier Nichtungen gehenden Streifen erscheinen bei diesem Grade von Aetzung als die tiefsten Stellen (jene Risse ausgenommen, die aber nicht durch die Aetzung zum Vorschein gebracht worden sind), und zwar alle von ganz gleicher Tiefe; die Ränder aber, die im Abdrucke deren Contour gaben, am erhabensien, als Leisten oder dünne Zwischenwände, durch welche jene unter sich sowohl als von den Figuren oder Feldern geschieden erden, und die deren, nun zum Theil ausgeätzte, Substanz begränzen und gleichsam einfassen, daher wir sie Einfassungsleisten nennen wollen.
 
+Die vertiefte Oberfläche, oder die rückständige Substanz dieser Streifen, hat ein etwas rauhes, unter dem Mikroscope gleichsam flachnarbiges oder platt runzlicht-faltiges Ansehen, eine zinkweiße Farbe, und einen schwachen metallischen, etwas seidenartig schimmernden Glanz; die Leisten dagegen sind vollkommen glatt, und haben eine licht stahlgraue, stark ins Silberweiße ziehende Farbe, und einen sehr starken, spiegelicht metallischen Glanz.
 
-### 0092
+Einige (obgleich hier nur wenige) dieser Streifen erscheinen theils durch einzelne wenige, und dann ziemlich starke, theils aber auch durch sehr viele, dicht an einander gereihete, und dann mehr oder weniger zarte, oft mikroscopisch feine, bisweilen bloß aus zusammen gereiheten Puncten oder kurzen Strichelchen zusammen gesetzte, oft im Verlaufe aussetzende, abgebrochene, erhabene Linien --- die unter sich sowohl als den Einfassungsleisten parallel, aber nicht vollkommen geradlinig, sondern meistens etwas gebogen oder fast wellenförmig verlaufen --- der Länge nach gestreift. Es haben diese Linien, die wir zum Unterschiede Streifungs- --- oder besser, zumahl sie eine entsprechende Wirkung hervor bringen --- Schraffirungsleisten nennen wollen, gleiche Höhe mit den Einfassungsleisten (daher sie auch im Abdrucke erscheinen), mit welchen sie selbst ihrer Substanz nach von ganz gleicher Beschafsenheit zu sein scheinen, wie sie denn auch dieselbe Bestimmung haben, indem sie ähnliche Streifen begränzen, nur daß diese oft so mikroscopisch zart sind, daß jene Leisten sich fast berühren.
 
-77
-ähnlichen und übereinstimmenden Abweichung in derselben nach der verschiedenen Richtung, zeigen aber nach beyden Di-
-mensionen etwas mehr Gleichförmigkeit.
-Auf der geätzten Fläche selbst zeigen diese Streifen eine etwas minder rauhe und narbige oder faltige, bisweilen
-sogar eine ganz glatte Oberfläche, eine mehr ins Silberweiße fallende Farbe, dagegen etwas weniger Glanz als die der
-Elbogner Masse, erscheinen aber häufiger übrigens ganz auf ähnliche Art schraffirt, und die erhabenen Ränder oder
-Einfassungsleisten weniger silberweiß, mehr stahlgrau, und etwas schwächer glänzend.
-Die Zwischenfelder oder Figuren haben hier eine etwas dunklere, mehr schwärzlich-graue Farbe, sonst dasselbe An-
-sehen und dieselbe Beschaffenheit wie jene der Elbogner Masse, nur daß sie im Durchschnitte seltner und meistens
-nur theilweise, gewöhnlich auch bloß nach einer Richtung -- einer Einfassungslinie parallel -- gestreift, dagegen häu-
-figer rauh und zart gekörnt und nur selten ganz glatt vorkommen, daher auch die meisten nicht bloß im Umrisse, son-
-dern mit ihrer ganzen Oberfläche im Abdrucke ausgedruckt erscheinen. Merkwürdig ist, daß einige, zumahl kleinere, sol-
-che Felder eben so erhaben, glatt und glänzend wie die Einfassungsleisten, von ganz gleichem Ansehen und gleicher Be-
-schassenheit, und gleichsam mit denselben zusammen geflossen erscheinen, als wenn ihre Substanz in diese übergegangen
-wäre.
-Flecke und Puncte von der bröcklig-körnigen Substanz in den Streifen zeigen sich, sowohl im Abdrucke als auf der
-geätzten Fläche, im Ganzen nur sehr wenige, und eben so finden sich auch wenigere eigentliche Risse, dagegen mehr fleck-
-artige, sehr unregelmäßig und unordentlich zerstreute, zum Theil ziemlich große, mehr oder minder mit solcher Substanz
-- die aber hier eine mehr zinkweiße und etwas, theils ins Messinggelbe, theils ins Röthliche fallende Farbe hat ---
-ausgefüllte Klüfte.
-Von der besondern', in rundlichen Massen gleichsam eingekeilten metallischen Substanz, findet sich hier keine deut-
-liche Anzeige.
-Auf derselben Tafel findet sich eine auf ähnliche Art versuchte Darstellung einer eben so geätzten Platte von der Ei-
-senmasse von Lénarto, welche in Vergleichung mit beyden vorigen folgende Abweichungen im Einzelnen des Ge-
-füges zeigt (1).
-Die Streifen erscheinen hier ebenfalls nur nach drei Richtungen, die sich aber unter ganz andern Winkeln, nähm-
-lich meistens und mit kaum merklichen Abweichungen von beyläufig 77,77 und 26 kreuzen, und daher gleichschenkliche,
-aber lang gezogene und scharf zugespitzte Dreyecke, und diesen entsprechende rhomboidale und trapezoidale Segmente zu
-Zwischenfeldern haben. Die Zeichnung ist demnach ebenfalls einfacher und gleichförmiger, und selbst noch mehr als an
-der Agramer Masse, da die Anzahl der Streifen im Ganzen noch bedeutend geringer ist und diese noch weit seltener
-durch Risse und Klüfte unterbrochen werden.
-Die Streifen selbst, da sie im Ganzen ungleich weniger zahlreich sind, durchschneiden sich weit seltener, sind dem-
-nach ur so länger, so daß die meisten von 6 bis 7, viele selbst von 12 bis 15 Linien Länge erscheinen; inzwischen fin-
-den sich doch auch viele , 2 bis 4 Linien lang. Sie haben dabey eine ungleich stärkere Breite als an den beyden vo-
-rigen Massen, die meisten zwischen bis zu 1, Linie, daher das Gefüge im Ganzen noch ein ungleich gröberes
-Ausehen hat, als das der Agramer Masse. Sie sind übrigens etwas gleichförmiger vertheilt, oder, wenigstens den
-verschiedenen Richtungen nach, weniger partienweise zusammen gehäuft, dagegen bey weitem weniger scharf begränzt,
-und selten geradlinig, sondern meistens bauchig und geschweift und oft wie ausgeflossen; so daß viele der kürzeren,
-bey ihrer Breite, oft als Flecke erscheinen und dadurch die Regelmäßigkeit des Gefüges stören.
-Auf der geätzten Fläche haben diese Streifen ein beynahe durchaus ganz glattes, gar nicht narbiges oder faltiges,
-sondern nur bisweilen ein etwas streifiges Ansehen, eine zinkgrauliche, mehr ins Blauliche als Weiße ziehende Farbe,
-und einen etwas stärkern, und zwar schimmernd seiden- fast atlaßartigen, metallischen Glanz. Nur wenige erscheinen
-gestreift, und diese nur zum Theil und durch einzelne, weit abstehende und abgebrochene Schraffirungsleisten; dagegen
-finden sich in denselben einzelne Körner und Massen jener bröcklig-körnigen Substanz, von allen Größen und Gestalten,
-als erhabene Puncte, Flecke, Winkelzüge, Linien, eingewachsen und fest eingeschlossen äußerst häufig, und von licht
-i. . .
-()
-in verschiedenem Grade geatzten
-u
+Die Felder oder Figuren, welche zwischen jenen Streifen liegen --- durch deren Zusammenstoßen und Durchkreuzen sie gebildet werden -- erscheinen zwar ebenfalls tiefer als die Einfassungsleisten --- die zwischen ihnen und den Streifen gleichsam die gemeinschaftliche Scheidewand bilden, und daher im Abdrucke auch zugleich die Form und Begränzung jener bezeichnen --- aber bei weitem nicht so tief geätzt wie die Streifen, wie sich denn auch iher Oberflache, zumahl wenn diese rauh oder gestreift ist, bei einem gewissen Grade von Aetzung, obgleich schwächer als die Einfassungsleisten, abdruckt.
 
+Es haben diese Felder eine eisengraue Farbe, ein ganz mattes metallisches Ansehen, und theils eine glatte, theils aber, und zwar durchaus oder nur zum Theil, meistens gegen die Winkel zu, eine rauhe, mikroscopisch fein gekörnte Oberfläche; sehr viele aber haben dieselbe ganz, oder zum Theil, zart erhaben gestreift. Diese Streifung (Schraffirung) wird, so wie vorhin bei den Streifen bemerkt wurde, durch ganz ähnliche, aber gewöhnlich äußerst zarte und mikroscopisch feine, mehr oder weniger, doch meistens sehr dicht an einander gereihete, erhabene Linien oder Leisten hervor gebracht, die, bei ihrer Menge und Zartheit, mittelst ihres Glanzes diesen Feldern oft einen seidenartigen Schimmer geben. Es laufen diese Schraffirungsleisten aber auf den einzelnen Feldern nur höchst selten bloß nach einer Richtung (wie dieß bei den Streifen der Fall ist), sondern gewöhnlich erscheinen sie partienweise, und zwar parallel unter sich sowohl als mit eben so vielen Seitenrändern, nach zwei oder drei Richtungen, die sich im Kleinen eben so und unter ähnlichen Winkeln durchschneiden und durchkreuzen wie die Streifen im Großen (daher eine wahre Schraffirung bewirken). Sehr oft sind diese Leisten nicht nur einzeln oder partienweise solcher Gestalt unterbrochen, sondern sie selbst setzen oft aus, und lassen einen glatten Zwischrntuum, oder erscheinen bloß als in eine Linie gereihte Puncte oder Strichelchen. Beynahe jedes Feld hat seine eigenthümliche Schraffirung, ohne Bezug auf die nächst liegenden. Jene vertieften Streisen scheinen eine vollkommene Trennung oder Isolirung zwischen denselben zu bewirken. Es scheint dieselbe übrigens von den Rändern der Felder oder von den Einfassungsleisten her ausgegangen zu sein, wenigstens zeigen sich hier immer die meisten Leisten, auch wenn sich im Mittel oft gar keine finden und sie selbst nicht weit hinein reichen, sondern als abgebrochene Strichelchen an einem der Ränder erscheinen; inzwischen zeigt sich doch auch oft im Mittel eines Feldes die Streifung sleckweise unterbrochen; so daß z. B. mitten in einer Partie senkrecht laufender Leisten ein Fleck von ganz unregelmäßiger Form von solchen einer schiefen Richtung vorkommt. In manchen Feldern erscheint die Streifung nur in Gestalt zarter, mikroscopisch feiner, mehr oder weniger dicht und anscheinend ganz unordentlich zerstreuter, noch gar nicht in parallele Linien und nach einer bestimmten Richtung gereiheter, erhabener Puncte.* Die glatten Felder erscheinen etwas tiefer geätzt, zumahl aber ist ihr Mittel bisweilen grubenartig vertieft, gleichsam eingesunken, indeß sich der Rand allmäblich gegen die Einfassungsleisten zu erhebt.
 
-### 0093
+*) Um eine deutliche Vorstellung von der merkwürdigen Beschaffenheit der Oberfläche dieser Felder zu verschaffen, ist eine stark vergrößerte Darstellung mehrerer derselben durchaus nothwendig, welche nebenher in dieser Zwischenzeit mit der gehörigen Genauigkeit zu Stande zu bringen ich nicht vermochte.
 
-78
-stahlgrauer, ins Silberweiße fallender Farbe, mit starkem, bey schiefer Nichtung, metallisch spiegelndem Glanze. Die
-Einfassungsleisten haben hier eine etwas matte, stahlgraue Farbe.
-Die Zwischenfelder oder Figuren, welche hier ungeachtet der geringern Anzahl der Streifen, wegen gleichförmige-
-rer Vertheilung derselben, verhältnißmäßig häufiger und aus denselben Gründen bey weitem größer, eben deßhalb aber
-auch seltener als Dreyecke, mit oben angegebenen Winkelmaßen, sondern meistens in rhomboidalen oder trapezoidalen,
-oft sehr kleinen, Segmenten derselben erscheinen -- sind beynahe durchgehends, und zwar äußerst zart und dicht, ge-
-wöhnlich nach zwei auch drei, den Seiten parallelen Richtungen, und mit all den, oben bey der Elbogner Masse
-bereits erwähnten, Modificationen, theilweise, zumahl an den Rändern, oder durchaus schraffirt, oder doch durch eben
-so zarte mikroscopische Puncte rauh. Da jene Schraffirungsleisten und diese Puncte erhaben sind, so erscheinen auch
-alle diese Felder --- und daher weit mebrere als an beyden vorigen Massen --- nicht bloß im Umrisse (durch die Ein-
-fassungsleisten), sondern mehr oder weniger, ihrer ganzen Oberfläche nach, im Abdrucke ausgedruckt, und da jene Lei-
-sten und Puncte eine glänzende, ins Silberweiße fallende Farbe haben, so geben sie ihrer Menge, Zartheit und Dicht-
-heit wegen, der Oberfläche dieser Felder, die an sich matt und dunkel eisengrau wäre, ein ähnliches Ansehen und einen
-seidenartigen Schimmer, wodurch selbst die ganze Fläche ein lichteres und glänzenderes Aussehen bekommt. Nur ein-
-zelne wenige und meist sehr kleine Felder zeigen sich, auch unter dem Mikroscope, ganz glatt, und dann etwas ver-
-tieft, wenigstens im Mittel, und von matter, dunkler, selbst schwärzlich-grauer, oft ganz schwarzer Farbe. Größere
-Klüfte oder Risse, welche mehr oder weniger mit jener bröcklig-körnigen Substanz ausgefüllt wären, finden sich hier
-beynahe gar nicht; dagegen -- obgleich nicht so häufig wie im Elbogner Eisen, dafür aber in größeren Partien
-(von 4 bis 5 Linien im Durchmesser) --- jene dichte, harte, schwärzlich-eisengraue metallische Substanz in rundlichten
-oder ovalen (hier bisweilen länglichten und linienförmigen) Massen fest eingeknetet, und gleichsam eingekeilt. Merk-
-würdig ist, daß diese für sich scharf begränzten Massen (hier wenigstens besonders deutlich) fast durchaus und rings
-um ihren Rand von einem schmalen, aber ungleich breiten Saume von jener körnig-bröckligen Substanz, von ge-
-wöhnlicher Beschaffenheit, Farbe und Glanz, umgeben, eingefaßt und durch denselben von der übrigen Metall-Masse
-fast vollkommen gesuneven sno (1/.
-Dieselbe Tafel gibt ferner eine ähnliche Darstellung einer eben so geätzten Fläche an dem Stücke vom mexika-
-nischen Gediegeneisen, welches die kaiserl. Sammlung der Mittheilung Klaproth's verdankt.
-Es zeigt dieselbe ziemlich wesentliche Abweichungen im Einzelnen des Gefüges von den vorhergehenden, und es
-scheint beynahe als wäre dieses durch irgend eine mechanische Gewalt, etwa beym Lostrennen dieses Stückes von der
-Stamm-Masse, oder einem größern Stücke, durch, vielleicht nach einer Richtung fortgesetztes, Meißeln, Hämmern oder
-Schlagen in etwas verändert worden. Die Streifen erscheinen nähmlich beynahe ausschließlich nur nach zwei, und
-zwar oft ziemlich rechtwinkelig sich durchschneidenden, Richtungen und in diesen selbst nicht immer vollkommen paral-
-lel und sogar gekrümmt und gebogen; so daß die Zwischenfelder zum Theil sehr ungleichartige und selbst verzogene, vier-
-seitige Figuren, Parallelepipeden, Rhomben, Rhomboiden, Trapezen, aber nie Dreyecke bilden.
-(1) An dem grosen, bey 37 Pfund wiegenden Stücke, welches Herr Baron von Brudern von diesem Meteor-Eisen besitzt,
-scheint eine Mase der Aet, gleichsam wie ein an Dicke etwas abnehmender, langer, rundlichter Zapfen, durch die ganze Höhe
-ies Sncer- d-h,gehen, wen- igt sics dieselbe an e inen bschnitnnce nn sninesnnen iundlichee Fie,
-vond en in Danchmeeee n oltoommnen senkrecht uner demnselben auf der entgegen gesetzten schnitssläche, aufneh-
-als 6Zou Tiese, zigt sich ein ähnlicher (und hier einziger), etwas ovaler (on . 3 einen in beyden Durchmesern,
-der jenem volltonmnen enericht, nd denselben aufs Hae nerrire. Es wäre den ch ein gan esonderer Zufau, enn sh
-acs ot sssse s ie nesi sis lesst . .- ds äii iclenheissi
-zwei entgegen gesetzten und doch so weit von einander abstehenden Flächen von beträchtlicher Ausdehnung, und wo sie, we-
-nigstens hinsichtlich ihrer Größe, einzeln stehen, so haarscharf begegnen sollten, ohne mit einander in wirklicher Verbindung
-utehen. De Gegensaach- en iene eriern sschnitteiaehh sesdet sich an den, 51 pfund wiegenden Stüce der kaiseri.
-Sammlung, das von ienen abgeschniten wonden a-, s zie- faund sich ah si goiesunu i nens prasumirren Zapfens as
-n ganz ehnilicher ach n der oamune, das die eiuler geden nd,, eß i
-e, r galice sehenlai s icse ien anse dirfe gieckes abschneden, n der Absicht, dies-
-. s n-
-Honnung getausche, denn die ase sans sih kaum and ont- zief eingeeengen. Da die ander- Abschnittssäche ienes Sta-
-"nl nnlns- afin il Meen ein is snsn nisns i Hlis sessst i l sn ieonten aaisas-- nenmn-i a, "ss
-ssh ssls ss sin.
+Die im Abdrucke bemerkten größern und kleinern, unregelmäßig gestalteten und zerstreut in und zwischen den Streifen erscheinenden Flecke und Puncte, zeigen sich hier als erhabene Massen, und zwar größten Theils von gleicher Höhe mit den Einfassungsleisten, mitunter aber auch etwas tiefer, und daher und überhaupt bei näherer Betrachtung der Oberfläche noch ungleich häufiger als im Abdrucke, so daß die Masse ganz damit durchsäet erscheint, aber in all zu zarten Körnern, als daß sie, oft ihrer Erhabenheit ungeachtet, durch den Abdruck bemerkbar werden konnten. Die Substanz derselben zeichnet sich von der übrigen Metall-Masse durch ein bröcklig-körniges, oder doch rissiges Aussehen, eine matte, dunkel eisengraue, im Schliffe aber hier stark und beinahe ganz rein ins Silberweiße fallende Farbe und starkem spiegelnden Glanze aus.
 
+Aehnliche, aber meistens mehr vertiefte, und daher im Abdrucke nur im Umrisse und undeutlich erscheinende, und größten Theils rundliche oder ovale Flecke von verschiedener, zum Theil bedeutender Größe (von 1/4 bis über 2 Linien im stärksten Durchmesser), zeigen sich ziemlich häufig und ganz unordentlich zerstreut, aber scharf begränzt, zwischen den Streifen und Feldern gleichsam wie eingeknetete oder eingekeilte Massen oder Körner von matter, schwärzlich eisengrauer, durch den Schliff nur wenig veränderter Farbe, glatter Oberfläche und einem Ansehen, das zwischen jenem der Substanz der Felder und jener bröcklig-körnigen gleichsam das Mittel hält.
 
-### 0094
+Die beim Abdrucke erwähnten fleckartigen Striche erscheinen hier als wahre Risse und enge Klüfte, die zum Theil ziemlich tief (oft über eine Linie), theils senkrecht, theils schief in die Masse eindringen, und die schon ursprünglich vorhanden waren und nicht erst durch die Aetzung hervor gebracht worden sind; dagegen ist wohl durch den Schnitt und Schliff der Fläche die ursprünglich in denselben enthalten gewesene, bröcklig-körnige Substanz --- die mit jener in einzelnen Körnern zerstreut eingesprengten von ganz gleicher Beschaffenheit ist --- vermöge ihrer Sprödigkeit und bröckligen Anhäufung, mehr oder weniger ausgesprengt worden, und die Risse erscheinen daher stellenweise leer und im Abdrucke demnach bloß nach ihrem, von den angränzenden erhabenen Theilen bestimmten Umrisse, oder nur fleckweise ausgedruckt.
 
-79
-Die Streifen sind übrigens eben so zart und scharf begränzt, wie bey der Elbogner und Agramer Masse,
-und da sie ziemlich zahlreich und dabey gleichförmiger als bey jenen vertheilt und nicht so partienweise nach einer Rich-
-tung zusammen gehäuft sind; so durchschneiden sie sich um so häufiger, erscheinen demnach im Ganzen kürzer, und bil-
-den im Verhältniß häufige, aber kleine Zwischenfelder. Das Gefüge erhält dadurch ein viel feineres und zarteres Anse-
-hen, so wie es auch, da eine Richtung von Streifen beynahe ganz fehlt (denn es zeigen sich nur einzelne wenige, und
-diese nur undeutlich in einer dritten schiefen Richtung), viel einfacher und gleichförmiger erscheint.
-Auf der geätzten Fläche zeigen diese Streifen eine sehr unebene, narbige Oberfläche, äußerst selten eine Spur von
-Schraffirung, und eine ganz matte, schwärzlich eisengraue, nur hie und da etwas ins Zinkweiße fallende Farbe, so
-daß sie von den nur etwas weniger vertieften Zwischenfeldern kaum zu unterscheiden sind, die ein ganz ähnliches Anse-
-hen, aber, in so ferne sie nicht schraffirt sind --- was jedoch ebenfalls nicht häufig und meistens nur zum Theil und
-nach einer Nichtung der Fall ist -- eine glatte Oberfläche haben.
-Nur die erhabenen Einfassungsleisten, die Schraffirungsleisten aber nur zum Theil, zeigen, und selbst dieses nur
-bey einer schiefen Wendung, eine licht stahlgraue Farbe und einen starken metallischen Glanz.
-Außer einigen Körnern und kleinen Massen in den Streifen, findet sich von der bröcklig-körnigen Substanz in ein-
-zelnen kleinen Rissen und Klüften die Spur, am meisten aber in einer großen rißartigen, ganz damit angefüllten Kluft,
-die das Stück der Quere nach in einer etwas gebogenen Richtung, aber hier von keiner beträchtlichen Tiefe mehr, bey-
-nahe ganz durchzieht (1).
-(1) Ein diesem am meisten ähnliches Gefüge zeigen die größern, zu einer Aetzung geeigneten Massen oder Körner von Gediegenei-
-sen, welche sich bisweilen als Gemengtheile in der Steinmasse von Meteor-Steinen isolirt eingeschlossen finden, aber dieses nur
-sec e seele-. e- en sch nahnnier de onn- anf dee ieichsseniäen, lten, ste eiseiceen st aen.
-Seuen durch erhabes, ieie, hss si ssi äissts. bn,.
-grsßten Theils nach zwei sich durchkreuzenden Richtungen parallel laufen und ein enges Nes mit rhomboidaiend rapezoi
-dalen, vertieften und etwas duntler gefärbten, matten Zwischenfeldern bilden, wie dieß z B. ienes große Korn in den au
-der siebenten Tafel von der abgeschlifenen Fläche vorgestellten Meteor-Steine von Sales sehr deutlich zeigt, aber der mitros
-opisch zarten Beschaffenheit wegen nicht dargestellt werden konnte. (Bemerkenswerth ist, daß in diesem asgeschuissenen unn
-geätzten Korne derben, gediegenen Metalles - nebst Atomen von der bröcklig-körnigen Substanz von ins othnche ziehen-
-der Farbe -- zwei kleine unförmlich eckige Körner von unveränderter und von der Säure unangegriffener Steinmasse einge
-teilt erscheinen An jenen kleinen Massen Gediegeneisen, welche in Gestalt wahrer Zacken n ee ieintgae, nee Se-
-Seen s otennen, is- ich seon, tene Su- in-- - end eine- etesseäss ens.
-ehalten ksnnen, und die Obersläche derselben zeigte sich stets gleichförmig an Farbe und Glanz, jene war aber lichter und
-diese iarter as an jenen gsßein, derbern masen.
-Es dürfte wohl voreilig scheinen entscheiden zu wollen, welcher von jenen vier Metal-Massen, dem Gefüge nach -
-desen Darstelung und Beschreibung vergleichend gegen einander zu stellen hier versuicht worden ist -- in Hinay e en-
-ätesl ssle sidnin,, de- orun gebibr-, inishen il ich mir doch elauben eine nencneßint
-zu änßern. Da- Gefuge der Ebogner Mase zeigt von aien unstreitig den höchsten Grad von Ansscheidung und regeimßatet
-usonderung der einzelnen, mehr oder weniger verschiedenartig erscheinenden Theile desselben, nahmlich: die häunggsen, za-
-aen, aieichörmaaten und an an schärfsten begränzten Streisen; die meiste, und zwar der vorauszusesenden ceen g,,gät-
-iion - dem regelmäßigen Oetäeder - am voukommensten entsprechende Regelmäßigkeit und Gleichfsrnirt er gishen.
-sed-- une in deren Schraniruns; die voltonmnenste, häurngste und zun hei seasn eninas regeincesnhe üsfeisnig e lie.
-ng-körnigen, und die nicht minder häusige der ähnlichen, härtern Substan, so wie die Ausgesprochenheit aller dieser Theile
-n den Substanzen aus welchen sie gebider sind, in änsern Ansehen sowohl als in den physischen Eigenschaften, af deren
-eieeeneyumlichkeit und Reinheit hinzudenten scheint. Das Gefüge auer übrigen zeigt dagegen, und zwar in derselben Reihen-
-z.,. in welcher sie dargesteult und bescheiesen worden sind, ungleich ehr Einfachheit; aber eben diese Einfachee hat oien-
-ie ge, Geund in einer minder häunen und weniger scharfen osonderung der homogenen Theile, und in einer mangelhaf-
-ten ngscheidung der heterogenen Substanzen und Stoffe - die doch in der Total-Masse vorhanden zu sein scheinen - wei-
-ces einfe ,eiee zn der geringeren Menge, nnder scharfen Beränzung und weniger regelmäßigen -- wenigstens der voranszu-
-setzenden Grundform im Allgemeinen minder entsprechenden Absonderung jener, und in der Mangelhaftigkeit oder doch gerin-
-gern Menge dieser, und in der weniger ausgesprochenen Eigenthümlichkeit und Heterogeneität der vorhandenen, hinlängliche
-Lekräftigung sinden dürfte. In so ferne dennach die Volonmnenheit oder ein höherer Grad von Ausbildung dieser Maen
-überhaupt, in der häufigern und vollkommneren Ausscheidung der heterogenen Bestandtheile, und in der schärfern Absonderung
-and regelmnäßigeren eagerung der aus ihnen einzeln bestehenden, oder aus der nenen Berbindung einiger derselben geosnderen
-Substanzen zu suchen i, in so ferne möchte wohl die Eisogner Maste unter den hier abgehandelten den ersten unsdrnch dar-
-auf machen dürfen.
-Lange nachdem diese Note schon niedergeschrieben war, und eben als dieser Bogen der Presse übergeben werden sollte, er-
-halte ich durch Herrn ". idaannsaae. di eenuatae nngee pbssisch-eechnscher Bessuche, weiche derselbe auf neine
-Bitte mit dem uns so sehr problematisch scheinenden Cap'schen Gediegeneisen, so weit es der Drang der Zeit und der Um-
-u 2
+Eine auf der achten Tafel gegebene, mit möglichster Genauigkeit aus freyer Hand lithographisch nach der Natur copirte Darstellung eines auf ähnliche Art und in einem gleichen --- zum Abdrucke geeigneten --- Grade geätzten Plättchens von der Agramer Eisenmasse, zeigt ein ganz ähnliches Gefüge, nur mit folgenden kleinen Abweichungen.*
 
+*) Die Beschreiung ist theils von diesem Plättchen, theils von einer auf der Masse selbst geätzten Fläche (deren oben bie Beschreibung der Masse Erwähnung gemacht wurde), von 6 Quadrat-Zoll Ausdehnung, genommen.
 
-### 0095
+Die Streifen zeigen sich nähmlich hier nur nach drei Richtungen, und zwar in den drei regelmäßigeren, nach welchen sie vollkommen parallel verlaufen, und zwar so, daß sie sich unter Winkeln von beiläufig 56, 50 und 74° kreuzen; die der vierten Richtung fehlen ganz und gar, und es finden sich demnach, als durch sie gebildete Zwischenfelder oder Figuren, nur einerley, und zwar mit äußerst wenig Abweichung, ungleichschenkliche Dreiecke, und, aus deren Verbindung und Durchschneidung, Rhomben und Trapezen, ebenfalls von wenig Abweichung und mit leicht zu bestimmenden, jenen obiger Dreiecke entsprechenden Winkeln. Die Zeichnung erscheint solcher Gestalt viel einfacher, gleichförmiger, und zum Theil regelmäßiger, als bei der Elbogner Masse.
 
-80
-Wird nun die Aetzung solcher Flächen noch längere Zeit (z. B. bis auf eine Tiefe von Linie) fortgesetzt; so
-sprechen sich die erhabenen und vertieften Stellen gegenseitig noch immer mehr aus, und es verändert sich zum Theil
-stände gestattete, zum Behufe dieser Ausarbeitung noch vorzunehmen die Güte hatte. Es zeigte sich nach denselben an dieser
-Masse weder im Schliffe, noch beym Anlaufen, noch durch Aetzung, auch nur die entfernteste Spur eines Gefüges.
-iant polierte Flächen zeigten denselben metalisch spiegelnden Glanz, dieselbe, das Meteor-cisen auszeichnende, licht
-sahigrane, start in Siberweise sauende Farbe, einen hohen Grad von Dicheichfsrmngteitin dieser, die ses
-niche im Geringsten durch eine heterogene, eingesprengt oder in Rissen enthaltene Substanz unterbrochen erschien, und die sich
-auch im Schnin ewwhete, ben wichen sene häusgen, harten, soröden, die Sage "ewustenden Seeuen niche beobachtet
-wurden.
-Salpetersäure brachte auf solchen Flächen, und zwar ohne merkliche Entwickelung von Schwefelwasserstoffgas, nur einige
-größere und kleinere, meistens geslammte und allmählich sich verlaufende, selten etwas schärfer begränzte, eisen- oder mehr
-oder weniger schwarzgraue, matte Flecke zum Vorschein, welche auf eine Ungleichartigkeit der Substanz und auf eine unvoll-
-kommene Ausscheidung des einen Ancheiles schließen ließen. unter der Feile und Säge zeigte sich die Masse im Ganzen voll-
-, säisicssiii eini ii-l-se3. t. s n..
-Streifen-Substanz des Gefüges der beschriebenen Gediegeneisen-Masen. Jene bemerkte Ungleichartigteit der Substanz sprach
-sh Jen seh uneersuchung einzelner Sicee fuur sich, die, o viel al bey der nnseltemnmnenen Assenderung iener nd,tich war,
-duch echanische Trennung erhalten wurden, sehr auens au. oalichs eeine eek- deg anaenen, h erh ihisiie
-zigten einen sehr dichten, glänenddnn eiiee Bucc nd einen hohen Gaa von oecchneinigtene, so das sich ein ea z-
-Gran wiegendes Seaatchen seh gut zu einem beynahe 3 3ou langen Stäbchen heiß areeie nee, ce vom grauen Antheil-
-daeeen nen seintoinigen, natten, hararauen, seh- schnen beäunis is sechgesenden inse-
-iec ssss öliiisn, r n ss, nsmi iie en- Ssßt, sesi isslen iä i em-
-"- einzein- tackchen davon hielten n der Rethhise nur enige schwache aammersschiage aus, und ießen sich damit enwa-
-weniges zusammen drücken, zerbröckelten aber berm dritten, "ierten Schlage; andere zersprangen selbst beym ersten Schlage
-chhn ehs . ey,te nenen sch urchaus nicht härten, ersterer schien sich -te iei in ersnch in Kieinen iehren eonn
-ih hneise chheiien arre resna aif den Magnet, aber schache Plaritat, nahnen diel- abe-
-durch Streichen bald mehr an, und der erstere erhielt dadurch eine beträchtliche magnetische Kraft.
-Das specisische Gewicht der Masse im Ganzen fand Herr v. Widmannstätten 7,318 (also beträchtlich unter jenem
-der nbnigen son nie darauf untersuchten Gediegeneisen Masen, bey welchen ich dasselse, ie ich schon in einer feuhern Not-
-veneie, wuischen ,oos un o fand; nbhmchi hn er Ewsgnr ,sss ,,a-s, rr eraner 2 ,,z.ßie
-7,800; der Lenartoer = 7,720 -- 7,800; der Mexikaner - 7,670; der Peruaner =,600-7,65o; und
-selbst noch unter jenem des sibirischen - 7,540 -7 570; aber höher als jenes der in Meteor-Steinen eingemengten edie-
-geneisen-Körner 6,00o 6,6o0; dagegen dem angenommenen Mittelgewichte des Roheisens = 7,200--,500 am näch-
-a.n innend), enes des weißen Antheiles für sich, nach dem verschiedenen Grade der Reinheit der Stücke, zwischen ,z33
-j,, aso zun Theil weit über dem angenonmmenen Mittelgewichte des gewöhnlichen, weichen und geschmeidigen Eisens
-7,700); jenes des grauen dagegen zwischen 6,655 und 6,926 (demnach weit unter jenem des Roheisens), von welchen
-beyden nun das arithmetische Mittel eine der obigen ganz ähnliche Zahl gibt, und in welchen der Grund der Differenzen des
-Befundes Anderer zu suchen ist (so gab v. Dankelmann das soeeisische Gewicht dieser Masse mit ,708; Van Marum
-mit 7,654 an, indeß ich es einst - 7,260 gefunden hatte).
-inte pernanische Eisen Mase nochmahls gepruft, so weit es die Kleinheit
-des zu Gebothe stehenden Stückes erlaubte. Auch diese zeigte keine Spur von jenem eigentlichen Gefüge; unter der Loupe
-erschienen aber doch auf der stark geätzten, kleinnarbigen Oberfläche viele, äußerst zarte, mikroscopisch feine, erhabene Linien,
-die nach mehreren, offenbar vorherrschend aber nach drei, zumahl zwei, Richtungen meist gerade, nur selten etwas gebogen,
-und stets parallel verlaufend, sich durchkreuzen, und hie und da ein sehr enges Netz bilden, ganz ähnlich jenem auf der geätz-
-ten Oberfläche des großen Metall- Kornes in dem oben beschriebenen und auf der siebenten Tafel abgebildeten Meteor-Steine
-von Sales, und, stellenweise, jenem auf der geätzten Fläche des Merikaner Eisens. Eine polierte Fläche zeigte eine besonders
-grt zs Weiße fallende, die geätzte aber eine beynahe zinnweiße Farbe. Unter der Feile gab sich die Mase merklich härter
-als die Cap'sche zu erkennen. Das specifische Gewicht fand Herr v. Widmannstätten = 7,646.
-So seh nun auch diese Resultate in vielen Beziehungen von jenen abweichen, welche sich bey ahnlicher untersuchung der
-übrigen, oben beschriebenen, derben Gediegeneisen-Massen ergaben, und die Zweifel über den präsumtiven meteorischen ur-
-renn iese- sen - das cesg Her- ". Bidmaninstäatten mehg nengig vre, zumnasd die Capsche, fae da-
-produet eines künstlichen Schmelz- und unvollkommenen, unvollendeten Verfrischungs-Prozeses anzusehen, welche Murhma-
-ßung durch ". Daneetm anns Nachrichten von der geognostischen Beschaffenheit ener Gegend, wo diese Mas- ursprünalich
-gefunden worden war, und wo Eisenerze aller Art und in großer Menge zu Tage stehen welche vielleicht einst von den Be-
-wohnern zu Gute gemacht wurden -- auch von dieser Seite einige Wahrscheinlichteit erhäly); so finde ich doch darin keinen
-eaninnnngsgrund, meine oeht in einer feaheenNote unse-es eigeuthinliche s cy tarterlssched- enug am e-
-teor-Eisen, als in dieser uber den verschiedenen Grad von Voukommenheit desselben und den, diesem wahescheinlich zum
-Grunde liegenden Ursachen, ausgesprochenen Ideen und Muthmaßungen abzuändern, auch selbst dann nicht, wenn auch jene
-Zweifel (gegen welche die ausgezeichnete Farbe, die offenbare und ganz eigenthümliche Mengung, und das beträchtliche spe
-eifische Gewicht der Masse, im Ganzen sowohl als insbesondere des einen Antheiles, vorzüglich aber der erwiesene, selbst quan-
-ttatis entsprechende Gehalt an Nickel in Berücksichtigung kommen) für nicht hinlänglich begründet erachter werden sollten; im
-Geaentheile dürfte ich darin vielmehr in iedem Faue einige Bekraftigung für dieselben zu finden glauben.
+Die Streifen selbst, die im Ganzen jedoch merklich minder zahlreich, dagegen aber etwas stärker und breiter als an jener Masse vorkommen --- daher das ganze Gefüge ein etwas gröberes Ansehen hat --- sind übrigens eben so ungleichförmig vertheilt, und die einer Richtung auf ähnliche Art partienweise zusammengehäuft, und nach diesen Nichtungen, mit auffallender Uebereinstimmung, eben so an Menge und Masse abweichend, wie an jener; auch durchschneiden und unterbrechen sie sich in einem ähnlichen Grade, und erscheinen demnach im Ganzen von ähnlicher Länge, nur, wie bemerkt, im Durchschnitte von etwas stärkerer Breite --- doch so, daß die breitesten kaum 1/2 Linie erreichen --- und mit einer ähnlichen und übereinstimmenden Abweichung in derselben nach der verschiedenen Richtung, zeigen aber nach beiden Dimensionen etwas mehr Gleichförmigkeit.
 
+Auf der geätzten Fläche selbst zeigen diese Streifen eine etwas minder rauhe und narbige oder faltige, bisweilen sogar eine ganz glatte Oberfläche, eine mehr ins Silberweiße fallende Farbe, dagegen etwas weniger Glanz als die der Elbogner Masse, erscheinen aber häufiger übrigens ganz auf ähnliche Art schraffirt, und die erhabenen Ränder oder Einfassungsleisten weniger silberweiß, mehr stahlgrau, und etwas schwächer glänzend.
 
-### 0096
+Die Zwischenfelder oder Figuren haben hier eine etwas dunklere, mehr schwärzlich-graue Farbe, sonst dasselbe Ansehen und dieselbe Beschaffenheit wie jene der Elbogner Masse, nur daß sie im Durchschnitte seltner und meistens nur theilweise, gewöhnlich auch bloß nach einer Richtung --- einer Einfassungslinie parallel --- gestreift, dagegen häufiger rauh und zart gekörnt und nur selten ganz glatt vorkommen, daher auch die meisten nicht bloß im Umrisse, sondern mit ihrer ganzen Oberfläche im Abdrucke ausgedruckt erscheinen. Merkwürdig ist, daß einige, zumahl kleinere, solche Felder eben so erhaben, glatt und glänzend wie die Einfassungsleisten, von ganz gleichem Ansehen und gleicher Beschassenheit, und gleichsam mit denselben zusammen geflossen erscheinen, als wenn ihre Substanz in diese übergegangen wäre.
 
-81
-das Ansehen des Gefüges oder der Zeichnung im Ganzen, indem zuletzt manche der tiefen -- nahmentlich die Streifen
-- gtanz verschwinden, und bisweilen andere - gewöhnlich ein Theil eines Zwischenfeldes --- an ihre Stelle treten.
-Die Streifen erscheinen nun als seichtere und tiefere, mehr oder weniger leere Canäle oder Rinnen (Geleise), in-
-dem of nur die erhabenen Begränzungslinien oder die Einfassungsleisten als ihre gemeinschaftlichen Scheidewände, als
-Contour,, und ihr Boden, der mit diesen von einerley Beschaffenheit ist und mit denselben ein Ganzes, gleichsam eine
-Ninne bildet, welche die Substanz der Streifen selbst einschloß, noch übrig sind, letztere aber von manchen ganz aus-
-geätzt und von der Säure aufgelöst worden ist. Hat man demnach ein Plättchen von einer bestimmten Dicke (z. B. von
-oder z Linie) einem solchen Versuche unterzogen, so erscheinen manche dieser Streifen --- in so ferne sie tiefer gin-
-gen als die Platte dick war, und ihre Substanz solcher Gestalt zufällig, und zwar noch über den Boden des Canals
-getroffen worden ist - ganz ausgeätzt, ohne Boden, und die Einfassungsleisten stehen als die ehemaligen Scheide-
-wände, wie Lamellen, frey da, und hängen nur mittelst ihrer Enden mit den übrigen minder angegriffenen Theilen
-(den angränzenden, quer gehenden, ähnlichen Leisten, oder mit solchen von Feldern) der Masse zusammen (1). Man-
-che, und zwar ungleich mehrere (zumahl wenn die Platte Linie dick war, da nur äußerst wenige so tief gehen), die
-seichter lagen, erscheinen als leere Rinnen von verschiedener Tiefe, und auf der entgegen gesetzten Seite des Plättchens
-(die, falls dasselbe von beyden Seiten gleichzeitig geätzt wurde, eine ganz andere Zeichnung und Vertheilung der Strei-
-fen und Felder zeigt) finden sich unter ihnen Felder, oder zum Theil Streifen in einer andern Richtung, auf welchen
-sie mit ihrem Boden auflagen, der nun --- falls er nicht etwa wegen allzu seichter Lage der enthaltenen Substanz und
-der langen Dauer des Prozesses ebenfalls weggeätzt wurde -- mit den Einfassungsleisten auf denselben aufsitzt (2).
-Die Einfassungsleisten, die nun mehr oder weniger frey da stehen, zeigen --- was zum Theil bey einer minder
-tiefen Aetzung schon beobachtet werden kann --- (übrigens aber auch vom Schnitte abhängen mag, je nachdem dieser
-die Richtung derselben traf) eine, gegen die Ebene der Fläche, etwas schiefe --- doch immer unter sich parallele ---
-Lage, und gleichen papierblattdünnen Lamellen von der Länge der vormahligen Streifen, einem gegenseitigen Abstande
-welcher der Breite dieser entspricht, und von sehr ungleicher Höhe oder Tiefe, je nachdem die enthaltene Substanz mehr
-oder weniger in die Tiefe ging und ausgeätzt worden ist. Kurz, sie bilden paarweise die Seitenwände eines schrägen,
-aber gleich weiten Canals, in welchem die Streifen-Substanz eingeschlossen war, und sind nach unten durch eine ähn-
-liche Lamelle verbunden und geschlossen, welche solcher Gestalt den Boden des Canals vorstellt. Boden und Wände ha-
-ben ein etwas unebenes, gebogenes und gleichsam faltiges, oder vielmehr breit und flach gefaltetes Ansehen, eine stahl-
-graue, stark ins Silberweiße fallende aber meistens eisengrau angelaufene Farbe, und einen schwachen metallischen Glanz,
-indeß der obere Rand der Wände (Einfassungsleisten) lichter und glänzender ist.
-Wo zwei oder mehrere Streifen einer Richtung dicht an einander liegen und durch solche Lamellen dem Anscheine
-nach nur einfach getrennt sind, scheinen diese doch alle Mahl, wenigstens hie und da im Verlaufe, doppelt oder doch di-
-cker und gleichsam aus zwei zusammen geschmolzen zu sein, schließen, in eben diesem Grade mehr oder weniger deut-
-lich, etwas von der den Feldern oder Figuren eigenthümlichen Substanz ein, und bilden kleine, oft nur linienförmige
-(doch immer Segmenten der vorkommenden Dreyecke entsprechende) ähnliche Zwischenfelder; so daß demnach Streifen
-und Felder und die verschiedenartige Substanz beyder stets und regelmäßig abwechseln und jene Lamellen oder Einfas-
-sungsleisten gleichsam als Trennungsmittel dienen und die gemeinschaftliche Scheidewand bilden.
-(1) Wenn zufällig - was jedoch selten der Fall ist -- aller Zusammenhang fehlt, so fallen solche Lamellen, einzeln oder mehrere
-unter sich oder mit einem Zwischenfelde verbunden, ab und finden sich als solche --- unverändert in der Auflösung - am
-soen s- esaßes worin die eeunng geschah.
-(1) Es ergibt sich hieraus, daß sowohl die Streisen als Felder, so wie auch ihre gemeinschaftlichen Scheidewände --- die Einfas-
-sungs- und Schraffirungsleisten -- und überhaupt alle einzelnen, mehr oder weniger verschiedenartigen Theile des Gefüges
-die sich durch die Aetzung aussprechen, nur auf eine gewisse, und zwar nicht sehr beträchtliche (wie es scheint, selten über Li-
-nie reichende), übrigens aber sehr unbestimmte und ungleichförmige Tiefe gehen und unordentlich über einander gehäuft, nur
-mit einiger Regelmäsiigkeit in der Ausscheidung, Absonderung und Lagerung unter sich, die Total-Masse construiren. Am
-eurichsten zeigt sich dies an zwei Würfen Seite, die ich aus einem Snake von der Eiogner Mase
-ausschneiden und woran ich an dem einen noch eine Ecke abstumpfen ließ, und dann beyde ringsherum, auf allen Flächen
-und Kauten, gleichzeitig und gleichförmig ätzte. Iede Fläche auf denselben zeigt nun eine andere Zeichnung oder Gruppirung
-der Streifen und Felder, und manche von diesen oder jenen, oft von beyden, so auch die mit der bröcklig-körnigen Substanz
-mehr oder weniger ausgefüllten Risse und Klüfte, setzen sich über die gemeinschaftliche Kante auf die nächst anstoßende Fläche
-mehr oder weniger weit fort, je nachdem sie gerade an diesen Stellen tiefer oder seichter in die Masse eingedrungen waren.
-X
+Flecke und Puncte von der bröcklig-körnigen Substanz in den Streifen zeigen sich, sowohl im Abdrucke als auf der geätzten Fläche, im Ganzen nur sehr wenige, und eben so finden sich auch wenigere eigentliche Risse, dagegen mehr fleckartige, sehr unregelmäßig und unordentlich zerstreute, zum Theil ziemlich große, mehr oder minder mit solcher Substanz --- die aber hier eine mehr zinkweiße und etwas, theils ins Messinggelbe, theils ins Röthliche fallende Farbe hat --- ausgefüllte Klüfte.
 
+Von der besondern, in rundlichen Massen gleichsam eingekeilten metallischen Substanz, findet sich hier keine deutliche Anzeige.
 
-### 0097
+Auf derselben Tafel findet sich eine auf ähnliche Art versuchte Darstellung einer eben so geätzten Platte von der Eisenmasse von Lénarto, welche in Vergleichung mit beiden vorigen folgende Abweichungen im Einzelnen des Gefüges zeigt.*
 
-Eben so, wie diese Lamellen, zeigen sich auch die Schraffirungsleisten, in den Streifen sowohl als auf den Figu-
-ren -- wie sie denn auch in der That und in jeder Beziehung ähnliche Einfassungsleisten, obgleich im mikroscopisch Klei-
-nen, vorstellen -- nur etwas weniges minder erhaben - zumahl die auf den Figuren als die feinsten -- indem sie,
-vermöge ihrer Zartheit, doch etwas mehr von der Säure angegriffen worden zu sein scheinen.
-Auf der Oberfläche der noch rückständigen Streifen-Substanz, oder wo diese ganz ausgeätzt ist, auf dem Boden
-der Streifen-Canäle, finden sich hie und da Körner oder kleine Massen von jener, bereits früher bemerkten, bröcklig-
-körnigen Substanz, fest aufsitzend oder gleichsam eingewachsen, und zwar theils eben so erhaben wie die Leisten, theils
-tiefer, theils ganz tief, je nachdem sie ursprünglich seichter oder tiefer in der Streifen-Substanz eingeschlossen waren,
-und je nachdem diese mehr oder weniger ausgeätzt wurde (1).
-Die Zwischenfelder oder Figuren erscheinen auch nach dieser starken Aetzung nur wenig minder erhaben als die Lei-
-sten, haben aber, abgesehen von der Schrafsirung, einiger Maßen ihr Ansehen verändert, und ihre Oberfläche zeigt
-sich nun eisenschwarz, rauh wie bestaubt, und zum Theil äußerst zart und verworren, unvollkommen faserig (beynahe
-wie feine ausgebrannte Steinkohlen, cox) und matt, mit einem licht eisengrauen Schimmer.
-Die Beschaffenheit des solcher Gestalt durch Aetzung zum Vorschein gebrachten Gefüges dieser Massen, die ver-
-schiedene Art der Absonderung, Lagerung und Gestaltung, und das verschiedenartige äußere Ansehen der dasselbe con-
-stru irenden Theile, lassen demnach eine vier- und zum Theil fünffache Verschiedenheit der Substanzen erkennen und un-
-terscheiden; nähmlich: jene der am meisten von der Säure angegrifsenen Streifen, die der etwas minder angegriffenen
-Zwischenfelder, und die der am wenigsten angegriffenen Einfassungs- und Schraffirungsleisten; ferner jene der mecha-
-nisch eingemengten, bröcklig-körnigen, ebenfalls nur sehr wenig angegriffenen, und endlich die -- der letztern am näch-
-sten verwandt scheinenden -- der auf ähnliche Art und gleichsam eingekeilt vorkommenden, auch nur wenig angegriffe-
-nen, rundlichen Massen. Und diese Verschiedenheit spricht sich auch noch durch andere physische Merkmahle, insbeson-
-dere durch die Härte aus (2). Die Substanz der Streifen zeigt sich nähmlich (mit einer Stahlnadel geritzt, selbst nur
-stark gedrückt) am weichsten ( beynahe so weich wie Bley) und am geschmeidigsten, und gibt einen noch lichtern und
-etwas glänzenderen Strich; jene der glatten (nicht schrafsirten) Felder zeigt sich, obgleich nur wenig, doch hinlänglich
-merklich härter, und gibt einen ähnlichen, zinkgrauen, mehr oder weniger ins Silberweiße fallenden, doch aber minder
-lichten und minder glänzenden Strich, der ein dunkelgraues Pulver abscheidet, welches wie ein Anflug die Oberfläche
-bedeckte; die Substanz der Einfassungsleisten endlich ist beträchtlich härter, wenigstens bedeutend zäher, nimmt aber
-doch den Eindruck an, der Farbe und Glanz unverändert zeigt, und eben so verhält sich die der Schraffirungsleisten, in
-so ferne deren Zartheit den Versuch nicht begünstiget, was inzwischen, zumahl auf der Oberfläche der Felder, wo sie
-oft als mikroscopisch feine Fäden erscheinen, so weit geht, daß sich eine ganze Partie derselben mit einem Striche oder
-Drucke zerstören läßt. Die bröcklig-körnige Substanz dagegen verhält sich beträchtlich hart und vollkommen spröde, ist
-etwas schwer zersprengbar, läßt sich aber doch zum feinsten Pulver zerstoßen und zerreiben, das dann schwärzlichgrau
-erscheint, und durchaus, ohne Ausnahme eines Stäubchens beynahe, dem Magnete folgt; die schwärzlichgrauen rund-
-lichen Massen aber zeigen sich nicht nur derb und dicht, sondern noch härter (doch nicht Funken gebend) und schwerer
-zersprengbar, und zwar auch spröde, aber mit einiger Zähigkeit, so daß sich die Substanz größten Theils schwer zersto-
-ßen und noch schwerer zerreiben läßt. Geritzt gibt ihre Oberfläche einen ziemlich scharfen, stahlgrauen, etwas ins Röth-
-liche fallenden, schwach metallisch glänzenden Strich (3), der ein schwarzes Pulver abscheidet. Das durch Zersioßen
-(1) Nach Beendigung eines solchen fortgesetzten Aetzungsversuches finden sich demnach auch auf dem Boden des Gefäßes viele ein-
-zelne Körner und Massen von dieser Substanz, die frey wurden, als jene der Streifen, in welche sie eingemengt gewesen, von
-der Säure aufgelöst worden war, und die -so wie oben von den unzusammenhangenden Einfassungsleisten bemerkt wurde
-unverändert in der Auflösung zu Boden fielen, da sie wie diese, von der Säure (umaht von Salpetersäure im duluirten Zu-
-stande und bey langsamen Gange des Prozesses) wenig oder gar nicht angegriffen werden.
-(2) Diesem verschiedenen Grade von Härte und Geschmeidigkeit der verschiedenen, das Gefüge constituirenden Theile und Substan-
-zen, it wAht das oben erwhnte oberfachiche Erscheinen desselsen nach Schn n er Politur einer Fiäche zuzuschreiben,
-so wie der umstand des Wiederverschwindens bey der feinen Politur dadurch erklärlich wird, daß jene Verschiedenheit der Wir-
-kung des zur letzteren gebrauchten schärferen und feineren Polierpulvers nicht im Wege steht.
-(3) Von diesem, zumahl in größeren Massen so merklich werdenden, verschiedenen Grade von Härte und Geschmeidigkeit der ein-
+*)Auch diese Beschreibung ist nicht bloß nach der vorgestellten Platte, sonder nach noch zwei, in verschiedenem Grade geätzten Flächen, von 12 Quadrat-Zoll Ausdehnung, an großen Stücken von dieser Masse abgefaßt.
 
+Die Streifen erscheinen hier ebenfalls nur nach drei Richtungen, die sich aber unter ganz andern Winkeln, nähmlich meistens und mit kaum merklichen Abweichungen von beiläufig 77, 77 und 26° kreuzen, und daher gleichschenkliche, aber lang gezogene und scharf zugespitzte Dreiecke, und diesen entsprechende rhomboidale und trapezoidale Segmente zu Zwischenfeldern haben. Die Zeichnung ist demnach ebenfalls einfacher und gleichförmiger, und selbst noch mehr als an der Agramer Masse, da die Anzahl der Streifen im Ganzen noch bedeutend geringer ist und diese noch weit seltener durch Risse und Klüfte unterbrochen werden.
 
-### 0098
+Die Streifen selbst, da sie im Ganzen ungleich weniger zahlreich sind, durchschneiden sich weit seltener, sind demnach ur so länger, so daß die meisten von 6 bis 7, viele selbst von 12 bis 15 Linien Länge erscheinen; inzwischen finden sich doch auch viele 3/4, 2 bis 4 Linien lang. Sie haben dabei eine ungleich stärkere Breite als an den beiden vorigen Massen, die meisten zwischen (7 und 9)/12 bis zu 1 3/12 Linie, daher das Gefüge im Ganzen noch ein ungleich gröberes Ansehen hat, als das der Agramer Masse. Sie sind übrigens etwas gleichförmiger vertheilt, oder, wenigstens den verschiedenen Richtungen nach, weniger partienweise zusammen gehäuft, dagegen bei weitem weniger scharf begränzt, und selten geradlinig, sondern meistens bauchig und geschweift und oft wie ausgeflossen; so daß viele der kürzeren, bei ihrer Breite, oft als Flecke erscheinen und dadurch die Regelmäßigkeit des Gefüges stören.
 
-83
-und Zerreiben erhaltene Pulver ist nicht ganz gleichförmig, ballt sich zusammen und klebt etwas; einzelne Stückchen
-widerstehen dem Stößel mehr, und zeigen sich minder retractorisch als die übrigen Atome, die fast durchgehends ziemlich
-stark, aber doch weniger als jene der bröcklig-körnigen Substanz, auf die Nadel wirken.
-Und diese Verschiedenheit, im Aeußern sowohl als in den physischen Eigenschaften --- in so serne letztere ohne me-
-chanische Absonderung und partielle Untersuchung aller dieser Substanzen für sich, was nicht wohl möglich ist, ausge-
-mittelt werden konnten -- vollends aber der so auffallend sich aussprechende verschiedene Grad von Einwirkung des Aetz-
-mittels auf dieselben --- der denn doch von einem verschiedenen Grade von Verwandtschaft derselben zur Säure oder dem
-Oxygen abhängt (1), scheinen wohl auf eine wesentliche, und zwar auf eine chemische Verschiedenheit hinzudeuten (2).
-zelnen, zum Theil so ungleich vertheilten und hie und da partienweise so ungleichförmig angehäuften Gemengtheile, insbe-
-sondere aber von der so hannig und unregenasig durch die ganze ieeau- Mage ersreuten brociigörrngen nd ee ihe nacee
-verwandten Substanz, rührt denn auch die Schwierigkeit der technischen Bearbeitung des Meteor-Eisens im Großen und Gan-
-zen, die von mehreren Physikern bereits bemerkte ungleichförmigkeit in der Schmiede-und Schweißbarkeit desselben (welch.
-Vauquelin verleitete einen geringen Grad von Oxydation dieses Eisens im Allgemeinen anzunehmen), und vorzüglich der
-umstand her, das sih solche aaen aßerst schoer ni der Sage behandeln lassen, so daß man bey muhsam fortgeserter Ar-
-beit vieler Tage Zeie bedarf um auch nur ein Handgroßes Staek "ouends abzusägen, und dabey viele Sägen (aus Uhrfeder-
-blättern) zu Schanden arbeitet, indem man häusig af Steuen stsßt die einen großen Widerstand zeigen, die Sagen stumpf
-machen und die Zähne ausbrechen, indeß andere sich veynahe wie Bley schneiden.
+Auf der geätzten Fläche haben diese Streifen ein beinahe durchaus ganz glattes, gar nicht narbiges oder faltiges, sondern nur bisweilen ein etwas streifiges Ansehen, eine zinkgrauliche, mehr ins Blauliche als Weiße ziehende Farbe, und einen etwas stärkern, und zwar schimmernd seiden-fast atlaßartigen, metallischen Glanz. Nur wenige erscheinen gestreift, und diese nur zum Theil und durch einzelne, weit abstehende und abgebrochene Schraffirungsleisten; dagegen finden sich in denselben einzelne Körner und Massen jener bröcklig-körnigen Substanz, von allen Größen und Gestalten, als erhabene Puncte, Flecke, Winkelzüge, Linien, eingewachsen und fest eingeschlossen äußerst häufig, und von licht stahlgrauer, ins Silberweiße fallender Farbe, mit starkem, bei schiefer Nichtung, metallisch spiegelndem Glanze. Die Einfassungsleisten haben hier eine etwas matte, stahlgraue Farbe.
+
+Die Zwischenfelder oder Figuren, welche hier ungeachtet der geringern Anzahl der Streifen, wegen gleichförmigerer Vertheilung derselben, verhältnißmäßig häufiger und aus denselben Gründen bei weitem größer, eben deßhalb aber auch seltener als Dreiecke, mit oben angegebenen Winkelmaßen, sondern meistens in rhomboidalen oder trapezoidalen, oft sehr kleinen, Segmenten derselben erscheinen --- sind beinahe durchgehends, und zwar äußerst zart und dicht, gewöhnlich nach zwei auch drei, den Seiten parallelen Richtungen, und mit all den, oben bei der Elbogner Masse bereits erwähnten, Modificationen, theilweise, zumahl an den Rändern, oder durchaus schraffirt, oder doch durch eben so zarte mikroscopische Puncte rauh. Da jene Schraffirungsleisten und diese Puncte erhaben sind, so erscheinen auch alle diese Felder --- und daher weit mebrere als an beiden vorigen Massen --- nicht bloß im Umrisse (durch die Einfassungsleisten), sondern mehr oder weniger, ihrer ganzen Oberfläche nach, im Abdrucke ausgedruckt, und da jene Leisten und Puncte eine glänzende, ins Silberweiße fallende Farbe haben, so geben sie ihrer Menge, Zartheit und Dichtheit wegen, der Oberfläche dieser Felder, die an sich matt und dunkel eisengrau wäre, ein ähnliches Ansehen und einen seidenartigen Schimmer, wodurch selbst die ganze Fläche ein lichteres und glänzenderes Aussehen bekommt. Nur einzelne wenige und meist sehr kleine Felder zeigen sich, auch unter dem Mikroscope, ganz glatt, und dann etwas vertieft, wenigstens im Mittel, und von matter, dunkler, selbst schwärzlich-grauer, oft ganz schwarzer Farbe. Größere Klüfte oder Risse, welche mehr oder weniger mit jener bröcklig-körnigen Substanz ausgefüllt wären, finden sich hier beinahe gar nicht; dagegen --- obgleich nicht so häufig wie im Elbogner Eisen, dafür aber in größeren Partien (von 4 bis 5 Linien im Durchmesser) --- jene dichte, harte, schwärzlich-eisengraue metallische Substanz in rundlichten oder ovalen (hier bisweilen länglichten und linienförmigen) Massen fest eingeknetet, und gleichsam eingekeilt. Merkwürdig ist, daß diese für sich scharf begränzten Massen (hier wenigstens besonders deutlich) fast durchaus und rings um ihren Rand von einem schmalen, aber ungleich breiten Saume von jener körnig-bröckligen Substanz, von gewöhnlicher Beschaffenheit, Farbe und Glanz, umgeben, eingefaßt und durch denselben von der übrigen Metall-Masse fast vollkommen geschieden sind.*
+
+*) An dem großen, bei 37 Pfund wiegenden Stücke, welches Herr Baron von Brudern von diesem Meteor-Eisen besitzt, scheint eine Masse der Art, gleichsam wie ein an Dicke etwas abnehmender, langer, rundlichter Zapfen, durch die ganze Höhe des Stückes durchzugehen, wenigstens zeigt sich dieselbe auf der einen Abschnittsfläche als ein unvollkommen rundlichter Fleck, von 4 Linien in Durchmesser und vollkommen senkrecht unter demselben auf der entgegen gesetzten Abschnittsfläche, auf mehr als 6 Zoll Tiefe, zeigt sich ein ähnlicher (und hier einziger), etwas ovaler (von 2 1/4 : 3 3/4 Linien in beiden Durchmessern), der jenem vollkonmnen entspricht, und denselben aufs Haar centrirt. Es wäre denn doch ein ganz besonderer Zufall, wenn sich zwei bloß oberflächliche Flecke oder nicht tief eindringende Massen von derselben Substanz, Beschaffenheit und Form, auf zwei entgegen gesetzten und doch so weit von einander abstehenden Flächen von beträchtlicher Ausdehnung, und wo sie, wenigstens hinsichtlich ihrer Größe, einzeln stehen, so haarscharf begegnen sollten, ohne mit einander in wirklicher Verbindung zu stehen. De Gegenfläche von jener erstern Abschnittsfläche befindet sich an dem, 5 3/4 Pfund wiegenden Stücke der kaiserl. Sammlung, das von jenem abgeschnitten worden war, und hier fand sich auch die Fortsetzung jenes präsumirten Zapfens als ein ganz ähnlicher Fleck. In der Hoffnung, daß die Masse auch hier noch wenigstens auf einige Tiefe gehen würde, ließ ich eine 3 Linien dicke Platte, der Fläche horizontal und dicht an einem Rande dieses Fleckes abschneiden, in der Absicht, diese Masse dann aus der Platte heraus brechen und für sich chemisch untersuchen zu machen. Leider ward ich aber in meiner Hoffnung getäuscht, denn die Masse fand sich kaum auf 1/4 Linie tief eingedrungen. Da die andere Aschnittsfläche jenes Stückes von dem in Nation-Museum zu Pesth aufbewahrten, bei 134 Pfund wiegenden Hauptstücke genommen ist, so muß sich dort auf der diesem Abschnitte entsprechenden Fläche die weitere Fortsetzung oder das andere Ende jenes Zapfens finden.
+
+Dieselbe Tafel gibt ferner eine ähnliche Darstellung einer eben so geätzten Fläche an dem Stücke vom mexikanischen Gediegeneisen, welches die kaiserl. Sammlung der Mittheilung Klaproths verdankt.
+
+Es zeigt dieselbe ziemlich wesentliche Abweichungen im Einzelnen des Gefüges von den vorhergehenden, und es scheint beinahe als wäre dieses durch irgend eine mechanische Gewalt, etwa beim Lostrennen dieses Stückes von der Stamm-Masse, oder einem größern Stücke, durch, vielleicht nach einer Richtung fortgesetztes, Meißeln, Hämmern oder Schlagen in etwas verändert worden. Die Streifen erscheinen nähmlich beinahe ausschließlich nur nach zwei, und zwar oft ziemlich rechtwinkelig sich durchschneidenden, Richtungen und in diesen selbst nicht immer vollkommen parallel und sogar gekrümmt und gebogen; so daß die Zwischenfelder zum Theil sehr ungleichartige und selbst verzogene, vierseitige Figuren, Parallelepipeden, Rhomben, Rhomboiden, Trapezen, aber nie Dreiecke bilden.
+
+Die Streifen sind übrigens eben so zart und scharf begränzt, wie bei der Elbogner und Agramer Masse, und da sie ziemlich zahlreich und dabei gleichförmiger als bei jenen vertheilt und nicht so partienweise nach einer Richtung zusammen gehäuft sind; so durchschneiden sie sich um so häufiger, erscheinen demnach im Ganzen kürzer, und bilden im Verhältniß häufige, aber kleine Zwischenfelder. Das Gefüge erhält dadurch ein viel feineres und zarteres Ansehen, so wie es auch, da eine Richtung von Streifen beinahe ganz fehlt (denn es zeigen sich nur einzelne wenige, und diese nur undeutlich in einer dritten schiefen Richtung), viel einfacher und gleichförmiger erscheint.
+
+Auf der geätzten Fläche zeigen diese Streifen eine sehr unebene, narbige Oberfläche, äußerst selten eine Spur von Schraffirung, und eine ganz matte, schwärzlich eisengraue, nur hie und da etwas ins Zinkweiße fallende Farbe, so daß sie von den nur etwas weniger vertieften Zwischenfeldern kaum zu unterscheiden sind, die ein ganz ähnliches Ansehen, aber, in so ferne sie nicht schraffirt sind --- was jedoch ebenfalls nicht häufig und meistens nur zum Theil und nach einer Nichtung der Fall ist --- eine glatte Oberfläche haben.
+
+Nur die erhabenen Einfassungsleisten, die Schraffirungsleisten aber nur zum Theil, zeigen, und selbst dieses nur bei einer schiefen Wendung, eine licht stahlgraue Farbe und einen starken metallischen Glanz.
+
+Außer einigen Körnern und kleinen Massen in den Streifen, findet sich von der bröcklig-körnigen Substanz in einzelnen kleinen Rissen und Klüften die Spur, am meisten aber in einer großen rißartigen, ganz damit angefüllten Kluft, die das Stück der Quere nach in einer etwas gebogenen Richtung, aber hier von keiner beträchtlichen Tiefe mehr, beinahe ganz durchzieht.*
+
+*) Ein diesem am meisten ähnliches Gefüge zeigen die größern, zu einer Aetzung geeigneten Massen oder Körner von Gediegeneisen, welche sich bisweilen als Gemengtheile in der Steinmasse von Meteor-Steinen isolirt eingeschlossen finden, aber dieses nur fleck- oder stellenweise. Es zeigen sich nähmlich unter der Loupe auf der gleichförmigen, glatten, matt eisengrauen Oberfläche Stellen welche gestreift erscheinen, und zwar durch erhabene, mikroscopisch zarte, lichtere und etwas glänzende Linien, die größten Theils nach zwei sich durchkreuzenden Richtungen parallel laufen und ein enges Netz mit rhomboidalen und trapezoidalen, vertieften und etwas dunkler gefärbten, matten Zwischenfeldern bilden, wie dieß z. B. jenes große Korn in dem auf der siebenten Tafel von der abgeschliffenen Fläche vorgestellten Meteor-Steine von Sales sehr deutlich zeigt, aber der mikroscopisch zarten Beschaffenheit wegen nicht dargestellt werden konnte. (Bemerkenswerth ist, daß in diesem abgeschliffenen und geätzten Korne derben, gediegenen Metalles --- nebst Atomen von der bröcklig-körnigen Substanz von ins Röthliche ziehender Farbe --- zwei kleine unförmlich eckige Körner von unveränderter und von der Säure unangegriffener Steinmasse eingekeilt erscheinen.) An jenen kleinen Massen Gediegeneisen, welche in Gestalt wahrer Zacken in der Steinmasse der Meteor-Steine vorkommen, habe ich bisher durch Aetzung keine Spur eines Gefüges oder irgend einer Heterogeneität des Metalles ehalten können, und die Oberfläche derselben zeigte sich stets gleichförmig an Farbe und Glanz, jene war aber lichter und dieser stärker als an jenen größern, derbern Massen.  
+Es dürfte wohl voreilig scheinen entscheiden zu wollen, welcher von jenen vier Metall-Massen, dem Gefüge nach --- dessen Darstellung und Beschreibung vergleichend gegen einander zu stellen hier versucht worden ist --- in Hinsicht auf Vollkommenheit oder Vollendung in der Ausbildung, der Vorzug gebühre; inzwischen will ich mir doch erlauben eine Vermuthung zu äußern. Das Gefüge der Elbogner Masse zeigt von allen unstreitig den höchsten Grad von Ausscheidung und regelmäßiger Absonderung der einzelnen, mehr oder weniger verschiedenartig erscheinenden Theile desselben, nähmlich: die häufigsten, zartesten, gleichförmigsten und am schärfsten begränzten Streifen; die meiste, und zwar der vorauszusetzenden Grund-Krystallisation --- dem regelmäßigen Octäeder --- am vollkommensten entsprechende Regelmäßigkeit und Gleichförmigkeit der Zwischenfelder und in deren Schraffirung; die vollkommenste, häufigste und zum Theil selbst etwas regelmäßige Ausscheidung der bröcklig-körnigen, und die nicht minder häufige der ähnlichen, härtern Substanz, so wie die Ausgesprochenheit aller dieser Theile und der Substanzen aus welchen sie gebildet sind, in äußern Ansehen sowohl als in den physischen Eigenschaften, auf deren Eigenthümlichkeit und Reinheit hinzudeuten scheint. Das Gefüge aller übrigen zeigt dagegen, und zwar in derselben Reihenfolge in welcher sie dargestellt und beschreiben worden sind, ungleich mehr Einfachheit; aber eben diese Einfachheit hat offenbar ihren Grund in einer minder häufigen und weniger scharfen Absonderung der homogenen Theile, und in einer mangelhaften Ausscheidung der heterogenen Substanzen und Stoffe --- die doch in der Total-Masse vorhanden zu sein scheinen --- welches einerseits in der geringeren Menge, minder scharfen Begränzung und weniger regelmäßigen --- wenigstens der vorauszusetzenden Grundform im Allgemeinen minder entsprechenden Absonderung jener, und in der Mangelhaftigkeit oder doch geringern Menge dieser, und in der weniger ausgesprochenen Eigenthümlichkeit und Heterogeneität der vorhandenen, hinlängliche Bekräftigung sinden dürfte. In so ferne dennach die Vollkommenheit oder ein höherer Grad von Ausbildung dieser Massen überhaupt, in der häufigern und vollkommneren Ausscheidung der heterogenen Bestandtheile, und in der schärfern Absonderung und regelmäßigeren Lagerung der aus ihnen einzeln bestehenden, oder aus der nenen Verbindung einiger derselben gebildeten Substanzen zu suchen ist; in so ferne möchte wohl die Elbogner Masse unter den hier abgehandelten den ersten Anspruch darauf machen dürfen.  
+Lange nachdem diese Note schon niedergeschrieben war, und eben als dieser Bogen der Presse übergeben werden sollte, erhalte ich durch Herrn v. Widmannstätten die Resultate einiger physisch-technischer Versuche, welche derselbe auf meine Bitte mit dem uns so sehr problematisch scheinenden Cap'schen Gediegeneisen, so weit es der Drang der Zeit und der Umstände gestattete, zum Behufe dieser Ausarbeitung noch vorzunehmen die Güte hatte. Es zeigte sich nach denselben an dieser Masse weder im Schliffe, noch beim Anlaufen, noch durch Aetzung, auch nur die entfernteste Spur eines Gefüges.  
+Blank polierte Flächen zeigten denselben metallisch spiegelnden Glanz, dieselbe, das Meteor-Eisen auszeichnende, licht stahlgraue, stark in Siberweiße fallende Farbe, einen hohen Grad von Dichtheit und eine Gleichförmigkeit in dieser, die selbst nicht im Geringsten durch eine heterogene, eingesprengt oder in Rissen enthaltene Substanz unterbrochen erschien, und die sich auch im Schnitte bewhärte, bei welchem jene häufigen, harten, spröden, die Sage verwüstenden Stellen nicht beobachtet wurden.  
+Salpetersäure brachte auf solchen Flächen, und zwar ohne merkliche Entwickelung von Schwefelwasserstoffgas, nur einige größere und kleinere, meistens geflammte und allmählich sich verlaufende, selten etwas schärfer begränzte, eisen- oder mehr oder weniger schwarzgraue, matte Flecke zum Vorschein, welche auf eine Ungleichartigkeit der Substanz und auf eine unvollkommene Ausscheidung des einen Antheiles schließen ließen. Unter der Feile und Säge zeigte sich die Masse im Ganzen vollkommen und ziemlich gleichförmig geschmeidig, wie gewöhnliches, sehr dichtes und weiches Eisen, aber nicht so weich wie die Streifen-Substanz des Gefüges der beschriebenen Gediegeneisen-Massen. Jene bemerkte Ungleichartigkeit der Substanz sprach sich aber bei Untersuchung einzelner Stücke für sich, die, so viel als bei der unvollkommenen Absonderung jener möglich war, durch mechanische Trennung erhalten wurden, sehr auffallend aus. Möglichst reine Stücke des glänzenden, lichtern Antheiles zeigten einen sehr dichten, glänzenden, weißen Bruch und einen hohen Grad von Geschmeidigkeit, so daß sich ein etwa 45 Gran wiegendes Stückchen sehr gut zu einem beinahe 3 Zoll langen Stäbchen heiß strecken ließ; Stücke vom grauen Antheile dagegen zeigten einen feinkörnigen, matten, schwarzgrauen, sehr schnell bräunlich sich beschlagenden Bruch, und gaben im Feilen einen zwar metallischen, aber grauen Strich, und nur sehr wenige Spähne, sondern größten Theils ein schwarzes Pulver. Einzelne Stücken davon hielten in der Rothhitze nur einige schwache Hammerschläge aus, und ließen sich damit etwas weniges zusammen drücken, zerbröckelten aber beim dritten, vierten Schlage; andere zersprangen selbst beim ersten Schlage schon. Beide Antheile ließen sich durchaus nicht härten, ersterer schien sich aber --- so viel ein Versuch im Kleinen lehren konnte --- leicht schweißen zu lassen. Beide zeigten starke Wirkung auf den Magnet, aber schwache Polarität, nahmen diese aber durch Streichen bald mehr an, und der erstere erhielt dadurch eine beträchtliche magnetische Kraft.  
+Das specifische Gewicht der Masse im Ganzen fand Herr v. Widmannstätten = 7,318 (also beträchtlich unter jenem der übrigen von mir darauf untersuchten Gediegeneisen-Massen, bei welchen ich dasselse, wie ich schon in einer frühern Note bemerkte, zwischen 7,600 und 7,830 fand; nähmlich: von der Elbogner = 7,800-7,830; der Agramer = 7,730 bis 7,800; der Lenartoer = 7,720-7,800; der Mexikaner = 7,600-7,670; der Peruaner = 7,600-7,650; und selbst noch unter jenem des sibirischen = 7,540-7,570; aber höher als jenes der in Meteor-Steinen eingemengten Gediegeneisen-Körner = 6,000-6,600; dagegen dem angenommenen Mittelgewichte des Roheisens = 7,200-7,500 am nächsten kommend); jenes des weißen Antheiles für sich, nach dem verschiedenen Grade der Reinheit der Stücke, zwischen 7,633 bis 7,877 (also zum Theil weit über dem angenonmmenen Mittelgewichte des gewöhnlichen, weichen und geschmeidigen Eisens = 7,700); jenes des grauen dagegen zwischen 6,655 und 6,926 (demnach weit unter jenem des Roheisens), von welchen beiden nun das arithmetische Mittel eine der obigen ganz ähnliche Zahl gibt, und in welchen der Grund der Differenzen des Befundes Anderer zu suchen ist (so gab v. Dankelmann das specifische Gewicht dieser Masse mit 7,708; Van Marum mit 7,654 an, indeß ich es einst = 7,260 gefunden hatte).  
+Unter einem ward die uns nicht minder zweifelhafte Peruanische Eisen-Masse nochmahls geprüft, so weit es die Kleinheit des zu Gebothe stehenden Stückes erlaubte. Auch diese zeigte keine Spur von jenem eigentlichen Gefüge; unter der Loupe erschienen aber doch auf der stark geätzten, kleinnarbigen Oberfläche viele, äußerst zarte, mikroscopisch feine, erhabene Linien, die nach mehreren, offenbar vorherrschend aber nach drei, zumahl zwei, Richtungen meist gerade, nur selten etwas gebogen, und stets parallel verlaufend, sich durchkreuzen, und hie und da ein sehr enges Netz bilden, ganz ähnlich jenem auf der geätzten Oberfläche des großen Metall-Kornes in dem oben beschriebenen und auf der siebenten Tafel abgebildeten Meteor-Steine von Sales, und, stellenweise, jenem auf der geätzten Fläche des Mexikaner Eisens. Eine polierte Fläche zeigte eine besonders stark ins Weiße fallende, die geätzte aber eine beinahe zinnweiße Farbe. Unter der Feile gab sich die Masse merklich härter als die Cap'sche zu erkennen. Das specifische Gewicht fand Herr v. Widmannstätten = 7,646.  
+So sehr nun auch diese Resultate in vielen Beziehungen von jenen abweichen, welche sich bei ahnlicher Untersuchung der übrigen, oben beschriebenen, derben Gediegeneisen-Massen ergaben, und die Zweifel über den präsumtiven meteorischen Ursprung dieser beiden vermehren (so daß selbst Herr v. Widmannstätten mehr geneigt wäre, zumahl die Cap'sche, für das Product eines künstlichen Schmelz- und unvollkommenen, unvollendeten Verfrischungs-Prozesses anzusehen, welche Muthmaßung durch v. Dankelmanns Nachrichten von der geognostischen Beschaffenheit jener Gegend, wo diese Masse ursprünglich gefunden worden war, und wo Eisenerze aller Art und in großer Menge zu Tage stehen --- welche vielleicht einst von den Bewohnern zu Gute gemacht wurden --- auch von dieser Seite einige Wahrscheinlichkeit erhält); so finde ich doch darin keinen Bestimmungsgrund, meine sowohl in einer frühern Note über das Eigenthümliche und Charakteristische des Gefüges am Meteor-Eisen, als in dieser über den verschiedenen Grad von Vollkommenheit desselben und den, diesem wahrscheinlich zum Grunde liegenden Ursachen, ausgesprochenen Ideen und Muthmaßungen abzuändern, auch selbst dann nicht, wenn auch jene Zweifel (gegen welche die ausgezeichnete Farbe, die offenbare und ganz eigenthümliche Mengung, und das beträchtliche specifische Gewicht der Masse, im Ganzen sowohl als insbesondere des einen Antheiles, vorzüglich aber der erwiesene, selbst quantitativ entsprechende Gehalt an Nickel in Berücksichtigung kommen) für nicht hinlänglich begründet erachtet werden sollten; im Gegentheile dürfte ich darin vielmehr in jedem Falle einige Bekräftigung für dieselben zu finden glauben.
+
+Wird nun die Aetzung solcher Flächen noch längere Zeit (z. B. bis auf eine Tiefe von 1/4 Linie) fortgesetzt; so sprechen sich die erhabenen und vertieften Stellen gegenseitig noch immer mehr aus, und es verändert sich zum Theil das Ansehen des Gefüges oder der Zeichnung im Ganzen, indem zuletzt manche der tiefen --- nahmentlich die Streifen --- ganz verschwinden, und bisweilen andere --- gewöhnlich ein Theil eines Zwischenfeldes --- an ihre Stelle treten.
+
+Die Streifen erscheinen nun als seichtere und tiefere, mehr oder weniger leere Canäle oder Rinnen (Geleise), indem oft nur die erhabenen Begränzungslinien oder die Einfassungsleisten als ihre gemeinschaftlichen Scheidewände, als Contour, und ihr Boden, der mit diesen von einerley Beschaffenheit ist und mit denselben ein Ganzes, gleichsam eine Rinne bildet, welche die Substanz der Streifen selbst einschloß, noch übrig sind, letztere aber von manchen ganz ausgeätzt und von der Säure aufgelöst worden ist. Hat man demnach ein Plättchen von einer bestimmten Dicke (z. B. von 1/4 oder 1/2 Linie) einem solchen Versuche unterzogen, so erscheinen manche dieser Streifen --- in so ferne sie tiefer gingen als die Platte dick war, und ihre Substanz solcher Gestalt zufällig, und zwar noch über den Boden des Canals getroffen worden ist --- ganz ausgeätzt, ohne Boden, und die Einfassungsleisten stehen als die ehemaligen Scheidewände, wie Lamellen, frey da, und hängen nur mittelst ihrer Enden mit den übrigen minder angegriffenen Theilen (den angränzenden, quer gehenden, ähnlichen Leisten, oder mit solchen von Feldern) der Masse zusammen.* Manche, und zwar ungleich mehrere (zumahl wenn die Platte 1/2 Linie dick war, da nur äußerst wenige so tief gehen), die seichter lagen, erscheinen als leere Rinnen von verschiedener Tiefe, und auf der entgegen gesetzten Seite des Plättchens (die, falls dasselbe von beiden Seiten gleichzeitig geätzt wurde, eine ganz andere Zeichnung und Vertheilung der Streifen und Felder zeigt) finden sich unter ihnen Felder, oder zum Theil Streifen in einer andern Richtung, auf welchen sie mit ihrem Boden auflagen, der nun --- falls er nicht etwa wegen allzu seichter Lage der enthaltenen Substanz und der langen Dauer des Prozesses ebenfalls weggeätzt wurde -- mit den Einfassungsleisten auf denselben aufsitzt.*
+
+*) Wenn zufällig --- was jedoch selten der Fall ist --- aller Zusammenhang fehlt, so fallen solche Lamellen, einzeln oder mehrere unter sich oder mit einem Zwischenfelde verbunden, ab und finden sich als solche --- unverändert in der Auflösung --- am Boden des Gefäßes worin die Aetzung geschah.
+
+*) Es ergibt sich hieraus, daß sowohl die Streifen als Felder, so wie auch ihre gemeinschaftlichen Scheidewände --- die Einfassungs- und Schraffirungsleisten --- und überhaupt alle einzelnen, mehr oder weniger verschiedenartigen Theile des Gefüges die sich durch die Aetzung aussprechen, nur auf eine gewisse, und zwar nicht sehr beträchtliche (wie es scheint, selten über 1/2 Linie reichende), übrigens aber sehr unbestimmte und ungleichförmige Tiefe gehen und unordentlich über einander gehäuft, nur mit einiger Regelmäßigkeit in der Ausscheidung, Absonderung und Lagerung unter sich, die Total-Masse construiren. Am deutlichsten zeigt sich dieß an zwei Würfeln (von beiläufig 4 Linien Seite), die ich aus einem Stücke von der Elbogner Masse ausschneiden und woran ich an dem einen noch eine Ecke abstumpfen ließ, und dann beide ringsherum, auf allen Flächen und Kanten, gleichzeitig und gleichförmig ätzte. Jede Fläche auf denselben zeigt nun eine andere Zeichnung oder Gruppirung der Streifen und Felder, und manche von diesen oder jenen, oft von beiden, so auch die mit der bröcklig-körnigen Substanz mehr oder weniger ausgefüllten Risse und Klüfte, setzen sich über die gemeinschaftliche Kante auf die nächst anstoßende Fläche mehr oder weniger weit fort, je nachdem sie gerade an diesen Stellen tiefer oder seichter in die Masse eingedrungen waren.
+
+Die Einfassungsleisten, die nun mehr oder weniger frei da stehen, zeigen --- was zum Theil bei einer minder tiefen Aetzung schon beobachtet werden kann --- (übrigens aber auch vom Schnitte abhängen mag, je nachdem dieser die Richtung derselben traf) eine, gegen die Ebene der Fläche, etwas schiefe --- doch immer unter sich parallele --- Lage, und gleichen papierblattdünnen Lamellen von der Länge der vormahligen Streifen, einem gegenseitigen Abstande welcher der Breite dieser entspricht, und von sehr ungleicher Höhe oder Tiefe, je nachdem die enthaltene Substanz mehr oder weniger in die Tiefe ging und ausgeätzt worden ist. Kurz, sie bilden paarweise die Seitenwände eines schrägen, aber gleich weiten Canals, in welchem die Streifen-Substanz eingeschlossen war, und sind nach unten durch eine ähnliche Lamelle verbunden und geschlossen, welche solcher Gestalt den Boden des Canals vorstellt. Boden und Wände haben ein etwas unebenes, gebogenes und gleichsam faltiges, oder vielmehr breit und flach gefaltetes Ansehen, eine stahlgraue, stark ins Silberweiße fallende aber meistens eisengrau angelaufene Farbe, und einen schwachen metallischen Glanz, indeß der obere Rand der Wände (Einfassungsleisten) lichter und glänzender ist.
+
+Wo zwei oder mehrere Streifen einer Richtung dicht an einander liegen und durch solche Lamellen dem Anscheine nach nur einfach getrennt sind, scheinen diese doch alle Mahl, wenigstens hie und da im Verlaufe, doppelt oder doch dicker und gleichsam aus zwei zusammen geschmolzen zu sein, schließen, in eben diesem Grade mehr oder weniger deutlich, etwas von der den Feldern oder Figuren eigenthümlichen Substanz ein, und bilden kleine, oft nur linienförmige (doch immer Segmenten der vorkommenden Dreiecke entsprechende) ähnliche Zwischenfelder; so daß demnach Streifen und Felder und die verschiedenartige Substanz beider stets und regelmäßig abwechseln und jene Lamellen oder Einfassungsleisten gleichsam als Trennungsmittel dienen und die gemeinschaftliche Scheidewand bilden.
+
+Eben so, wie diese Lamellen, zeigen sich auch die Schraffirungsleisten, in den Streifen sowohl als auf den Figuren --- wie sie denn auch in der That und in jeder Beziehung ähnliche Einfassungsleisten, obgleich im mikroscopisch Kleinen, vorstellen --- nur etwas weniges minder erhaben --- zumahl die auf den Figuren als die feinsten --- indem sie, vermöge ihrer Zartheit, doch etwas mehr von der Säure angegriffen worden zu sein scheinen.
+
+Auf der Oberfläche der noch rückständigen Streifen-Substanz, oder wo diese ganz ausgeätzt ist, auf dem Boden der Streifen-Canäle, finden sich hie und da Körner oder kleine Massen von jener, bereits früher bemerkten, bröckligkörnigen Substanz, fest aufsitzend oder gleichsam eingewachsen, und zwar theils eben so erhaben wie die Leisten, theils tiefer, theils ganz tief, je nachdem sie ursprünglich seichter oder tiefer in der Streifen-Substanz eingeschlossen waren, und je nachdem diese mehr oder weniger ausgeätzt wurde.*
+
+*) Nach Beendigung eines solchen fortgesetzten Aetzungsversuches finden sich demnach auch auf dem Boden des Gefäßes viele einzelne Körner und Massen von dieser Substanz, die frei wurden, als jene der Streifen, in welche sie eingemengt gewesen, von der Säure aufgelöst worden war, und die --- so wie oben von den unzusammenhangenden Einfassungsleisten bemerkt wurde --- unverändert in der Auflösung zu Boden fielen, da sie wie diese, von der Säure (zumahl von Salpetersäure im diluirten Zustande und bei langsamen Gange des Prozesses) wenig oder gar nicht angegriffen werden.
+
+Die Zwischenfelder oder Figuren erscheinen auch nach dieser starken Aetzung nur wenig minder erhaben als die Leisten, haben aber, abgesehen von der Schrafsirung, einiger Maßen ihr Ansehen verändert, und ihre Oberfläche zeigt sich nun eisenschwarz, rauh wie bestaubt, und zum Theil äußerst zart und verworren, unvollkommen faserig (beinahe wie feine ausgebrannte Steinkohlen, _cox_) und matt, mit einem licht eisengrauen Schimmer.
+
+Die Beschaffenheit des solcher Gestalt durch Aetzung zum Vorschein gebrachten Gefüges dieser Massen, die verschiedene Art der Absonderung, Lagerung und Gestaltung, und das verschiedenartige äußere Ansehen der dasselbe construirenden Theile, lassen demnach eine vier- und zum Theil fünffache Verschiedenheit der Substanzen erkennen und unterscheiden; nähmlich: jene der am meisten von der Säure angegrifsenen Streifen, die der etwas minder angegriffenen Zwischenfelder, und die der am wenigsten angegriffenen Einfassungs- und Schraffirungsleisten; ferner jene der mechanisch eingemengten, bröcklig-körnigen, ebenfalls nur sehr wenig angegriffenen, und endlich die --- der letztern am nächsten verwandt scheinenden --- der auf ähnliche Art und gleichsam eingekeilt vorkommenden, auch nur wenig angegriffenen, rundlichen Massen. Und diese Verschiedenheit spricht sich auch noch durch andere physische Merkmahle, insbesondere durch die Härte aus.* Die Substanz der Streifen zeigt sich nähmlich (mit einer Stahlnadel geritzt, selbst nur stark gedrückt) am weichsten ( beinahe so weich wie Bley) und am geschmeidigsten, und gibt einen noch lichtern und etwas glänzenderen Strich; jene der glatten (nicht schrafsirten) Felder zeigt sich, obgleich nur wenig, doch hinlänglich merklich härter, und gibt einen ähnlichen, zinkgrauen, mehr oder weniger ins Silberweiße fallenden, doch aber minder lichten und minder glänzenden Strich, der ein dunkelgraues Pulver abscheidet, welches wie ein Anflug die Oberfläche bedeckte; die Substanz der Einfassungsleisten endlich ist beträchtlich härter, wenigstens bedeutend zäher, nimmt aber doch den Eindruck an, der Farbe und Glanz unverändert zeigt, und eben so verhält sich die der Schraffirungsleisten, in so ferne deren Zartheit den Versuch nicht begünstiget, was inzwischen, zumahl auf der Oberfläche der Felder, wo sie oft als mikroscopisch feine Fäden erscheinen, so weit geht, daß sich eine ganze Partie derselben mit einem Striche oder Drucke zerstören läßt. Die bröcklig-körnige Substanz dagegen verhält sich beträchtlich hart und vollkommen spröde, ist etwas schwer zersprengbar, läßt sich aber doch zum feinsten Pulver zerstoßen und zerreiben, das dann schwärzlichgrau erscheint, und durchaus, ohne Ausnahme eines Stäubchens beinahe, dem Magnete folgt; die schwärzlichgrauen rundlichen Massen aber zeigen sich nicht nur derb und dicht, sondern noch härter (doch nicht Funken gebend) und schwerer zersprengbar, und zwar auch spröde, aber mit einiger Zähigkeit, so daß sich die Substanz größten Theils schwer zerstoßen und noch schwerer zerreiben läßt. Geritzt gibt ihre Oberfläche einen ziemlich scharfen, stahlgrauen, etwas ins Röthliche fallenden, schwach metallisch glänzenden Strich,* der ein schwarzes Pulver abscheidet. Das durch Zerstoßen und Zerreiben erhaltene Pulver ist nicht ganz gleichförmig, ballt sich zusammen und klebt etwas; einzelne Stückchen widerstehen dem Stößel mehr, und zeigen sich minder retractorisch als die übrigen Atome, die fast durchgehends ziemlich stark, aber doch weniger als jene der bröcklig-körnigen Substanz, auf die Nadel wirken.
+
+*) Diesem verschiedenen Grade von Härte und Geschmeidigkeit der verschiedenen, das Gefüge constituirenden Theile und Substanzen, ist wohl das oben erwähnte oberflächliche Erscheinen desselsen nach Schliff und erster Politur einer Fläche zuzuschreiben, so wie der umstand des Wiederverschwindens bei der feinen Politur dadurch erklärlich wird, daß jene Verschiedenheit der Wirkung des zur letzteren gebrauchten schärferen und feineren Polierpulvers nicht im Wege steht.
+
+*) Von diesem, zumahl in größeren Massen so merklich werdenden, verschiedenen Grade von Härte und Geschmeidigkeit der einzelnen, zum Theil so ungleich vertheilten und hie und da partienweise so ungleichförmig angehäuften Gemengtheile, insbesondere aber von der so häufig und unregelmäßig durch die ganze Metall-Masse zerstreuten bröcklig-körnigen und der ihr nächst verwandten Substanz, rührt denn auch die Schwierigkeit der technischen Bearbeitung des Meteor-Eisens im Großen und Ganzen, die von mehreren Physikern bereits bemerkte Ungleichförmigkeit in der Schmiede- und Schweißbarkeit desselben (welche Vauquelin verleitete einen geringen Grad von Oxydation dieses Eisens im Allgemeinen anzunehmen), und vorzüglich der Umstand her, daß sich solche Massen äußerst schwer mit der Säge behandeln lassen, so daß man bei mühsam fortgesetzter Arbeit vieler Tage Zeie bedarf um auch nur ein Handgroßes Stück vollends abzusägen, und dabei viele Sägen (aus Uhrfederblättern) zu Schanden arbeitet, indem man häufig auf Stellen stößt die einen großen Widerstand zeigen, die Sägen stumpf machen und die Zähne ausbrechen, indeß andere sich beinahe wie Blei schneiden.
+
+Und diese Verschiedenheit, im Aeußern sowohl als in den physischen Eigenschaften --- in so serne letztere ohne mechanische Absonderung und partielle Untersuchung aller dieser Substanzen für sich, was nicht wohl möglich ist, ausgemittelt werden konnten --- vollends aber der so auffallend sich aussprechende verschiedene Grad von Einwirkung des Aetzmittels auf dieselben --- der denn doch von einem verschiedenen Grade von Verwandtschaft derselben zur Säure oder dem Oxygen abhängt,* scheinen wohl auf eine wesentliche, und zwar auf eine chemische Verschiedenheit hinzudeuten.*
+
 (1) Diesen verschiedenen Grad von Verwandtschaft zum Oxygen scheint wohl auch schon das oben erwähnte Resultat des Versuches
 mit dem Blau-Anlaufen polierter Flächen zu bestätigen. Und von demselben rührt ohne Zweifel jene von selbst entstandene,
 einer schwachen Aetzung aleichende Andeutung des Gefuges her, die sich durch vertiefte, den Streifen entsprechende Linien und
