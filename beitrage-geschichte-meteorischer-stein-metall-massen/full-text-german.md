@@ -1140,608 +1140,88 @@ Die Beschaffenheit des solcher Gestalt durch Aetzung zum Vorschein gebrachten Ge
 
 Und diese Verschiedenheit, im Aeußern sowohl als in den physischen Eigenschaften --- in so serne letztere ohne mechanische Absonderung und partielle Untersuchung aller dieser Substanzen für sich, was nicht wohl möglich ist, ausgemittelt werden konnten --- vollends aber der so auffallend sich aussprechende verschiedene Grad von Einwirkung des Aetzmittels auf dieselben --- der denn doch von einem verschiedenen Grade von Verwandtschaft derselben zur Säure oder dem Oxygen abhängt,* scheinen wohl auf eine wesentliche, und zwar auf eine chemische Verschiedenheit hinzudeuten.*
 
-(1) Diesen verschiedenen Grad von Verwandtschaft zum Oxygen scheint wohl auch schon das oben erwähnte Resultat des Versuches
-mit dem Blau-Anlaufen polierter Flächen zu bestätigen. Und von demselben rührt ohne Zweifel jene von selbst entstandene,
-einer schwachen Aetzung aleichende Andeutung des Gefuges her, die sich durch vertiefte, den Streifen entsprechende Linien und
-erhabene, in jeder Beziehung mit den Figuren übereinstimenoe 8ischenräume, zumahl an einer der von dem unvollkomme-
-nen rindenartigen Ueberzuge entblößten Fläche der Masse von Elbogen ausspricht, indem diese -- so viel aus der dunkelen,
-mit Volkssagen und Mährchen verwebten Geschichte über die Herstammuna derselben bekannt ist - durch mehrere Jahrhun-
-e .n nneen de- geit n den einsunse der atmnosphärischen euft und selst des Wasers als,esese wnae.
-( Manche phyysieer, welchen die Erscheinung des Gefüges bey dieser Behandlung bekannt wurde, un .n. nurhmaßung dar-
-über äußerten (nahmentlich Neumann, Schweigger u. a.), glaubten den verschiedenen Grad von Einwirkung der Säu-
-ren, wodurch dasselbe zum Vorschein gebracht wird, von dem bekannten Gehalte dieses Eisens an Nickel, und von einer un-
-gleichen Vertheilung desselben in jenem -- oder vielmehr von der ungleichen Vertheilung aber einer gewissen regelmäßigen
-Absonderung des damit legirten Antheiles von Gediegeneisen -- herleiten zu können, obgleich der von den Chemikern .
-nigstens anfänglich --- als so höchst unbedeutend angegebene Gehalt der verschiedenen Meteor-Eisen-Massen an jenem Me-
-talle (im Durchschnitt von 1 bis 3; Percent, nach Klaproth wenigstens) eine so auffallende Wirkung kaum erwarten
-ließ. Jene Vermuthung hätte daher durch die Resultate späterer Untersuchungen Stromeyer's, nach welchen jener Gehalt
-vetrachutich höher (nähmlich zwischen 10 und 11 Percent) gestellt wurde, einerseits sehr an Wahrscheinlichkeit gewonnen; al-
-ein mit diesem Befunde ergab sich auch, daß dieser Gehalt nicht nur unveränderlich und bey alen Meteor-Eisen-asen
-gleich groß, sondern daß derselbe auch stets durch die ganze Masse vollkommen gleichförmig vertheilt sey, und solcher Gestalt
-ließe sich, falls dieß im strengsten Sinne zu nehmen wäre, jene Erscheinung durchaus nicht von demselben herleiten --- wie denn
-auch der -- von Stromeyer selbst ausgewiesene ähnliche Gehalt an Nickel im Cap'schen Eisen (es mag dasselbe nun
-terrestrischen oder wirklich meteorischen Ursprungs sein), bey ähnlicher Behandlung der Masse, sich wirklich gar nicht ausspricht
--; man müßte denn zugeben was jenen Resultaten unbeschadet wohl auch der Fall sein kann -- daß bey jenen Massen
-doch eine, beziehungsweise wenigstens, ungleichförmige Vertheilung des Nickels Statt fände. Sollte nähmlich der Gehalt
-fire mlsi., "nsnen- in Then, ie rsciedene Ennkuns e S rn ite e is esos,s
-wirklich veranlassen; so müßte eine theilweise Verbindung desselben mit dem Eisen (folglich eine ungleichförmige Vertheilung
-gegen dieses), und eine - de Gefüge entsorechend regelmäßige Absonderung dieses Nickel-Eisens von dem ubrigen
-omit die Gleichförmigkeit der Bertheilung des Nickels gegen die Masse im Ganzen ziemlich wieder hergestellt würde) ange-
-nommen werden, und in dieser Boraussetzung könnte man von allen Theilen des regelmäßigen, eigentlichen Gefnges, die
-Einfassungs- und Schraffirungsleisten am passendsten dafür erkennen, als welche sich als die erhabensten, folglich als die von
-der Säure am wenigsten angegriffenen, durch eigenthümliche Härte und Zähigkeit, Farbe und Glanz (Eigenschaften, welche,
-apriori zu schließen, das Eisen durch eine solche Legirung höchst wahrscheinlich in einem solchen Grade erlangen dürfte) aus-
-gezeichneten Theile, und um so mehr dafür aussprechen, als auch ihre Masse zusammen genommen dem chemisch ausgewiese-
-nen marimo des Total-Gehaltes an Nickel, und ihre ziemlich gleichformige Bertheilung in der Gesammtmasse, der Forderung
-in dieser Beziehung, am meisten entspräche. Die am stärksten angegriffene Substanz der Streifen könnte dann, allen ihren Ei-
-genschaften gemäß, für reines Gediegeneisen gelten; es bliebe demnach nur noch die drute Substanz ubrig, die sich durch das
-Gefüge und durch ihre Eigenschaften als heterogen von jenen beyden ausspricht, nähmlich die der Zwischenfelder oder Figuren.
-tet de Laumont scheint geneigt, diese für gekohltes Eisen anzusehen; und wirklich hat diese Vermuthung vieles fün
-sich, zumahl da Kohlenstoff als Bestandtheil mehrerer Meteor-Steine, und selbst --- nach Tennant -- des Cap'schen Ei-
-sens (in welchem derselbe vielleicht, so wie der Nickel und die übrigen Bestandtheile, ganz gleichförmig in der Masse vertheilt,
-und nicht bloß mit einem bestimmten Antheile des Gediegeneisens chemisch verbunden und mit diesem ausgeschieden, sich befin-
-det), bereits dargethan ist.
-2
+*) Diesen verschiedenen Grad von Verwandtschaft zum Oxygen scheint wohl auch schon das oben erwähnte Resultat des Versuches mit dem Blau-Anlaufen polierter Flächen zu bestätigen. Und von demselben rührt ohne Zweifel jene von selbst entstandene, einer schwachen Aetzung gleichende Andeutung des Gefüges her, die sich durch vertiefte, den Streifen entsprechende Linien und erhabene, in jeder Beziehung mit den Figuren übereinstimmende Zwischenräume, zumahl an einer der von dem unvollkommenen rindenartigen Ueberzuge entblößten Fläche der Masse von Elbogen ausspricht, indem diese --- so viel aus der dunkelen, mit Volkssagen und Mährchen verwebten Geschichte über die Herstammung derselben bekannt ist --- durch mehrere Jahrhunderte den Injurien der Zeit und dem Einflusse der atmosphärischen Luft und selbst des Wassers ausgesetzt war.
 
+*) Manche Physiker, welchen die Erscheinung des Gefüges bei dieser Behandlung bekannt wurde, und die eine Muthmaßung darüber äußerten (nahmentlich Neumann, Schweigger u. a.), glaubten den verschiedenen Grad von Einwirkung der Säuren, wodurch dasselbe zum Vorschein gebracht wird, von dem bekannten Gehalte dieses Eisens an Nickel, und von einer ungleichen Vertheilung desselben in jenem --- oder vielmehr von der ungleichen Vertheilung aber einer gewissen regelmäßigen Absonderung des damit legirten Antheiles von Gediegeneisen --- herleiten zu können, obgleich der von den Chemikern --- wenigstens anfänglich --- als so höchst unbedeutend angegebene Gehalt der verschiedenen Meteor-Eisen-Massen an jenem Metalle (im Durchschnitt von 1 1/2 bis 3 1/2 Percent, nach Klaproth wenigstens) eine so auffallende Wirkung kaum erwarten ließ. Jene Vermuthung hätte daher durch die Resultate späterer Untersuchungen Stromeyers, nach welchen jener Gehalt beträchtlich höher (nähmlich zwischen 10 und 11 Percent) gestellt wurde, einerseits sehr an Wahrscheinlichkeit gewonnen; allein mit diesem Befunde ergab sich auch, daß dieser Gehalt nicht nur unveränderlich und bei allen Meteor-Eisen-Massen gleich groß, sondern daß derselbe auch stets durch die ganze Masse vollkommen gleichförmig vertheilt sei, und solcher Gestalt ließe sich, falls dieß im strengsten Sinne zu nehmen wäre, jene Erscheinung durchaus nicht von demselben herleiten --- wie denn auch der --- von Stromeyer selbst ausgewiesene ähnliche --- Gehalt an Nickel im Cap'schen Eisen (es mag dasselbe nun terrestrischen oder wirklich meteorischen Ursprungs sein), bei ähnlicher Behandlung der Masse, sich wirklich gar nicht ausspricht ---; man müßte denn zugeben --- was jenen Resultaten unbeschadet wohl auch der Fall sein kann --- daß bei jenen Massen doch eine, beziehungsweise wenigstens, ungleichförmige Vertheilung des Nickels Statt fände. Sollte nähmlich der Gehalt an diesem Metalle, wenigstens zum Theil, die verschiedene Einwirkung der Säuren und somit die Erscheinung des Gefüges wirklich veranlassen; so müßte eine theilweise Verbindung desselben mit dem Eisen (folglich eine ungleichförmige Vertheilung gegen dieses), und eine --- dem Gefüge entsprechend regelmäßige Absonderung dieses Nickel-Eisens von dem übrigen (womit die Gleichförmigkeit der Vertheilung des Nickels gegen die Masse im Ganzen ziemlich wieder hergestellt würde) angenommen werden, und in dieser Voraussetzung könnte man von allen Theilen des regelmäßigen, eigentlichen Gefüges, die Einfassungs- und Schraffirungsleisten am passendsten dafür erkennen, als welche sich als die erhabensten, folglich als die von der Säure am wenigsten angegriffenen, durch eigenthümliche Härte und Zähigkeit, Farbe und Glanz (Eigenschaften, welche, _a priori_ zu schließen, das Eisen durch eine solche Legirung höchst wahrscheinlich in einem solchen Grade erlangen dürfte) ausgezeichneten Theile, und um so mehr dafür aussprechen, als auch ihre Masse zusammen genommen dem chemisch ausgewiesenen _maximo_ des Total-Gehaltes an Nickel, und ihre ziemlich gleichförmige Vertheilung in der Gesammtmasse, der Forderung in dieser Beziehung, am meisten entspräche. Die am stärksten angegriffene Substanz der Streifen könnte dann, allen ihren Eigenschaften gemäß, für reines Gediegeneisen gelten; es bliebe demnach nur noch die dritte Substanz übrig, die sich durch das Gefüge und durch ihre Eigenschaften als heterogen von jenen beiden ausspricht, nähmlich die der Zwischenfelder oder Figuren. Gillet de Laumont scheint geneigt, diese für gekohltes Eisen anzusehen; und wirklich hat diese Vermuthung vieles für sich, zumahl da Kohlenstoff als Bestandtheil mehrerer Meteor-Steine, und selbst --- nach Tennant -- des Cap'schen Eisens (in welchem derselbe vielleicht, so wie der Nickel und die übrigen Bestandtheile, ganz gleichförmig in der Masse vertheilt, und nicht bloß mit einem bestimmten Antheile des Gediegeneisens chemisch verbunden und mit diesem ausgeschieden, sich befindet), bereits dargethan ist.  
+Das Gefüge wäre demnach die Folge einer mehr oder weniger vollkommenen Ausscheidung der früher gleichförmig im Ganzen vermischt und gebunden gewesenen Bestandtheile des Meteor-Eisens, des Nickels und Kohlenstoffes, einer neuen chemischen Verbindung derselben mit einem Theile des Gediegeneisens und einer mehr oder weniger vollkommen und regelmäßigen Absonderung und Gruppirung der solcher Gestalt verschiedenartigen, neu gebildeten Gemengtheile von dem reinen Eisen.  
+Was die beiden andern metallischen Substanzen betrifft, die keine integrirenden Theile jenes Gefüges ausmachen, und die ihre Heterogeneität schon durch die Art ihrer Einmengung in die übrige Masse, und durch ihr Aeußeres zu erkennen geben; so spricht sich die eine, bröcklig-körnige, durch alle oryktognostischen und physischen Merkmahle deutlich genug als Schwefeleisen, und zwar als Magnetkies aus, und es ist unbegreiflich, wie bei dessen großer Menge --- indem die Massen ganz damit durchsäet sind --- der eine Bestandtheil desselben, nähmlich der Schwefel, bei den bisherigen Analysen solcher Massen (bis neuerlichst der sibirischen durch Laugier) so ganz aller Wahrnehmung entgangen sein konnte.  
+Die andere, derbere, dichtere, in rundlichen Massen bisweilen eingemengt vorkommende Substanz hat wohl viele Aehnlichkeit mit jener, scheint aber doch wesentlich von ihr verschieden und vielleicht eine unvollkommene Ausscheidung oder ein Rückstand des ursprünglichen Total-Gemisches aller Besandtheile der metallischen Meteor-Masse, also gekohltes und geschwefeltes, und vielleicht auch noch mit Nickel verbundenes Gediegeneisen, und demnach, hier gleichsam als Gemengtheil, in demselben Zustande zu sein, in welchem die Masse des Cap'schen Eisens noch im Ganzen sich befindet.  
+Auch diese Note war bereits niedergeschrieben und zum Drucke bereitet --- der nicht länger mehr aufgeschoben werden konnte --- als ich durch Herrn Apotheker Moser die Resultate einer, wie mir däucht, sehr entscheidenden chemischen Untersuchung, welche derselbe auf mein Ansuchen und nach meinen Wünschen in dieser Zwischenzeit vorzunehmen die Güte hatte, mitgetheilt erhielt. Nach einer vorläufgen Analyse eines Stückes von der Elbogner Eisen-Masse im Ganzen, wobei sich --- nach Wollastons Verfahren vorgegangen --- in hundert Theilen ein Gehalt an Nickel von 7,29 ergab, wurden drei Plättchen, welche aus einem ähnlichen, aber größeren Stücke dieser Masse geschnitten worden waren --- jedes beiläufig von einem Zoll im Gevierte, und etwa 3/12 Linie dick, am Gewichte zusammen [...] Gran [...] --- so lange in Salptersäure gebeitzt, bis die am leichtesten auflösliche Substanz, nähmlich die der Streifen, ganz ausgeätzt und aufgelöset war. Es wurde nun das rückständige Gerippe oder Netz von Lamellen (den Einfassungsleisten) und den zum Theil ausgefüllten Zwischenräumen (der Substanz der Figuren oder Zwischenfelder) sowohl als die Flüssigkeit, welche das Ausgeätzte aufgelöst enthielt, beide einzeln für sich, nach gleichem Verfahren untersucht, und es ergab sich bei ersterem ein Gehalt an Nickel von 9,83, in letzterer nur von 4,18 in hundert Theilen. Das arithmetische Mittel von diesen beiden Zahlen gibt nun beinahe ganz genau obige Summe des Gehaltes der Masse im Ganzen. Es ist demnach wohl nicht zu zweifeln, daß wo nicht aller, doch der bei weitem größere Theil des Nickels in dem unauflöslicheren Theile der Masse, und zwar höchst wahrscheinlich in den Lamellen oder Einfassungsleisten enthalten sei; denn da bei diesem Versuche die Beitze über die Gebühr und so lange fortgesetzt wurde, bis selbst ein großer, ja der größte Theil der Figuren oder Zwischenfelder ganz durchgeätzt, und auch deren Substanz aufgelöst worden war, so konnte wohl nur wenig von jenem Nickelgehalte des Gerippes von dieser letztern herrühren, im Gegentheil ist es weit wahrscheinlicher, daß der in der Flüssigkeit aufgefundene Nickelgehalt von derselben, oder vielmehr von der Substanz der Einfassungs- zumahl der Schraffirungsleisten herzuleiten sei, deren gleichzeitige Auflösung, wenn gleich in einem geringern Grade, schlechterdings immer unvermeidlich ist, bei diesem Versuche aber, der langen Dauer des Prozesses wegen, bedeutend gewesen sein muß. Alle im Obigen geäußerten Vermuthungen, hinsichtlich des Nickels und seines Antheiles an der Bildung und Erscheinung des Gefüges, fänden sich somit bewährt, so wie wohl auch jene von der Substanz der Streifen, da sich außer Eisen und Nickel kein anderweitiger Stoff in der Auflösung ausmitteln ließ. Von Kohle oder Graphit wollte sich dagegen bei diesen Haupt- so wie bei mehreren, zum Theil absichtlich darauf vorgenommenen Nebenversuchen durchaus keine Spur finden, und da sich auch von keinem anderweitigen Stoffe, mit Ausnahme des Schwefels, weder von Silicium noch selbst von Chrom (auch nicht von Kobalt), worauf Bedacht genommen wurde, eine Anzeige ergab; so bleibt die Natur der Substanz, welche die Figuren oder Zwischenfelder des Gefüges bildet, zur Zeit noch zweifelhaft. Auf dem Boden des Gefäßes, in welchem die Beitze vorgenommen wurde, fanden sich --- nebst mehreren theils einzelnen, theils zu zwei und drei zusammenhangenden Lamellen, welche von den Aetzungsplättchen wegen Mangel an Verbindung abgefallen waren und die mit zur Untersuchung des Gerippes verwendet wurden --- mehrere unförmliche Stücke und Körner (wovon doch eines eine vollkommene Würfelform zeigte), zusammen von 4,40 Gran am Gewichte, von jener bröcklig-körnigen Substanz, die wir bereits für Schwefeleisen erkannten, als welches sie sich auch durch die Analyse bewährte, und zwar in einem Verhältnisse des Schwefels zum metallischen Eisen wie 0,30 : 4,10; ein Verhältniß das demnach weit unter jenem steht, welches für das terrestrische Schwefeleisen im _minimum_ als constant angenommen wird. Auch jene dichte, härtere Substanz, welche in Gestalt rundlicher Massen eingemengt vorkommt, und nahmentlich jene oben erwähnte aus dem Lenartoer Eisen, erwies sich als reines Schwefeleisen, in welchem jedoch offenbar das Verhältniß des Schwefels zum Eisen --- das wegen der allzu geringen Menge, die davon zu Gebothe stand, nicht genau ausgemittelt werden konnte --- ein ganz anderes ist. Es geht hieraus die Richtigkeit der schon früher gemachten Bemerkung hervor, daß das Schwefeleisen in den Meteor-Massen von ganz eigener und von sehr mannigfaltiger Art sei, und daß man bei dessen Beurtheilung nicht von dem für das terrestrische Schwefeleisen festgesetzten Princip ausgehen, und vollends bei Bestimmung des quantitativen Verhältnisses desselben nicht stöchiometrisch vorgehen dürfe.  
+Noch muß ich bei dieser Gelegenheit des Resultates eines Versuches erwähnen, welches einerseits die zu vermuthen gewesene Zerstörbarkeit dieses Schwefeleisens durch Hitze, andererseits die nicht minder _a priori_ wahrscheinlich gewesene, höchst schwere Schmelzbarkeit des Meteor-Eisens bestätiget, und somit meine hin und wieder geäußerten Zweifel gegen die herrschende Meinung, als wären die Meteor-Massen mehr oder weniger das Product eines Schmelz-Prozesses, und als kämen die Metall-Massen wohl gar im geschmolzenen Zustande selbst zu Erde, zu bekräftigen scheint. Es wurde nähmlich ein drei Quentchen schweres Stück gewöhnliches, weißes Roheisen, und gleichzeitig ein 1 Linie dickes, 40 Gran wiegendes Plättchen vom Elbogner Eisen, welches von einem, ganz mit solchem Schwefeleisen ausgefüllten Risse durchzogen war, zu schmelzen versucht. Jenes Stück Roheisen schmolz bei ungefähr 130° Wedgd. vollkommen; das Plättchen Meteor-Eisen dagegen blieb ganz unverändert, selbst an den scharfen Kanten und Ecken; aber das im Risse enthalten gewesene Schwefeleisen war ganz zerstört. Und diese Zerstörung nahm selbst schon bei sehr mäßiger Rothglühhitze ihren Anfang. Wie könnten sich demnach die feinen Atome von Schwefeleisen, mit welchen die lockere, poröse Steinmasse der Meteor-Steine, und vollends die Metall-Massen vom Mittelpuncte bis zur äußersten Oberfläche ganz durchsäet sind, so unverändert im metallischen und zum Theil selbst im krystallinischen Zustande erhalten haben, wenn erstere auch nur eine solche Hitze, welche zur Erzeugung der Rinde auf diesem Wege nöthig ist, und letztere eine solche --- durchdringende und anhaltende --- welche etwa nothwendig sein dürfte, ihre Masse --- oft von mehreren Centnern --- in Fluß zu bringen, ausgestanden hätten.
 
-### 0099
+Auf der achten Tafel befindet sich endlich noch eine getreue Darstellung der abgeschlifsenen Fläche an dem bereits erwähnten, in der Von der Null'schen Sammlung befindlichen, schönen Ladenstücke* von der sibirischen Eisen-Masse, um das Gefüge zu versinnlichen, welches eine ähnliche Aetzung auf der polierten Oberfläche der durchschnittenen Metall-Zacken zum Vorschein gebracht hat. Es zeigt dasselbe zwar einige Abweichung von jenem obiger derber Eisen-Massen, im Wesentlichen aber doch dasselbe; nähmlich: eine wo nicht so regelmäßige und vielfach vereinzelnte, doch eine ähnliche und eben so scharfe Absonderung von wenigstens zwei heterogen scheinenden metallischen Substanzen. Die Oberfläche eines jeden solchen geätzten Zackens zeigt nähmlich, gleichsam als Kern desselben, ein Feld von matter, eisengrauer Farbe, welches von einem zwar nicht immer gleich breiten, aber scharf abgeschnittenen, und selbst durch eine mikroscopisch feine Linie getrennten Saume von spiegelicht glänzender, stark ins Silberweiße fallender Farbe, eingefaßt ist, der, indem er die Kante der Fläche oder den Rand des Umrisses vom Zacken selbst bildet, jenes Feld ringsum begränzt. Die Form dieser Felder ist keineswegs gleichförmig und regelmäßig --- so wie jene der Zwischenfelder oder Figuren an den derben Eisen-Massen zu sein pflegt --- sondern vielmehr höchst verschieden und unbestimmt, indem sie ziemlich genau dem Umrisse des Zackens entspricht. Die Gränzlinie jener Felder folgt nähmlich allen Ecken, Krümmungen und Ausbuchten des Zackenrandes, nur mit der Abweichung, daß sie nicht immer gleich weit vom äußersten Rande sich entfernt, so z. B. in den Krümmungen einen verhältnißmäßig kleineren Bogen, in den Ecken meistens einen weit spitzeren und mehr gedehnten Winkel bildet; bisweilen macht aber doch der Umriß eines Feldes eine Krümmung oder Ecke, die jenem des Zackens nicht entspricht. Da nun der Saum den Rand des Zackens oder die Kante der Fläche desselben bildet und den Zwischenraum zwischen dieser und dem Felde ausfüllt; so folgt, daß derselbe ungleich breit sein müsse. Im Durchschnitte hat er eine Breite von 1/3 oder 1/4 Linie, oft jedoch kaum von 1/12 Linie; dagegen nicht selten, zumahl in den Krümmungen, von einer halben, und in den Ecken bisweilen selbst von einer ganzen Linie.
 
-84
-Auf der achten Tafel befindet sich endlich noch eine getreue Darstellung der abgeschlifsenen Fläch,e an dem bereits
-Das Gefüge wäre demnach die Folge einer mehr oder weniger vollkommenen Ausscheidung der früher gleichförmig im Gan-
-zen vermischt und gebunden gewesenen Bestandtheile des Meteor-Eisens, des Nickels und Kohlenstofses, einer neuen chemi-
-schen Verbindung derselben mit einem Theile des Gediegeneisens und einer mehr oder weniger vollkommen und regelmäßigen
-Absonderung und Gruppirung der solcher Gestalt verschiedenartigen, neu gebildeten Gemengtheile von dem reinen Eisen.
-Was die beyden andern metalischen Substanzen berrifft, die keine integrirenden Theile jenes Gefäges ausmachen, und
-die ihre Heterogeneität schon durch die Art ihrer Einmengung in die übrige Masse, und durch ihr Aeußeres zu erkennen geben;
-so spricht sich die eine, bröcklig-körnige, durch alle oryktognostischen und physischen Merkmahle deutlich genug als Schwefelei-
-sen, und zwar als Magnetkies aus, und es ist unbegreiflich, wie bey dessen großer Menge -- indem die Massen ganz damit
-durchsäet sind -- der eine Bestandtheil desselben, nähmlich der Schwefel, bey den bisherigen Analysen solcher Massen (bis
-neuerlichst der sibirischen durch Laugier) so ganz aller Wahrnehmung entgangen sein konnte.
-Die andere, derbere, dichtere, in rundlichen naenengt omnende Substanz hat wohl viele Aehn-
-whesl nlt..t ss'ie ässsksisi iesü ii s sn aenr en-
-stand des ursprünglichen Total-Gemisches aer Besandtheile der metallischen Meteor-Masse, also gekohltes und geschwefeltes,
-und vielleicht auch noch mit Nickel verbundenes Gediegeneisen, und demnach, hier gleichsam als Gemengtheil, in demselben
-Zustande z sein, in welchem die Mase des Capschen Eisens noch in Ganen sich besinder.
-Auch diese Note war bereits niedergeschrieben und zum Drucke bereitet - der nicht länger mehr aufgeschoben werden konnte --
-als ich durch Herrn Apotheker Moser die Resultate einer, wie mir däucht, sehr entscheidenden chemischen Untersuchung,
-weche derseie auf el- fecnhen inealnen anchen n diee- zniechenlei seezlseinlen d - atre, "igerheii
-erhielt. Nach einer vorläufgen Analyse eines Stückes von der Elbogner Eisen-Masse im Ganzen, wobey sich - nach Wol-
-iaao- Beshen oo,e,ln,e hinseni ß.ain en häe a miissn. ,- gat, den drei iäntchen,
-wiche a- lse is. Kcssis, ei s chnicils dsi einen
-in nere, e as, n- e, rtise ie. . .. .,.. - - in- Sasterseunre gebeist,
-bis die am ieichteaen aefis nh. dasaane, nähmlich die der Streifen, ganz ausgeäut und aufgelöset war. Es wurde nun
-das rückständige Gerippe oder Netz von Lamellen (den Einfassungsleisten) und den zum Theil ausgefüllten Zwischenräumen
-(der Substanz der Figuren oder Zwischenfelder) sowohl als die Flüssigkeit, welche das Ausgeätzte aufgelöst enthielt, beyde ein-
-zeln für sich, nach gleichem Verfahren untersucht, und es ergab sich bey ersterem ein Gehalt an Nickel von 9,83, in letzterer
-nur von 4,18 in hundert Theilen. Das arithmetische Mittel von diesen beyden Zahlen gibt nun beynahe ganz genau obige
-Summe des Gehaltes der Masse im Ganzen. Es ist demnach wohl nicht zu zweifeln, daß wo nicht aller, doch der bey weitem
-größere Theil des Nickels in dem unauflöslicheren Theile der Masse, und zwar höchst wahrscheinlich in den Lamellen oder Ein-
-fassungsleisten enthalten sey; denn da bey diesem Versuche die Beitze über die Gebühr und so lange fortgesetzt wurde, bis
-selbst ein großer, ia der größte Theil der Figuren oder Zwischenfelder ganz durchgeätzt, und auch deren Substanz aufgelöst
-elen we, so konnte wohl nur wenig von jenem Nickelgehalte des Gerippes von dieser letztern herrühren, im Gegenthei ii
-es weit wahrscheinlicher, daß der in der Flüssigkeit aufgefundene Nickelgehalt von derselben, oder vielmehr von der Substanz
-der Einfassungs- zumahl der Schraffirungsleisten herzuleiten sey, deren gleichzeitige Auflösung, wenn gleich in einem geringern
-Grade, schlechterdings immer unvermeidlich ist, bey diesem Versuche aber, der langen Dauer des Prozesses wegen, bedeutend
-gewesen sein muß. Ale in Obigen geäußerten Vermuthungen, hinsichtlich des Nickels und seines Antheiles an der Bildung
-und Erscheinung des Gefüges, fänden sich somit bewährt, so wie wohl auch jene von der Substanz der Streifen, da sich au-
-ßer Eisen und Nickel kein anderweitiger Stoff in der Auflösung ausmitteln ließ. Von Kohle oder Graphit woute sich dagegen
-bey diesen Haupt- so wie bey mehreren, zum Theil absichtlich darauf vorgenommenen Nebenversuchen durchaus keine Spur finden,
-und da sich auch von keinem anderweitigen Stoffe, mit Ausnahme des Schwefels, weder von Silicium noch selbst von Chrom
-(auch nicht von Kobalt), worauf Bedacht genommen wurde, eine Anzeige ergab; so bleibt die Natur der Substanz, welche die Fi-
-guren oder Zwischenfelder des Gefüges bildet, zur Zeit noch zweifelhaft. Auf dem Boden des Gefäßes, in welchem die Beitze vor-
-genommen wurde, fanden sich --- nebst mehreren theils einzelnen, theils zu zwei und drei zusammenhangenden Lamellen, wel-
-ce von den Aetzungsplättchen wegen Mangel an Verbindung abgefallen waren und die mit zur untersuchung des Gerippes ver-
-wendet wurden --- mehrere unförmliche Stücke und Körner (wovon doch eines eine vollkommene Würfelform zeigte), zusam-
-men von 4,40 Gran am Gewichte, von jener bröcklig-körnigen Substanz, die wir bereits für Schwefeleisen erkannten, als
-welches sie sich auch durch die Analyse bewährte, und zwar in einem Verhältnisse des Schwefels zum metallischen Eisen wie
-0,30: 4,10; ein Verhältniß das demnach weit unter jenem steht, welches für das terrestrische Schwefeleisen im minimum
-als constant angenommen wird. Auch jene dichte, härtere Substanz, welche in Gestalt rundlicher Massen eingemengt vor-
-kommt, und nahmentlich jene oben erwähnte aus dem Lenartoer Eisen, erwies sich als reines Schwefeleisen, in welchem je-
-doch offenbar das Verhältniß des Schwefels zum Eisen - das wegen der allzu geringen Menge, die davon zu Gebothe stand,
-nicht genau ausgemittelt werden konnte - ein ganz anderes ist. Es geht hieraus die Richtigkeit der schon früher gemachten
-Bemerkung hervor, daß das Schwefeleisen in den Meteor-Massen von ganz eigener und von sehr mannigfaltiger Art sey, und
-daß man bey dessen Beurtheilung nicht von dem für das terrestrische Schwefeleisen festgesetzten Princip ausgehen, und vollends
-bey Bestimmung des quantitativen Verhältnisses desselben nicht söchiometrisch vorgehen dürfe.
-Noch mus ich bey dieser Gelegenheit des Resultates eines ersuches erayse, eiches einerseits die zu vermuthen ge-
-"ene rsscssrici die- Sesiesens dnls er, lsii . nsäüt. eierr sMesishsinmits',ese ikle ssn
-schwere Schmelbarkeit des Metesr-Eisens bestätiget, un oin meine hin nd ieder geäußerten Zweifel gegen die herr-
-schende Meinung, als wären die Meteor- Massen mehr ode weniger das Peoduee eines Schmel-Prozesses, und als kämen
-die Metall-Massen wohl gar im geschmolzenen Zustande selbst zu Erde, zu bekräftigen scheint. Es wurde nähmlich ein drei
+*) Es zeichnet sich dieses (28 Loth wiegende) Stück durch ein besonders frisches Ansehen, reine und gute Erhaltung, durch Größe der Metall-Zacken, und vorzüglich durch einen auffallend reichen Gehalt am olivinartigen Gemengtheile aus, so daß dieser im Ganzen, dem Volum nach, wohl mehr als der Antheil am Metalle betragen möchte. Obgleich dieser Gemengtheil hier --- was sonst nur selten und im Einzelnen der Fall ist --- größten Theils in einem besonders reinen Zustande und hohen Grade von Ausbildung vorkommt, so zeigt er doch eine Menge von Abstufungen darin, und geht --- wie bereits in der Beschreibung desselben bei den Meteor-Steinen bemerkt worden ist, nur in umgekehrter Progression, in entgegen gesetztem Quantitäts-Verhältnisse und gewöhnlich mit Abnahme an Volum der Massen --- aus den lichtesten, blaß gelblich-weißen und grünlichen Farben, einerseits durch wachs- und honiggelbe Tinten ins Dunkelbräunliche, Zimmtbraune und selbst ins Hyacinthrothe, andererseits durch spargel- und pistaziengrüne ins Schmutzig- und Olivengrüne über, und in eben dem Maße nehmen die Grade der Durchscheinenheit, vom vollkommen Durchsichtigen bis zum Undurchsichtigen ab; der Glasglanz nähert sich immer mehr und mehr dem Fettglanze; der Bruch verläuft sich aus dem flachmuschlichten, versteckt-blätterigen, in den ebenen, nicht selten mit deutlich blätterigen, oft selbst schaligen Absonderungen; die scharfkantigen Bruchstücke erscheinen stumpfer; und die Härte sinkt vom Glasritzen bis beinahe zum Weichen herab. Nur höchst selten findet sich, selbst an diesem Stücke, ein einzelnes Korn, wenn nur von einiger Größe, das, zumahl im höhern Grade von Reinheit, aus jener Suite von Eigenschaften durchaus nur ein Glied zeigte; gewöhnlich finden sich deren zwei auch drei, oft sehr entfernte, meistens aber in einander verlaufende, an einem und demselben. Sehr häufig aber, obgleich an diesem Stücke nur wenig und nur stellenweise, dagegen an den meisten Stücken die ich kenne, nahmentlich dem großen (5 1/2 Pfund schweren), und noch mehr an dem --- angeblich aus Norwegen herstammenden (über 2 Pfund schweren) Stücke der kaiserl. Sammlung; so auch an der, im Museum zu Gotha aufbewahrten, in Sachsen aufgefundenen ähnlichen, ästig-zelligen Eisenmasse, und wie auch Graf Bournon von dem einen größern, mehrere Pfund wiegenden Stücke der Howard'schen Sammlung bemerkt --- bei weitem vorwaltend, findet sich dieser Gemengtheil in ähnlichen, doch meistens in den unvollkommensten oder doch minder vollkommenen Graden von Ausbildung in ganz unförmlichen, größern und kleinern Körnern und Bruchstücken, zum Theil in, dem Eisenspathe in verschiedenen Abstufungen, ungemein ähnlichen Partien von blätterigem Gefüge zusammen gemengt und durch Eisenoxyd zu einer festen, compacten Masse gleichsam zusammen gekittet, und bildet gewisser Maßen eine Grundmasse, welche von Zacken des Gediegeneisens durchwachsen ist, die hie und da als Spitzen über die Oberfläche hervorragen, aber nur höchst selten, und dann nur unvollkommene, kleine Zellen bilden. Hie und da findet sich an allen größeren Stücken der Art, und nahmentlich auch an einem großen (3 Pfund 19 Loth schweren) Stücke im Besitze Sr. kaiserl. Hoheit des Erzherzogs Johann (im Johanneo zu Grätz) --- das in Hinsicht auf Frischheit im Ansehen, der guten Erhaltung, der Größe der Metall-Zacken und der Ausgeschiedenheit und Reinheit des Olivines im Einzelnen, jenem aus der Von der Null'schen Sammlung keineswegs nachsteht --- in größern oder kleinern Partien, eine ganz erdige, trockne, zum Theil ganz zerreibliche, matte, graulichweiße, der Grundmasse der Meteor-Steine vollkommen ähnliche Substanz (wie auch Graf Bournon an jenem größern Howard'schen Stücke bemerkte), die vielleicht für verwitterte Olivin-Masse angesehen werden könnte, mancher Rücksichten wegen aber wohl richtiger für ursprünglich minder ausgebildeten Olivin, oder für wirkliche, jener der Meteor-Steine ganz ähnliche, Grundmasse zu halten sein möchte. Die abgeschliffene Fläche eines kürzlich erhaltenen kleinen Stückes der Art, welches diese erdige Substanz mit jener unförmlich gemengten, verschieden gefärbten Olivin-Masse in bedeutender Menge und nur mit einzelnen wenigen und zarten Metall-Zacken durchwachsen zeigt, würde jedermann eher für die eines Meteor-Steines, als eines Stückes vom sibirischen Eisen erkennen.
 
+Wo die Fläche eines Zackens sehr schmal ist, wo nähmlich der Schnitt einen Seiten- oder Verbindungsast, oder die Schneide eines liegenden Zackens traf, da zeigt sich kein Feld oder Kern, sondern die Säume von beiden Rändern stoßen zusammen und sind bloß durch eine zarte Linie getrennt; wie sich aber diese Fläche erweitert (was sehr oft bei Seiten- und Verbindungsästen der Fall ist, indem sie sich gegen die Hauptstämme hin verdicken), so trennen sich die beiden Säume und der Kern erscheint als ein grauer Strich, der nach Maßgabe der zunehmenden Breite der Fläche immer breiter und endlich zu einem Felde wird, dessen Umriß wieder jenem der Fläche entspricht.
 
-### 0100
+Da mir die Aetzung an diesem Stücke zu schwach schien, so ersuchte ich Herrn v. Widmannstätten, zum Behufe dieser Ausarbeitung an einem kleinen Stücke von diesem Eisen in meinem Besitze einige abgeschnittene Zacken stärker und bis auf jenen Grad zu ätzen, bis zu welchem jene Flächen obiger derber Eisen-Massen, um eines Abdruckes fähig zu sein, früher von ihm selbst geätzt worden waren. Es zeigte sich nun, daß die Substanz des Kernes, der nun dunkler eisengrau erschien, ganz jener der Figuren oder Zwischenfelder, die des Saumes oder Außenrandes der Zacken aber vollkommen jener der Streifen entspreche, indem sie nun nicht nur in eben dem Grade gegen erstere vertieft, sondern auch von ganz ähnlicher, zinkweißer Farbe und mit gleicher und zwar ziemlich grobnarbiger Oberfläche erschien; und daß endlich jene zarten Linien, welche zuvor zwischen Kern und Saum bemerkt wurden, vollkommen mit den Einfassungsleisten überein kommen, indem sie nun eben so erhaben und ganz von gleicher Beschaffenheit sich zeigten. Es finden sich demnach auch an dieser Metall-Masse jene drei verschiedenartigen Substanzen, welche bei den derben Meteor-Eisenmassen das beschriebene Gefüge bilden, und zwar eben so deutlich ausgesprochen und scharf begränzt und ganz von derselben Beschaffenheit, nur mit dem Unterschiede, daß sie hier nicht mit jener krystallinischen Regelmäßigkeit ausgeschieden und gegenseitig gelagert sind.*
 
-85
-erwähnten, in der Von der Null'schen Sammlung befindlichen, schönen Ladenstücke (1) von der sibirischen Ei-
-sen-Masse, um das Gefüge zu versinnlichen, welches eine ähnliche Aetzung auf der polierten Oberfläche der durchschnit-
-tenen Metall-Zacken zum Vorschein gebracht hat. Es zeigt dasselbe zwar einige Abweichung von jenem obiger derber
-Eisen-Massen, im Wesentlichen aber doch dasselbe; nähmlich: eine wo nicht so regelmäßige und vielfach vereinzelnte,
-doch eine ähnliche und eben so scharfe Absonderung von wenigstens zwei heterogen scheinenden metallischen Substanzen.
-Die Oberfläche eines jeden solchen geätzten Zackens zeigt nähmlich, gleichsam als Kern desselben, ein Feld von mat-
-ter, eisengrauer Farbe, welches von einem zwar nicht immer gleich breiten, aber scharf abgeschnittenen, und selbst durch
-eine mikroscopisch feine Linie getrennten Saume von spiegelicht glänzender, stark ins Silberweiße fallender Farbe, ein-
-gefaßt ist, der, indem er die Kante der Fläche oder den Rand des Umrisses vom Zacken selbst bildet, jenes Feld
-ringsum begränzt. Die Form dieser Felder ist keineswegs gleichförmig und regelmäßig -- so wie jene der Zwischenfel-
-der oder Figuren an den derben Eisen-Massen zu sein pflegt -- sondern vielmehr höchst verschieden und unbestimmt,
-Quentchen schweres Stück gewöhnliches, weißes Roheisen, und gleichzeitig ein 1 Linie dickes, 40 Gran wiegendes Plättchen
-vom Elbogner Eisen, welches von einem, ganz mit solchem Schwefeleisen ausgefüllten Risse durchzogen war, zu schmelzen
-versucht. Jenes Stück Roheisen schmolz bey ungefähr 130 Wedgd. vollkommen; das Plättchen Meteor-Eisen dagegen blieb
-ganz unverändert, selbst an den scharfen Kanten und Ecken; aber das im Risse enthalten gewesene Schwefeleisen war ganz
-zerstört. und diese Zerstörung nahm selbst schon bey sehr mäßiger Rothglühhitze ihren Anfang. Wie könnten sich demnach die
-feinen Atome von Schwefeleisen, mit welchen die lockere, poröse Steinmasse der Meteor-Steine, und vollends die Metall-
-Massen vom Mittelpuncte bis zur äußersten Oberfläche ganz durchsäet sind, so unverändert im metallischen und zum Theil selbst
-im krystallinischen Zustande erhalten haben, wenn erstere auch nur eine solche Hitze, welche zur Erzeugung der Rinde äuf die-
-sem Wege nöthig ist, und letztere eine solche -- durchdringende und anhaltende -- welche etwa nothwendig sein dürfte, ihre
-Masse -- oft von mehreren Centnern - in Fluß zu bringen, ausgestanden hätten.
-) es zeichßner aie eie- (ds dery egene tne lis in slcsn-- frisches Ansehen, reine und guute Erhaltuns, durch erose
-. eea g-tn, . .nis ieseuen aufaas is henen Geb an ai niarargen Geniinneeie s, s dan dieser
-I .i, sin olun nach, wo niehr al der Antheil am Metale betragen möchte. Obgleich diese- Gemengtheil hier
-was sonst nur selten und im Einzelnen der Fall ist -- größten Theils in einem besonders reinen Zustande und hohen Grade
-"on uusbildung vorkommt, so zeigt er doch eine Menge von Abstufungen darin, und geht -- wie bereits in der Beschreibung
-desselben bey den Meteor-Steinen bemerkt worden ist, nur in umgekehrter Progression, in entgegen gesetztem Quantitäts-
-Verhältnisse und gewöhnlich mit Abnahme an Volum der Massen -- aus den lichtesten, blaß gelblich-weißen und grünli-
-chen Farben, einerseits durch wachs- und boniggelbe Tinten ins Dunkelbräunliche, Zimmtbraune und selbst ins Hyacinthrothe,
-andererseits durch spargel- und pistaziengrüne ins Schmutzig- und Olivengrüne über, und in eben dem Maße nehmen die
-Grade der Durchscheinenheit, vom vollkommen Durchsichtigen bis zum Undurchsichtigen ab; der Glasglanz nähert sich immer
-mehr und mehr dem Fetiglanze; der Bruch verläuft sich aus dem slachmuschlichten, versteckt-blätterigen, in den ebenen, nicht
-selten mit deutlich blätterigen, oft selbst schaligen Absonderungen; die scharfkantigen Bruchstücke erscheinen stumpfer; und die
-Härte sinkt vom Glasritzen bis beynahe zum Weichen herab. Nur höchst selten findet sich, selbst an diesem Stücke, ein ein-
-zelnes Korn, wenn nur von einiger Größe, das, zumahl im höhern Grade von Reinheit, aus jener Suite von Eigenschaf-
-ten durchaus nur ein Glied zeigte; gewöhnlich finden sich deren zwei auch drei, oft sehr entfernte, meistens aber in einander
-verlaufende, an einem und demselben. Sehr häufig aber, obgleich an diesem Stücke nur wenig und nur stellenweise, dage-
-gen an den meisten Stücken die ich kenne, nahmentlich dem großen (54 Pfund schweren), und noch mehr an dem -- an-
-geblich aus Norwegen herstammenden (über 2 Pfund schweren) Stücke der kaiserl. Sammlung; so auch an der, im Museum
-zu Gotha aufbewahrten, in Sachsen aufgefundenen ähnlichen, ästig-zelligen Eisenmasse, und wie auch Graf Bournon
-von dem einen größern, mehrere Pfund wiegenden Stücke der Howar d'schen Sammlung bemerkt -- bey weitem vorwaltend,
-findet sich dieser Gemengtheil in ähnlichen, doch meistens in den unvollkommensten oder doch minder vollkommenen Graden
-von Ausbildung in ganz unförmlichen, größern und kleinern Körnern und Bruchstücken, zum Theil in, dem Eisenspathe in
-verschiedenen Abstufungen, ungemein ähnlichen Partien von blätterigem Gefüge zusammen gemengt und durch Eisenoryd zu
-einer festen, compacten Masse gleichsam zusammen gekittet, und bildet gewisser Maßen eine Grundmasse, welche von Za-
-cken des Gediegeneisens durchwachsen ist, die hie und da als Spitzen über die Oberfläche hervorragen, aber nur höchst selten,
-und dann nur unvollkommene, kleine Zellen bilden. Hie und da findet sich an allen größeren Stücken der Art, und nah-
-mentlich auch an einem großen (3 Pfund 19 Loth schweren) Stücke im Besitze Sr. kaiserl. Hoheit des Erzherzogs Iohann
-(im Iohanneo zu Grätz) -- das in Hinsicht auf Frischheit im Ansehen, der guten Erhaltung, der Größe der Metall-Zacken
-und der Ausgeschiedenheit und Reinheit des Olivines im Einzelnen, jenem aus der Von der Nul l'schen Sammlung keines-
-wegs nachsteht - in größern oder kleinern Partien, eine ganz erdige, trockne, zum Theil ganz zerreibliche, matte, graulich-
-weiße, der Grundmasse der Meteor-Steine vollkommen ähnliche Substanz (wie auch Graf Bournon an jenem größern
-Howard'schen Stücke bemerkte), die vielleicht für verwitterte Olivin-Masse angesehen werden könnte, mancher Rücksichten
-wegen aber wohl richtiger für ursprünglich minder ausgebildeten Olivin, oder für wirkliche, jener der Meteor-Steine ganz
-ähnliche, Grundmasse zu halten sein möchte. Die abgeschliffene Fläche eines kürzlich erhaltenen kleinen Stückes der Art, wel-
-ches diese erdige Substanz mit jener unförmlich gemengten, verschieden gefärbten Olsin-Masse in bedeutender Menge und
-nur mit einzelnen wenigen und zarten Metall-Zacken durchwachsen zeigt, würde jedermann eher für die eines Meteor-Stei-
-nes, als eines Stückes vom sibirischen Eisen erkennen.
+*) Ein mit einem zweiten ähnlichen Stücke von dieser Masse vorgenommener Versuch zum Blau-Anlaufen durch Erhitzung gab nicht nur ein vollkommen entsprechendes Resultat, sondern brachte auch eine Menge höchst zarter Linien --- Einfassungs- und Schraffirungsleisten --- zum Vorschein, die sich auf dem theils violetten theils dunkelblauen Grunde durch eine schön goldgelbe Farbe auszeichneten, und die, wahrscheinlich ihrer Zartheit wegen, durch die Säure zerstört wurden, daher sich an dem geätzten Stücke nur hie und da Spuren davon finden. Und genau dasselbe zeigte ein Stückchen von jener sächsischen Masse.
 
+Die Oberfläche jener Zacken, welche nur fein poliert, aber nicht geätzt wurde (welches letztere am Von der Null'schen Stücke --- wie auch aus der Darstellung zu ersehen ist --- nur auf der einen Hälfte der abgeschliffenen Fläche geschah), zeigt von dieser Trennung der Substanzen, in Kern und Saum, Feld und Einfassung, so wie ähnlich behandelte Flächen an den derben Massen, noch keine Spur, sondern es hat dieselbe ein ganz gleichförmiges Ansehen, gleichen spiegelichten Glanz, und eine durchaus gleiche, sehr licht stahlgraue, stark ins Silberweiße fallende Farbe.
 
-### 0101
+Die zerstreut und mechanisch eingemengte, bröcklig-körnige Substanz (das Schwefeleisen) zeigt sich aber hier wie dort und so wie bei jenen derben Massen, sehr deutlich und häufig, so daß sie hier wenigstens den sechsten Theil des gesammten Metall-Antheiles dieser Masse ausmachen dürfte, von welchem sie sich durch ihr körniges oder doch rissiges Ansehen, durch eine zinkweiße, schwach ins Röthliche ziehende Farbe und durch einen schwächern Glanz auszeichnet. Sie findet sich theils in einzelnen kleinen und äußerst kleinen Körnern, theils in größern bröcklig zusammen gehäuften Partien, theils in dichtern, zart rissigen Massen, und zwar meistens am Rande der Zellen, welche durch die Metall-Zacken gebildet werden und den Olivin einschließen, und die sie oft, entweder ganz oder stellenweise und abwechselnd mit dem Eisen und zwischen dieses gleichsam eingekeilt, gleich einer, obgleich ungleichförmigen Einfassung umgibt. Bisweilen bildet sie selbst ganze Nebenzacken, Seiten- oder Verbindungsäste von den Hauptzacken oder Stämmen des Eisens; in jedem Falle ist sie aber immer durch eine zarte Furche von diesem geschieden.
 
-indem sie ziemlich genau dem Umrisse des Zackens entspricht. Die Gränzlinie jener Felder folgt nähmlich allen Ecken,
-Krümmungen und Ausbuchten des Zackenrandes, nur mit der Abweichung, daß sie nicht immer gleich weit vom äußer-
-sten Rande sich entfernt, so z. B. in den Krümmungen einen verhältnißmäßig kleineren Bogen, in den Ecken meistens
-einen weit spitzeren und mehr gedehnten Winkel bildet; bisweilen macht aber doch der Umriß eines Feldes eine Krümmung
-oder Ecke, die jenem des Zackens nicht entspricht. Da nun der Saum den Rand des Zackens oder die Kante der
-Fläche desselben bildet und den Zwischenraum zwischen dieser und dem Felde ausfüllt; so folgt, daß derselbe ungleich
-breit sein müsse. Im Durchschnitte hat er eine Breite von; oder 4 Linie, oft jedoch kaum von Linie; dagegen
-nicht selten, zumahl in den Krümmungen, von einer halben, und in den Ecken bisweilen selbst von einer ganzen Linie.
-Wo die Fläche eines Zackens sehr schmal ist, wo nähmlich der Schnitt einen Seiten- oder Verbindungsast, oder
-die Schneide eines liegenden Zackens traf, da zeigt sich kein Feld oder Kern, sondern die Säume von beyden Rändern
-stoßen zusammen und sind bloß durch eine zarte Linie getrennt; wie sich aber diese Fläche erweitert (was sehr oft bey
-Seiten- und Verbindungsästen der Fall ist, indem sie sich gegen die Hauptstämme hin verdicken), so trennen sich die
-beyden Säume und der Kern erscheint als ein grauer Strich, der nach Maßgabe der zunehmenden Breite der Fläche
-immer breiter und endlich zu einem Felde wird, dessen Umriß wieder jenem der Fläche entspricht.
-Da mir die Aetzung an diesem Stücke zu schwach schien, so ersuchte ich Herrn v. Widmannstätten, zum Be-
-hufe dieser Ausarbeitung an einem kleinen Stücke von diesem Eisen in meinem Besitze einige abgeschnittene Zacken stär-
-ker und bis auf jenen Grad zu ätzen, bis zu welchem jene Flächen obiger derber Eisen-Massen, um eines Abdruckes
-fähig zu sein, früher von ihm selbst geätzt worden waren. Es zeigte sich nun, daß die Substanz des Kernes, der
-nun dunkler eisengrau erschien, ganz jener der Figuren oder Zwischenfelder, die des Saumes oder Außenrandes der
-Zacken aber vollkommen jener der Streifen entspreche, indem sie nun nicht nur in eben dem Grade gegen erstere ver-
-tieft, sondern auch von ganz ähnlicher, zinkweißer Farbe und mit gleicher und zwar ziemlich grobnarbiger Oberfläche er-
-schien; und daß endlich jene zarten Linien, welche zuvor zwischen Kern und Saum bemerkt wurden, vollkommen mit den
-Einfassungsleisten überein kommen, indem sie nun eben so erhaben und ganz von gleicher Beschaffenheit sich zeigten. Es
-finden sich demnach auch an dieser Metall-Masse jene drei verschiedenartigen Substanzen, welche bey den derben Me-
-teor-Eisenmassen das beschriebene Gefüge bilden, und zwar eben so deutlich ausgesprochen und scharf begränzt und
-ganz von derselben Beschaffenheit, nur mit dem Unterschiede, daß sie hier nicht mit jener krystallinischen Regelmäßig-
-keit ausgeschieden und gegenseitig gelagert sind (1).
-Die Oberfläche jener Zacken, welche nur fein poliert, aber nicht geätzt wurde (welches letztere am Von der
-Null'schen Stücke --- wie auch aus der Darstellung zu ersehen ist --- nur auf der einen Hälfte der abgeschliffenen
-Fläche geschah), zeigt von dieser Trennung der Substanzen, in Kern und Saum, Feld und Einfassung, so wie ähn-
-lich behandelte Flächen an den derben Massen, noch keine Spur, sondern es hat dieselbe ein ganz gleichförmiges Anse-
-hen, gleichen spiegelichten Glanz, und eine durchaus gleiche, sehr licht stahlgraue, stark ins Silberweiße fallende Farbe.
-Die zerstreut und mechanisch eingemengte, bröcklig-körnige Substanz (das Schwefeleisen) zeigt sich aber hier wie
-dort und so wie bey jenen derben Massen, sehr deutlich und häufig, so daß sie hier wenigstens den sechsten Theil des
-gesammten Metall-Antheiles dieser Masse ausmachen dürfte, von welchem sie sich durch ihr körniges oder doch rissiges
-Ansehen, durch eine zinkweiße, schwach ins Röthliche ziehende Farbe und durch einen schwächern Glanz auszeichnet. Sie
-findet sich theils in einzelnen kleinen und äußerst kleinen Körnern, theils in größern bröcklig zusammen gehäuften Par-
-tien, theils in dichtern, zart rissigen Massen, und zwar meistens am Rande der Zellen, welche durch die Metall-Zacken
-gebildet werden und den Olivin einschließen, und die sie oft, entweder ganz oder stellenweise und abwechselnd mit dem
-Eisen und zwischen dieses gleichsam eingekeilt, gleich einer, obgleich ungleichförmigen Einfassung umgibt. Bisweilen
-bildet sie selbst ganze Nebenzacken, Seiten- oder Verbindungsäste von den Hauptzacken oder Stämmen des Eisens; in
-jedem Falle ist sie aber immer durch eine zarte Furche von diesem geschieden.
-(1) Ein mit einem zweiten ähnlichen Stücke von dieser Masse vorgenommener Versuch zum Blau-Anlaufen durch Erhitzung gab
-nicht nur ein vollkommen entsprechendes Resultat, sondern brachte auch eine Menge höchst zarter Linien --- Einfassungs- und
-Schraffirungsleisten - zum Vorschein, die sich auf dem theils violetten theus duntehtauen Grunde durch eine schön gold-
-gelbe Farbe auszeichneten, und die, wahrscheinlich ihrer Zartheit wegen, durch die Säure zerstört wurden, daher sich an dem
-geätzten Stücke nur hie und da Spuren davon finden. Und genau dasselbe zeigte ein Stückchen von jener sächsischen Masse.
+# Zehnte Tafel.
 
+## Plan der Gegend um Stannern in Mähren,
 
-### 0102
+in der sich, am 22. Mai 1808, jener merkwürdige Steinfall ereignete,* von welchem viele der ausgezeichnetsten Steine hier beschrieben und dargestellt worden sind.
 
-Zehnte Tafel.
-Plan der Gegend um Stannern in Mähren,
-in der sich, am 22. May 1808, jener merkwürdige Steinfall ereignete (1), von welchem viele der ausgezeichnetsten
-Steine hier beschrieben und dargestellt worden sind.
-87
-Eg ,streckt sich dieser Plan (2) über eine Gegend von 4 Meilen in der Länge (von dem Marktflecken Schelletau
-in S. bis zur Kreisstadt Iglau in N.), und auf 2 Meilen in der größten Breite (von den Landstädtchen Telsch
-und Trisch in W. bis zum Dorfe Pirnitz in O.), durch welche die mährisch-böhmische Poststraße, beynahe in ge-
-rader Richtung von S. nach N., durch den Marktflecken Stannern zieht, der ziemlich im Mittelpuncte dieses Flä-
-chenraumes (in einer Entfernung von 20 Meilen N. W. von Wien, 22 S. O. von Prag, und 13 N. W. von
-Brünn) liegt.
-Es sind in demselben nicht nur alle innerhalb dieses Umkreises befindlichen Ortschaften in ihrer gehörigen Lage auf-
-geführt, Hügel und Thäler, Gehölze, Waldungen, Aecker und Wiesen, Bäche und Teiche, Wege und Fußsteige nach
-deren verhältnißmäßiger Ausdehnung angedeutet, sondern auch die einzelnen Stellen, wo Steine aufgefunden oder im
-Niederfallen mit Verläßlichkeit beobachtet (3), und wo sie von den Findern oder Beobachtern auf dem Platze selbst an-
-gegeben worden waren, mit möglichster Genauigkeit durch Puncte und fortlaufende Zahlen bezeichnet. Letztere beziehen
-sich auf eine dem Plane beygefügte Tabelle, welche die Nahmen der Deponenten nach ihren Wohnorten und in der
-Ordnung, nach welcher die ämtliche Verhandlung ihrer Vernehmung gepflogen wurde, und das Gewicht der einzelnen
-Steine, welches theils nach wirklicher Abwiegung, theils nach einer beyläufigen Abschätzung bestimmt worden war, angibt.
-Bezeichnet man die Gränzen des von Steinen wirklich befallenen Flächenraumes nach den äußersten Puncten oder
-den entferntesten Fallsstellen (wie dieß auf der Karte durch eine punctirte Linie geschehen ist); so erhält man ein ellip-
-tisches Feld (4), das ziemlich das Mittel jener Gegend einnimmt, den Marktflecken Stannern beynahe zum Mittel-
-(1) Umständliche Nachrichten davon --- die Resultate einer schon am sechsten Tage nach dem Ereignisse an Ort und Stelle gemein-
-zigenils n. geee Deeee sisn naae-n neer rietn, de- i t. Kreisamnees znglau von mir vorgenon-
-enen frrmichen und wissenschaftlichen untersuchung finden sich in Gilbert's Annalen der Physt, Bd. 29, Jahrg.808.
-Leider wurde die Fortsetzung derselben -- zu welcher die nicht genug anzurühmende Betriebsamkeit jener Landesbehörde, und
-inbesondere die, bey dieser Gelegenheit gar sehr in Anspruch genommene, zum Gläck durch das eigene Interesse den an-
-zehenden Gegenstan lebhaft angeregre perssmiche Aufmnerksanteit von Seite des Heren Kreishauptmannes, Gubernialrathes
-sus, mgertalien - eniße eleeert haten (indem noch im aaufe desselben Iabres ine wey Maht wiederhoh-
-suchung des Flachenraumes nach den etwa verborgen liegenden und die sorgfältigste Nachforschung uber die bereits aufgefunde-
-nen Seenn, inn esnnoe srnahlige ämntlich- insernffung und Bernessccheer "n soichen, ns eih,
-gemeinschaftlich mie den angränzenden Keeisamtern, sehr umständliche Nachforschungen über die Ausdehnung und Gränzen
-einiger, die Begebenheit begleitender, merkwürdiger Nebenerscheinungen vorgenommen und die Resultate davon bereits einge-
-sender worden waren - s wie die Betanntmachung vieler dahin Bezug habender untersnchungaen, Arbeiten und Versuche
-(als Fortsetzung jener, welche bereits im 31. Bande desselben Werkes angefangen wurde), durch die ungünstigen Zeitumstände
-- den Ausbruch des Krieges von 1809 -- unterbrochen, und durch deren lange Fortdauer und Folgen zuletzt ganz unterblei-
-ben gemacht.
-Landes-Ingenieur Herrn v. Berniere in Frühiahre 1809 vor Bestelung der Gründe und nachdem alle oben erwähnten
-untersuctnze, m Nachforschungen beries bouendet waren, unter Leitung des t. k. Kreisamtes und mit Zuziehuna der
-orecsbegtule, mn auer iener Indidnn, ech- Stein- aleg,sufgesunden oder in Niederfauen beobachter hatten, an Drt und
-Stelle aufgenommen, und nach einem willkührlichen aber bestimmten Maßstabe --- welcher zur gegenwärtigen Copie genau
-auf die Hie esleiet wurde ausgefertiget.
-(y ocher, bloß in m dfauen beobachteter und nicht wirklich aufgefundener Steine, sind in diese Tabelle eigentlich nur zwei
-anfaenmonnuen oorden, achnmhmlich die n e ad -im pan- angedeuteten, welche in den einen te, eaen.t.
-gelegenen Teich fallen gesehen und gehört wurden.
-(4) In der Voraussetzung --- die übrigens alle Wahrscheinlichkeit für sich hat -- daß die niederfallenden Steine Trümmer oder
-Bruchstücke einer Masse (des Meteors oder einer, bey solchen Ereignissen gewöhnlich --- wie auch bey diesem -- beobachteten,
-so genannten Feuerkugel sind, elche, in Folge wiederhohlter Zersprenguna oder Zerplatzung lebterer während ihres mehr oder
-weniger horizontalen oder vielmehr (weil sie selbst im Niederfallen ist) parabolischen Zuges durch unsere Atmosphäre, von ihr
-2
+*) Umständliche Nachrichten davon --- die Resultate einer schon am sechsten Tage nach dem Ereignisse an Ort und Stelle gemeinschaftlich mit Herrn Director v. Widmannstätten und unter Mitwirkung des k. k. Kreisamtes zu Iglau von mir vorgenommenen förmlichen und wissenschaftlichen Untersuchung --- finden sich in Gilberts Annalen der Physik, Bd. 29, Jahrg. 1808. Leider wurde die Fortsetzung derselben --- zu welcher die nicht genug anzurühmende Betriebsamkeit jener Landesbehörde, und inbesondere die, bei dieser Gelegenheit gar sehr in Anspruch genommene, zum Glück durch das eigene Interesse den anziehenden Gegenstand lebhaft angeregte persönliche Aufmerksamkeit von Seite des Herrn Kreishauptmannes, Gubernialrathes v. Huß, Materialien zu Genüge geliefert hatten (indem noch im Laufe desselben Jahres eine zwei Mahl wiederhohlte Durchsuchung des Flächenraumes nach den etwa verborgen liegenden und die sorgfältigste Nachforschung über die bereits aufgefundenen Steine, eine eben so oftmahlige ämtliche Einberufung und Vernehmung aller Finder und Beobachter von solchen, und endlich, gemeinschaftlich mie den angränzenden Kreisämtern, sehr umständliche Nachforschungen über die Ausdehnung und Gränzen einiger, die Begebenheit begleitender, merkwürdiger Nebenerscheinungen vorgenommen und die Resultate davon bereits eingesendet worden waren) --- so wie die Bekanntmachung vieler dahin Bezug habender Untersuchungen, Arbeiten und Versuche (als Fortsetzung jener, welche bereits im 31. Bande desselben Werkes angefangen wurde), durch die ungünstigen Zeitumstände --- den Ausbruch des Krieges von 1809 --- unterbrochen, und durch deren lange Fortdauer und Folgen zuletzt ganz unterbleiben gemacht.
 
+Es erstreckt sich dieser Plan* über eine Gegend von 4 Meilen in der Länge (von dem Marktflecken Schelletau in S. bis zur Kreisstadt Iglau in N.), und auf 2 Meilen in der größten Breite (von den Landstädtchen Telsch und Trisch in W. bis zum Dorfe Pirnitz in O.), durch welche die mährisch-böhmische Poststraße, beinahe in gerader Richtung von S. nach N., durch den Marktflecken Stannern zieht, der ziemlich im Mittelpuncte dieses Flächenraumes (in einer Entfernung von 20 Meilen N. W. von Wien, 22 S. O. von Prag, und 13 N. W. von Brünn) liegt.
 
-### 0103
+*) Es wurde dieser Plan, auf Anordnung der betreffenden hohen Landesstelle, nach den mitgetheilten Anforderungen durch den Landes-Ingenieur Herrn v. Berniere in Frühjahre 1809 vor Bestellung der Gründe und nachdem alle oben erwähnten Untersuchungen und Nachforschungen bereits vollendet waren, unter Leitung des k. k. Kreisamtes und mit Zuziehung der Ortsobrigkeiten und aller jener Individuen, welche Steine aufgefunden oder im Niederfallen beobachtet hatten, an Ort und Stelle aufgenommen, und nach einem willkührlichen aber bestimmten Maßstabe --- welcher zur gegenwärtigen Copie genau auf die Hälfte reducirt wurde --- ausgefertiget.
 
-88
-puncte hat, bey 7000 Klafter in der Länge und über 2600 in der größten Breite mißt und einen Flächeninhalt von
-mehr als zwölf Millionen Quadrat-Klafter begreift (1).
-Eine innerhalb dieses Feldes von der äußersten Fallsstelle in N. (Nr. 60) bis zur äußersten in S. (Nr. 1) gezo-
-gene Linie --- welche eine der Richtung des magnetischen Meridians parallel laufende (vorausgesetzt daß bey Uebertra-
-gung der Stellung der Magnetnadel auf den Plan die damahls Statt gehabte Abweichung gehörig berücksichtigt wur-
-de) unter einem Winkel von etwa 7 durchschneiden möchte --- würde dasselbe der Länge nach in zwei sehr ungleiche
-Hälften theilen (2), und eine Linie, welche man quer durch dasselbe, und zwar von der äußersten Fallsstelle in O.
-(Nr. 51) zur äußersten in W. (Nr. 63) zöge, würde jene etwas über dem Mittel ihrer Länge, dem Nordende etwas
-näher, durchkreuzen.
-Bey einiger Aufmerksamkeit auf die Puncte, welche die Fallsstellen der Steine bezeichnen, bemerkt man bald,
-daß sie nicht durchaus und gleichförmig über das Feld verbreitet, sondern vielmehr deutlich in drei Gruppen vertheilt
-sind, die durch beträchtliche, ganz freye Zwischenräume von einander getrennt werden und in deren Mittel sie zum
-Theil --- wenigstens auf der Karte -- ziemlich dicht erscheinen, indeß sie außerhalb desselben sehr weitschichtig und
-nach allen Richtungen um selbes herum zerstreut vorkommen (3).
-losgetrennt und nach allen denkbaren Richtungen hinweg geschleudert werden, ist die elliptische (und oft selbst --- wie gerade
-h- - uuoonnen u aesis- eyfsrnmie, omi d.s gschentsnnenr, , sihen rtisei esersai- ni desten oin.-n-
-ihre entferntesten zauseliennien, sehr begreifiich, und die narrrliche Folge theils der Vorwärtsbeweguna der Mane
-selbst, während jener successiven Zersprengung, theils der zusammengesetzten Wurfs- und Fallsbewegung dieser von ihr weg-
-geschleuderten einzelnen Bruchstucke, welche letztere, selbst bey ganz gieichgesenter Wurferaft, nach der ichtung, in welcher
-die Wegschleuderung geschiehe, serschieden gedacht werden mus. Ein anderes ist es nähmlich, wenn diese Wurforichtung mit
-der eigenthümlichen Bewegin der Gestalt die erhaltene Wurftraft verstärkt wird, a- wen se
-nach seitwärts, nach hinten oder voulends nach abwärts Statt findet, in welchen Fällen der, der Wurfkraft entgegen wirkenden,
-Schwerkraft der einzelnen Steine weniger Widerstand gebothen, oder diese wohl gar selbst verstärkt wird. Im ersteren Falle
-mussen die Steine ungleich weiter vom Mitteluncte der Erlosion und weit angsaner, nahmlich nach Maßgabe der Hohe,
-auf welcher diese vor sich ging, in einer mehr oder weniger schiefen oder parabolischen Richtung zur Erde kommen; in letzteren
-Fauen dagegen weit naher ienem Centro oder selst in demselbentrecht niederaalen. und
-i diier so nannigfalig mineirt-n deiieirre use gain,, "nse Tr n der eiiern Zersprenauns einzer
-solcher Beuchstaeke waheend derselben (wofür nicht nur mehrere bey solchen Ereignissen gewöhnlich beobachtete Nebenerscheinun-
-gen, sonieen e - wie aus obigen Beschreibungen erhellet -- manche Beobachtungen an den Steinen selbst - zumahl rück-
-sichtlich der verschiedenen Beschafenheit der Oberfläche und der Rinde an einem und demselben Stäcke zu sprechen scheinen),
-wodurch sie wieder abgeändert und in eine neue, ähnliche, auf eben die Art und noch mehr complieirte aufgelöset wird,möchte
-die crtlärung jenes räthselhaften umstandes zu suchen sein, daß viele Steine, trotz ihres bedeutenden speeifschen Ge-
-wichtes und der beträchtlichen Höhe, in welcher deren Lostrennung von der Masse in den meisten Fällen vorzugehen scheint,
-so äußerst sanft auffallen, daß sie kaum die Erde aufschürfen, eine Strecke weit fortrollen oder auf weichem, lockern Bo
-sen die schie gen sinen.
-(1) Da, wie aus dem Folgenden erhellen wird, sowohl der Zahl und Masse als dem Gewichte nach, doch wenigstens zwei Drittel
-der bey diesem Ereignisse niedergefallenen Steine mit hinlänglicher Verläßlichkeit ausgemittelt und die Faussteuen derselben
-angegeben werden konnten, und da vorzüglich auf die Gränzpuncte alle Aufmerksamkeit gerichtet worden war; so dürfte die
-angegebene Lage, Richtung und Ausdehnung dieses Feldes als ziemlich richtig angenommen werden können.
-(2) Obgleich, auch in Annahme obiger Voraussetzung, eine solche, die größere Achse der Ellipse, und somit wohl auch beyläufig
-den Zug des Meteors bezeichnende Linie, überhaupt nur höchst unsicher auf die wahre Bahn des Meteors schließen ließe, in.
-dem dieß voraussetzen würde, daß die äußersten Puncte derselben durch Steine bestimmt worden wären, die in einer ihr voll-
-uomenen eechenden ichtung von der Masse abgeschlendere wurden - was ohl be einen ahnlichen orfale ie erweis-
-lich sein möchte --- so wäre dieß hier um so weniger zuläßlich, da ein Drittel der wahrscheinlich gefallenen Steine, wenigstens
-ihren Fallsstellen nach, nicht ausgemittelt werden konnten, wovon doch leicht einige -- welches hier, wie aus dem Folgenden
-erhellen wird, wirklich höchst wahrscheinlich der Fall war -- wenn gleich noch innerhalb des Feldes, doch so zu liegen gekom-
-en sein konnten, dassie die nichtung jener Linie abändern wärden, wenn auch keiner davon, als der Bahn volkommen
-entsprechend, den wahren Endpunct derselben bezeichnet haben sollte.
-(3) Diese Gruppen oder partienweisen Steinniederfälle entsprächen nun wirklich den angenommenen successiven Zerplatzungen des
-eteors um so mehr, als diese selbst durch eben so viele Haupt-Detonationen während des Ereignisses, die gleich starken
-Kanonenschüssen oder gewaltigen Donnerschlägen selbst auf sehr weite Entfernung -- nach gewissen Richtungen auf 10 bis 14
-s. i sinnis irste sinstnessndin i, sesasihie-r nen. e te ehi es ie eirlunter- eegee
-Fallsstellen unmittelbar und gleichsam im Centro dieser Gruppen, dagegen die weite Zerstreuung vieler anderer, offenbar dazu
-gehöriger, um dasselbe in sehr verschiedenen Abständen, obige Schlußfolgerung in Betreff der so mannigfaltigen und complicr-
-ten Wurfs- und Fallsbewegung der Bruchstücke, und vollends das eigene, nach einstimmiger Aussage, einem Peloton- oder
-kleinem Gewehrfener ahniche, fortgesetzte Geröse, die Annahme einer wiederhohlten Zersprengung vieler einzelner Steine
-während ihres Falles zu bekräftigen scheinen.
+Es sind in demselben nicht nur alle innerhalb dieses Umkreises befindlichen Ortschaften in ihrer gehörigen Lage aufgeführt, Hügel und Thäler, Gehölze, Waldungen, Aecker und Wiesen, Bäche und Teiche, Wege und Fußsteige nach deren verhältnißmäßiger Ausdehnung angedeutet, sondern auch die einzelnen Stellen, wo Steine aufgefunden oder im Niederfallen mit Verläßlichkeit beobachtet,* und wo sie von den Findern oder Beobachtern auf dem Platze selbst angegeben worden waren, mit möglichster Genauigkeit durch Puncte und fortlaufende Zahlen bezeichnet. Letztere beziehen sich auf eine dem Plane beigefügte Tabelle, welche die Nahmen der Deponenten nach ihren Wohnorten und in der Ordnung, nach welcher die ämtliche Verhandlung ihrer Vernehmung gepflogen wurde, und das Gewicht der einzelnen Steine, welches theils nach wirklicher Abwiegung, theils nach einer beiläufigen Abschätzung bestimmt worden war, angibt.
 
+*) Solcher, bloß im Niederfallen beobachteter und nicht wirklich aufgefundener Steine, sind in diese Tabelle eigentlich nur zwei aufgenommen worden; nähmlich die beiden unter Nr. 30 und 42 im Plane angedeuteten, welche in den einen bei Stannern gelegenen Teich fallen gesehen und gehört wurden.
 
-### 0104
+Bezeichnet man die Gränzen des von Steinen wirklich befallenen Flächenraumes nach den äußersten Puncten oder den entferntesten Fallsstellen (wie dieß auf der Karte durch eine punctirte Linie geschehen ist); so erhält man ein elliptisches Feld,* das ziemlich das Mittel jener Gegend einnimmt, den Marktflecken Stannern beinahe zum Mittelpuncte hat, bei 7000 Klafter in der Länge und über 2600 in der größten Breite mißt und einen Flächeninhalt von mehr als zwölf Millionen Quadrat-Klafter begreift.*
 
-89
-Die eine Gruppe findet sich am nördlichen Ende des Feldes, bey dem Orte Neustift und zwischen diesem und
-dem Orte Roschitz, und begreift vier Fallsstellen, die sich ziemlich nahe sind, so daß die einzelnen Steine kaum
-300 bis 400 Klafter weit von einander entfernt zu liegen kamen, und einen Flächenraum von etwa 200,000 Qua-
-drat-Klafter einschließen. Die zweite Gruppe zeigt sich ziemlich genau im Mittel des elliptischen Feldes und ungleich
-beträchtlicher an Zahl der Fallsstellen sowohl als an Ausdehnung, in und um Stannern, bey Sorez, Falke-
-nau und bis über Mitteldorf und Otten in W. und gegen Hasliz in O. hinaus. Sie begreift 36 Fallsstel-
-len, wovon 16 gewisser Maßen die Hauptgruppe oder das Mittel derselben bilden, die sich zum Theil besonders nahe
-sind, nähmlich auf 100, 200 bis 300 Klafter, und zusammen einen Flächenraum von kaum 600,000 Quadrat-Klas-
-ter einschließen; die übrigen liegen mehr zerstreut und in weit größern Entfernungen, so daß manche 400 bis 600 Klaf-
-ter von einander und die äußersten in O. und W. (Nr. 51 und 63) von einem als wahrscheinlich anzunehmenden Mit-
-telpuncte der Gruppe, über 1000 und bey 1600 Klafter abstehen, und so daß alle 36 Fallsstellen einen Flächenraum
-von nahe an 5 bis 6 Millionen Quadrat-Klafter einnehmen (1). Die äußerste, höchst wahrscheinlich zu dieser Gruppe
-gehörige Fallsstelle gegen N. (Nr. 55) steht von der äußersten der vorigen Gruppe gegen S. (Nr. 61) über 1000
-Klafter ab, so daß im elliptischen Felde zwischen diesen beyden Gruppen ein steinfreyer Zwischenraum von wenigstens
-2 Millionen Ouadrat-Klafter auffällt. Die dritte Gruppe endlich findet sich gegen das südliche Ende des Feldes, zwi-
-schen und über den Orten Hungerleiden, Lang- und Klein-Pirnitz, und zeigt sich ebenfalls sehr beträchtlich
-an Zahl der Puncte und an Ausdehnung. Erstere beläuft sich auf 26, wovon wieder mehrere, zumahl 10, sich ziem-
-(1) Diese beträchtlichen Fallsentfernungen setzen eine, den einzelnen Bruchstücken mitgetheilte, horizontale Bewegung und eine Wurf-
-kraft voraus, die sich, bey der Höhe in der jene Explosionen, welche selbe bewirken sollen, vorzugehen scheinen, einerseits
-mit dem specifischen Gewichte dieser Massen und der daraus resultirenden und jener entgegen wirkenden Schwerkraft, anderer-
-seits mit der leichten Zersprengbarkeit, dem lockern Cobäsions Zustande, in welchem sie wenigsens zur Erde kommen, nich-
-"bl saommen eier-nrlt. ns noc nehr als diese betrachtlichen Falsentfernungen der Seeine prechen si die Gewalt,
-welche die Explosionen der Masse bewirkt, die ausnehmende Stärke und die weite Ausdehnung des Getöses, das dieselben be-
-zeichnet, und welches bey allen ähnlichen Ereignissen in einem ziemlich gleichen Grade und von auffallend gleichförmiger Art
-beobachtet wurde. So verbreitete sich bey diesem Ereignisse -- nach den Resultaten einer im Laufe desselben Jahres noch von
-dem Kreisamte zu Iglau einvernehmlich mit den angränzenden Kreisämtern von Znaim in Mähren, Czaslau und Tabor in
-Böhmen, und von Korneuburg und Krems in Oesterreich (deren so wie aller untergeordneten Behörden thätige Mitwirkung
-über hundert, mit Protokollen und andern Documenten belegte, Amtsberichte bewährten) in dieser Beziehung gepslogene Un-
-tersuchungsverhandlung -- das Getöse --- wenigstens jenes der Haupt-Detonationen --- von Stannern aus - den Ort
-selbst als Mittelpunct angenommen -- in N. gegen Czaslau auf 4, in O. gegen Brünn auf 8, in S. gegen Stockerau und
-in W. gegen Tabor selbst bis auf 14 Meilen weit, und zwar mit solcher Stärke noch, daß mit demselben, wenigstens nach je-
-nen weitern Richtungen hin, auf eine Entfernung von 8 bis 12 Meilen von jenem Mittelpuncte, eine Erschütterung der Ge-
-bäude und ein Klirren der Fenster bemerkt wurde. (Merkwürdig ist, daß die Granzen des giachernane, ue eihen sich
-dieses Getöse ausgebreitet hatte, die ich nach den, mit den Berichten erhaltenen, sehr genauen Angaben und nach den be-
-zeichneten Ortschaften auf eine Karte übertrug, eine ähnliche und jener des von den Steinen befallenen Flächenraumes ent-
-sprechende Ellipse gaben, deren größer- chse eenfans wie die von iener von N. N. W. gegen S.S. o. nn derselben sehr
-parallel lief, und daß damit auch ganz auffallend die Richtung und Ausdehnung des in Begleitung des Phänomenes beobach-
-teten und unbezweifelbar mit demselben zusammenhangenden Nebels überein kam, der nur auf engere Granzen als das Ge-
-töse beschränkt war, indem sich derselbe in S. auf 8, in N. kaum auf 4, in W. nur wenig weiter, in O. nicht einmahl so
-weit erstreckte. Daß der Nebel sowohl als vorzüglich das Getöse sich bedeutend weiter gegen S. und W. als gegen N.
-und O. ausgedehnt haben, mag wohl Nebenumständen zuzuschreiben sein, die leicht darauf Einfluß gehabt haben konnten,
-z B. dem Luftstrome obgleich während der Dauer des Ereignisses, so wie selbst den ganzen Tag uber, wenigstens in der
-niederern Region, die Atmosphäre vollkommen ruhig war -- zum Theil auch dem Niveau des Terrains, das sich gegen O.
-und vorzüglich gegen N. beträchtlich erhebt -- obgleich diese Erhebung bey der Höhe, in welcher die Explosionen Statt ge-
-funden zu haben scheinen, geradezu keinen großen Einfuß auf die Verbreitung des Schalles gehabt haben kann. --
-ais- nan nn erwget, das der unsa, erten desen eeenniss- iieergefanenen en äe in Ganzen i Feuerkuge
-deren Form als sphäroidisch sich gedache und die physische Beschafienheit ihrer Susstanz in dem Zustande angenommen, in
-welchem die einzelnen Steine als Bruchstücke derselben zur Erde kommen -- nach dem wahrscheinlichen absoluten Gewichte von
-150 Pfund im Vergleich mit dem specifischen von 3: 1 des Wassers, kaum mehr als einen Schuh im Durchmesser (in
-Dampfgestalt -- bey gewöhnlicher Compression -- etwa 6000 Kubik-Schuh körperlichen Inhalt) gehabt haben konnte (und
-e, den neisten ahaichen Ereignisen nss dieser noch ungleich eeaner geesen eyn, nnn i. ei- gewesen theils in
-nur wenigen einzelnen Stücken herabgefallene Masse oft nur wenige Pfund betrug); so möchte man sich wohl bestimmt fin-
-den von der Ide-, dien ewalt als eine sios nechanische zu sereacheen, abzgehe als die Wirtung ei-
-nes uns ganz fremden, großen chemischen prozeses anzusehhn, iesen mectlt eztche dt iasng derr ncchaen Besand-
-theile, in welchen sich uns die meteorischen Massen, wenn sie einmahl zur Erde getommnnen sind, zu erkennen geben, aus den
-uns zur Zeit noch unbekannten urstoffen (Chladnis ur-Materie) sein durfee, und wobey die Explosion und Zertrüm-
-n r man- mn änsn -.
-3
+*) In der Voraussetzung --- die übrigens alle Wahrscheinlichkeit für sich hat --- daß die niederfallenden Steine Trümmer oder Bruchstücke einer Masse (des Meteors oder einer, bei solchen Ereignissen gewöhnlich --- wie auch bei diesem --- beobachteten, so genannten Feuerkugel) sind, welche, in Folge wiederhohlter Zersprengung oder Zerplatzung letzterer während ihres mehr oder weniger horizontalen oder vielmehr (weil sie selbst im Niederfallen ist) parabolischen Zuges durch unsere Atmosphäre, von ihr losgetrennt und nach allen denkbaren Richtungen hinweg geschleudert werden, ist die elliptische (und oft selbst --- wie gerade hier --- vollkommen und zugespitzt eiförmige) Form des Flächenraumes, auf welchen dieselben niederfallen und dessen Gränzen ihre entferntesten Fallstellen bestimmen, sehr begreiflich, und die natürliche Folge theils der Vorwärtsbewegung der Masse selbst, während jener successiven Zersprengung, theils der zusammengesetzten Wurfs- und Fallsbewegung dieser von ihr weggeschleuderten einzelnen Bruchstücke, welche letztere, selbst bei ganz gleichgesetzter Wurfkraft, nach der Richtung, in welcher die Wegschleuderung geschieht, verschieden gedacht werden muß. Ein anderes ist es nähmlich, wenn diese Wurfsrichtung mit der eigenthümlichen Bewegung der Masse coincidirt und solcher Gestalt die erhaltene Wurfkraft verstärkt wird, als wenn sie nach seitwärts, nach hinten oder vollends nach abwärts Statt findet, in welchen Fällen der, der Wurfkraft entgegen wirkenden, Schwerkraft der einzelnen Steine weniger Widerstand gebothen, oder diese wohl gar selbst verstärkt wird. Im ersteren Falle müssen die Steine ungleich weiter vom Mittelpuncte der Explosion und weit langsamer, nähmlich nach Maßgabe der Höhe, auf welcher diese vor sich ging, in einer mehr oder weniger schiefen oder parabolischen Richtung zur Erde kommen; in letzteren Fällen dagegen weit näher jenem Centro oder selbst in demselben, schneller und mehr oder weniger senkrecht niederfallen. Und in dieser so mannigfaltig modificirten und complicirten Fallsewegung, vollends aber in der weitern Zersprengung einzelner solcher Bruchstücke während derselben (wofür nicht nur mehrere bei solchen Ereignissen gewöhnlich beobachtete Nebenerscheinungen, sondern --- wie aus obigen Beschreibungen erhellet --- manche Beobachtungen an den Steinen selbst --- zumahl rücksichtlich der verschiedenen Beschaffenheit der Oberfläche und der Rinde an einem und demselben Stücke --- zu sprechen scheinen), wodurch sie wieder abgeändert und in eine neue, ähnliche, auf eben die Art und noch mehr complicirte aufgelöset wird, möchte wohl die Erklärung jenes räthselhaften Umstandes zu suchen sein, daß viele Steine, trotz ihres bedeutenden specifischen Gewichtes und der beträchtlichen Höhe, in welcher deren Lostrennung von der Masse in den meisten Fällen vorzugehen scheint, so äußerst sanft auffallen, daß sie kaum die Erde aufschürfen, eine Strecke weit fortrollen oder auf weichem, lockern Boden oberflächlich liegen bleiben.
 
+*) Da, wie aus dem Folgenden erhellen wird, sowohl der Zahl und Masse als dem Gewichte nach, doch wenigstens zwei Drittel der bei diesem Ereignisse niedergefallenen Steine mit hinlänglicher Verläßlichkeit ausgemittelt und die Fallsstellen derselben angegeben werden konnten, und da vorzüglich auf die Gränzpuncte alle Aufmerksamkeit gerichtet worden war; so dürfte die angegebene Lage, Richtung und Ausdehnung dieses Feldes als ziemlich richtig angenommen werden können.
 
-### 0105
+Eine innerhalb dieses Feldes von der äußersten Fallsstelle in N. (Nr. 60) bis zur äußersten in S. (Nr. 1) gezogene Linie --- welche eine der Richtung des magnetischen Meridians parallel laufende (vorausgesetzt daß bei Uebertragung der Stellung der Magnetnadel auf den Plan die damahls Statt gehabte Abweichung gehörig berücksichtigt wurde) unter einem Winkel von etwa 7° durchschneiden möchte --- würde dasselbe der Länge nach in zwei sehr ungleiche Hälften theilen,* und eine Linie, welche man quer durch dasselbe, und zwar von der äußersten Fallsstelle in O. (Nr. 51) zur äußersten in W. (Nr. 63) zöge, würde jene etwas über dem Mittel ihrer Länge, dem Nordende etwas näher, durchkreuzen.
 
-90
-lich nahe, nur auf 100, 200 Klafter Entfernung von einander liegen, so daß sie einen Flächenraum von kaum 2 bis
-300,000 Quadrat-Klafter einschließen. Die übrigen liegen wieder mehr zerstreut und entfernter von einander, so daß
-alle zusammen einen Flächenraum von etwa 2 bis 3 Millionen Quadrat-Klafter einnehmen möchten. Diese Gruppe hat
-sich übrigens mehr in die Länge als in die Breite ausgedehnt (1), denn der entfernteste Fallspunct gegen S. (Nr. 1)
-- der überhaupt auch sehr weit, bey 1600 Klafter, vom wahrscheinlichen Mittelpuncte derselben sich befindet -- ist
-vom äußersten dieser Gruppe gegen N. (Nr. 11. b.) auf 2200 Klafter entfernt, indeß der äußerste gegen W. (Nr. 25)
-vom äußersten gegen O. (Nr. 18) nur 1300 Klafter absteht. Jener äußerste dieser Gruppe gegen N. (Nr. 11. b.) ist
-von dem äußersten der vorigen, mittleren Gruppe gegen S. (Nr. 62. b.) ebenfalls auf beynahe 1000 Klafter entfernt,
-so daß demnach auch hier, wie zwischen letzterer und der ersten Gruppe am Nordende, ein ähnlicher steinfreyer Zwischen-
-raum von beyläufig 2 Millionen Quadrat-Klafter bemerkbar wird (2).
-Jene durch die äußersten Fallsstellen in N. und S. --- nach Angabe des Planes --- der Länge nach durch das
-Feld gezogene Linie durchschneidet eben so wenig den als wahrscheinlich anzunehmenden Mittelpunct dieser Gruppen als
-jenen des Feldes im Ganzen; um diesen Forderungen zu entsprechen, müßte eine andere angenommen werden, welche
-in N. um einige Grade mehr westlich fiele, welches den, in mehrfacher Beziehung auch wirklich sehr wahrscheinlichen
-Umstand voraussetzen würde, daß am Nordende des Feldes noch einige Steine, gegen Willenz und Porenz zu,
-gefallen wären, die nicht zur Notiz kamen oder deren Fallsstellen wenigstens nicht ausgemittelt werden konnten (3).
-(1) Wahrscheinlich weil der Stein Nr. 1 ziemlich horizontal und der ursprünglichen Bewegung des Meteors entsprechend, folglich
-mit verstärkter Wurfkraft, vorwärts geschleudert wurde, daher die schiefste Richtung oder längste Parabel im Falle beschrieb
-und folglich am weitesten flog, wie dessen Fausstelle denn auch in gerader Linie bey 1600 Klafter vom annehmbaren Centro
-dieser Gruppe entfernt liegt.
-(2) Die Gleichheit dieser steinfreyen Räume zwischen den Gruppen, so wie die der Abstände dieser von einander, sowohl ihrem
-wahrscheinlichen Mittelpunete as ihren cisfausseuen nach, ist meines Erachtens sehr merkwürdig, indem sie auf gleiche In-
-terraue zwischen den Explosionen schließen läßt, welche übrigens auch die Aussagen über das Vernehmen der drei Haupt-De-
-tonen e- Dauer er ischnzeil ach, dencnten.
-(3) Obgleich nach alle dem, was bereits über die Explosionen des Meteors und über die so mannigfach modificirte und complicirte
-Wurfs-und Fallsbewegung, mit welcher die von demselben weggeschleuderten Bruchstücke zur Erde kommen, als wahrschein
-ih vorgebeach orden ia,ee dassesi,s
-noch eh- ienen, diesen in senerechter Hshe eenerirenden der Erplosionen selbst, mit voller Zuversicht zu bestimmen; so kann
-man doch mit auer Wahrscheinlichkeit erstern dort annehmen, wo die meisten Fallsstellen und diese im Durchschnitte a dice.
-testen beysammen liegen, letztern aber etwas hinter diesem Puncte, da wohl vorausgesetzt werden kann, dag ie eigenthum.
-uche Beegung der Mase auf aue von ihr getrennten Bruchstücke mehr oder weniger Einsus ehat ase. der ttepunete
-der mittlern Gruppe möchte demnach etwa 60o Klafter O. N. O. von der Kirche von Stannern und etwa 1000 Klafter N.
-von Sorez und 600 S. S. W. von Falkenau zu setzen sein; so daß der äußerste Stein dieser Gruppe in W. 15 bis 1600,
-der angersie in O. 1oo bis , der sidnchae i 6oo, der nördlichste etwa 8oo Klafter davon entfernt zu liegen
-eantfe; ensernungen die den dentbaren Wurfs und Fausbewegungen der dieser Gruppe angehörigen Bruchstucke ganz gut
-enesorechen mnschten. Der Mittelpunet der drieten ruppe könnte sich um die Falsseue me. g gache werden, ssses
-Klafter N. von Lang-Pirnitz, 2800 Klafter vom Mittelpuncte der vorigen; so daß der äußerste Stein in W. etwa 800, der
-n . 500, der sudlichste 1600, der nsedichne so after davon zu liegen käme. Zieht man nun eine gerade Linie durch
-diese beyden Punete un verlängert sie bi- ans modene e- epeschen Feldes, e ihr endpunet hier gegen eiuenz zu,
-etwa 600 Klafter öslich von diesem Orte, und ewa 200 Klafter W. N. W. von der Faussteue e. 6 faae iese eini.
--- welche etwa um 3 oder 4 Grade von der hier angegebenen Richtung des magnetischen Meridianes abwiche würde nun
-nicht nur die beyden in Hinsicht der gefallenen Steine am besten beobachteten und den Fallsstellen nach am genauesten ausge-
-mittelten Gruppen in ihren wahrscheinlichen Mittelpunete durchschneiden, sondern auch ie Zaht der Fausstenen und sebs en
-befallenen Flächenraum - obgleich lenteres von weniger Belang ist -- in zwei ziemlich gieiche Hälften cheilen, und somie
-mit vieer Wahrscheinlichkeit as die wahre Bahn des Meteors bezeichnend angesehen werden ksnnen. Es würde dieselbe nur
-voraussetzen, daß auf jenen durch sie bezeichneten Punct, oder vielmehr noch mehr westlich, gegen Willenz oder Porenz zu,
-einige Steine mit der ersten Explosion innerhalb der Gränzen des elliptischen Feldes gefallen seyen. und dieß war höchst wahr-
-cheinlich wirklich der Fau; denn nicht nne, daß von dieser eu- nur vier Seeine auegenmtrele erden konnten, eren dah,
-in erhältnis Mased dr arrien, nicht gar so wenige gefallen sein konnen, und das deren Falsstenen so nah-
-seysamnen und aue nach einer Seite hin liegen, so daß taum ein Mittelpunet oder eine Durchschnitslinie, am wenigsten
-ene solche denkbar wäre, wchch ennr der ubeigen ni- eniger Manen enpeaceahs a s he m ggii,, s
-in dieser Gegend mehrere Steine unbeobachter niederfelen oder nicht aufgefunden eden, da diese Gegend weit weniger be-
-sin ien denisintts ssscien ee, e sics een an din ei-
-ten Wege zur Kirche nach Stannern befanden, auch har sicy m Verfolg der Nachforschungen ergeben, daß hier nach der
-and wieeich nsc einogh Steine afgeeennden urden, von welchen aber teine nahere Noti erhalten werden konnte, so wie
-auch gleich Anen- an ae dd p eeeenele selsst, nehrere ilni- un nchhäec- von Fuhsienten, die gerad- diese-
-ges und nahmentlich von Willenz kamen und weiter zogen, von daher nach Stannern gebracht, daselbst gezeigt und weiter
+*) Obgleich, auch in Annahme obiger Voraussetzung, eine solche, die größere Achse der Ellipse, und somit wohl auch beiläufig den Zug des Meteors bezeichnende Linie, überhaupt nur höchst unsicher auf die wahre Bahn des Meteors schließen ließe, indem dieß voraussetzen würde, daß die äußersten Puncte derselben durch Steine bestimmt worden wären, die in einer ihr vollkommen entsprechenden Richtung von der Masse abgeschleudert wurden --- was wohl bei einem ähnlichen Vorfalle je erweislich sein möchte --- so wäre dieß hier um so weniger zuläßlich, da ein Drittel der wahrscheinlich gefallenen Steine, wenigstens ihren Fallsstellen nach, nicht ausgemittelt werden konnten, wovon doch leicht einige --- welches hier, wie aus dem Folgenden erhellen wird, wirklich höchst wahrscheinlich der Fall war --- wenn gleich noch innerhalb des Feldes, doch so zu liegen gekomen sein konnten, daß sie die Richtung jener Linie abändern würden, wenn auch keiner davon, als der Bahn vollkommen entsprechend, den wahren Endpunct derselben bezeichnet haben sollte.
 
+Bei einiger Aufmerksamkeit auf die Puncte, welche die Fallsstellen der Steine bezeichnen, bemerkt man bald, daß sie nicht durchaus und gleichförmig über das Feld verbreitet, sondern vielmehr deutlich in drei Gruppen vertheilt sind, die durch beträchtliche, ganz freye Zwischenräume von einander getrennt werden und in deren Mittel sie zum Theil --- wenigstens auf der Karte --- ziemlich dicht erscheinen, indeß sie außerhalb desselben sehr weitschichtig und nach allen Richtungen um selbes herum zerstreut vorkommen.*
 
-### 0106
+*) Diese Gruppen oder partienweisen Steinniederfälle entsprächen nun wirklich den angenommenen successiven Zerplatzungen des Meteors um so mehr, als diese selbst durch eben so viele Haupt-Detonationen während des Ereignisses, die gleich starken Kanonenschüssen oder gewaltigen Donnerschlägen selbst auf sehr weite Entfernung --- nach gewissen Richtungen auf 10 bis 14 Meilen weit --- ziemlich allgemein vernommen worden waren, bezeichnet wurden; so wie wohl auch die gedrängtere Lage der Fallsstellen unmittelbar und gleichsam im Centro dieser Gruppen, dagegen die weite Zerstrenung vieler anderer, offenbar dazu gehöriger, um dasselbe in sehr verschiedenen Abständen, obige Schlußfolgerung in Betreff der so mannigfaltigen und complicirten Wurfs- und Fallsbewegung der Bruchstücke, und vollends das eigene, nach einstimmiger Aussage, einem Peloton- oder kleinem Gewehrfener ähniche, fortgesetzte Getöse, die Annahme einer wiederhohlten Zersprengung vieler einzelner Steine während ihres Falles zu bekräftigen scheinen.
 
-91
-Aus einer Uebersicht der dem Plane beygefügten Tabelle ergibt sich, daß die vier am nördlichen Ende des ellipti-
-schen Feldes niedergefallenen und die erste Gruppe bildenden Steine alle ansehnlich groß und gewichtig waren (der größte
-von 13 Pfund, der kleinste --- der wohl nur ein Bruchstück eines später im Falle zersprungenen Steines gewesen sein
-dürfte --- von 28 Loth), und zusammen bey 27 Pfund wogen. Die 36 Steine der mittleren oder zweiten Gruppe
-betragen dagegen am Gewichte zusammen nur etwas über 55 Pfund, und es waren meistens kleinere oder doch nur
-mittelgroße Steine, im Durchschnitte von 1 bis 3 Pfund (nur 8 von 2 Pfund und darüber, 3 von 3 und 2 von 4
-Pfund, der größte von 44 Pfund; dagegen aber auch keiner unter 8 Loth, nur 8 unter 16 Loth, 13 unter einem
-Pfund). Jene, die dritte, südliche Gruppe bildenden 26 Steine endlich geben ein Gesammtgewicht von kaum mehr als
-11 Pfund und waren fast durchgehends kleine und sehr kleine Steine, im Durchschnitte von 7 bis 12 Loth (12 da-
-von unter 8, 7 unter 16 Loth, nur einer von 14, der größte etwas über 2 Pfund) der kleinste hier aufgezeichnete
-wog 34 Loth, und ohne Zweifel sind hier noch weit kleinere gefallen, die aber entweder nicht aufgefunden oder der Auf-
-zeichnung nicht werth befunden wurden, wie dieß die beyden auf der fünften Tafel, Fig. 3 und 4 abgebildeten, der
-Anzeige nach aus dieser Gegend herstammenden und folglich zu dieser Gruppe gehörigen Steine bewähren, wovon der
-eine kaum 2 Quentchen, der andere kaum 56 Gran wiegt (1).
-Die Tabelle weiset übrigens 63 Finder und 66 Steine, und von letzteren ein Gesammtgewicht von 93 Pfund aus.
-Ich hatte bereits in der ersten von diesem Ereignisse gegebenen Nachricht, nach den Resultaten der an Ort und Stelle
-gepflogenen Untersuchung und nach Erwägung aller Umstände und Verhältnisse, die Total-Zahl der gefallenen Steine
-auf 100 Stück und das Gesammtgewicht derselben auf 150 Pfund geschätzt, ohgleich ich damahls nur von 40 aufge-
-fundenen verläßliche Notiz, und trotz des angelegentlichsten Einsammelns der bereits aufgefunden gewesenen und der eif-
-rigsten Betreibung des Aufsuchens der liegen gebliebenen Steine durch zwei Tage, nur 61 Stück (wovon die smeisten
-nur Fragmente waren), am Gewichte zusammen bey 27 Pfund, aufb-inge konnte (1), und ich fand auch späterhin, nach
-mitgenommen wurden, daher auch diese einer spätern Notiznehmung entgingen. Sowohl in diesem präsumtiven als in dem
-bestehenden Falle --- wie ihn inzwischen der Plan ausweiset --- würde der Mittelpunct dieser Gruppe von jenem der zwei-
-ten oder mittleren in einem ähnlichen Abstande, d. i. von beyläufig 2600 bis 2800 Klafter, wie der von dieser zu jenem der
-dritten Gruppe zu liegen kommen, was auch die oben bemerkte Gleichheit der steinfreyen Räume zwischen denselben und des
-Abstandes der Gruppen en masse, so wie die Gleichheit des Zeit-Momentes im Vernehmen der, die Explosionen bezeichnenden
-Detonationen vermuthen ließen. Der von dem Meteore während diesen Explosionen, die jene Steingruppen als Product
-gaben, auf seinem Zuge zurückgelegte Raum, würde demnach eine Strecke von 5 bis 6000 Klafter in gerader Linie betreffen,
-und da nach einstimmigen Aussagen so vieler Augen- und Ohrenzeugen des Phänomenes, das begleitende Getöse im Ganzen
-s dis 8Minuten dauerte, so bestimmt diese Dauer beyläufig den Zeitraum, welchen das Meteor brauchte, jene Strecke zuruck-
-zulegen; die Schnelligkeit der Bewegung scheint demnach nicht ausnehmend groß gewesen zu sein, man mag die Höhe auch
-als noch so beträchtlich und die Richtung des Zuges auch noch so schief oder parabolisch annehmen, auch wohl voraussetzen,
-daß die Zeitschätzung, wie kaum zu bezweifeln ist, um vieles zu hoch ausgefallen sein möchte.
-() Den sorechendsten Beleg für die nichtigeeit dieses merkwurdigen umstandes, der sich uns bey der Untersuchung des Ereignisses
-an Ort und Stelle sogleich bemerkbar machte (so wie er bereits von dem französischen Physiker Biot -- bey Gelegenheit der
-wissenschaftlichen Untersuchung des Steinfalles bey L'Aigle -- bemerkt worden war) -- daß nähmlich an dem einen Ende der
-großen Achse der Elipse, und zwar -- nach dem bey diesen beyden Ereignissen mit aler Verläßlichkeit besbachteten Zuge des
-Meteors und der ganzen Erscheinung --- mit der ersten Explosion, meistens große und darunter die größten Steine, am ent-
-gegen gesetzten dagegen, mit der letzten Explosion, meistens kleine und die keinsten, im Mittel und als Product der zweiten
-Explosion, aber meistens mittelgroße Steine fielen (woraus allenfalls zu schließen wäre, daß die Masse Anfangs zäher und
-schwerer zersprengbar gewesen sein möchte) -- und zugleich für die Genauigkeit des Planes und der Tabelle (deren mittel-und
-unmittelbare Zustandebringer denn doch keine entfernte Ahndung dieses Umstandes hegen konnten), geben die wirklich vor-
-handenen, gesseen Theils lange vor der Zustandebringung iener und unmittelbar aus erster Hand erhaltenen, oben beschriebe
-nen unverbrochenen Steine von diesem Ereignisse, deren angegebene Fallsstellen genau den Erwartungen (so wie auch voll,
-kommen den über manche persönlich eingehohlten Privat-Notizen) entsprachen, zu welchen das respective Volumen und Gewicht
-derselben in diesen Beziehungen berechtigten. So ist der auf der vierten Tafel abgebildete größte Stein zunächst der äußersten Falls-
-sieue am nöördlichen Ende des Flächenraunes, as tes e- erge- upp- uneer me 5, angelengt, snden sich die Fig.
-auf der fünften und Fig. 1 bis 4 auf der sechsten Tafel abgebildeten größeren Steine sämmtlich im Mittel des elliptischen Feldes,
-als Product der zweiten Explosion unter Nr. 45, 26, 35, 43 und 40; dagegen die kleinern Fig. 1. 2. der fünften Tafel,
-im südlichen Ende und unter der letzten Gruppe des Feldes unter Nr. 19 und 16 angedeutet, und die beyden kleinsten, Fig. 3. 4.
-derselben Tafel, wenigstens als in dieser Gegend, nähmlich in der Nähe von Lang-Pirnitz aufgefunden, angegeben.
-De unstände und Berhaienise, welche damal- nsh n eie des, edee eugierde, noh weniger
-durch Eigennutz gereitzten Landvolkes jener Gegend keine absichtliche Verheimlichung oder Zurückhaltung der aufgefundenen
-Steine zu besorgen war, indem man vielmnehe das Förm iche der Verhandiunn, ,s ngelegentliche des ufssuchens und Ein-
-treibens solcher an sich ganz werthloser (der vorherrschenden Meinung nach für angebrannte Mauerstücke eines in die Luft ge-
+Die eine Gruppe findet sich am nördlichen Ende des Feldes, bei dem Orte Neustift und zwischen diesem und dem Orte Roschitz, und begreift vier Fallsstellen, die sich ziemlich nahe sind, so daß die einzelnen Steine kaum 300 bis 400 Klafter weit von einander entfernt zu liegen kamen, und einen Flächenraum von etwa 200,000 Quadrat-Klafter einschließen. Die zweite Gruppe zeigt sich ziemlich genau im Mittel des elliptischen Feldes und ungleich beträchtlicher an Zahl der Fallsstellen sowohl als an Ausdehnung, in und um Stannern, bei Sorez, Falkenau und bis über Mitteldorf und Otten in W. und gegen Hasliz in O. hinaus. Sie begreift 36 Fallsstellen, wovon 16 gewisser Maßen die Hauptgruppe oder das Mittel derselben bilden, die sich zum Theil besonders nahe sind, nähmlich auf 100, 200 bis 300 Klafter, und zusammen einen Flächenraum von kaum 600,000 Quadrat-Klaster einschließen; die übrigen liegen mehr zerstreut und in weit größern Entfernungen, so daß manche 400 bis 600 Klafter von einander und die äußersten in O. und W. (Nr. 51 und 63) von einem als wahrscheinlich anzunehmenden Mittelpuncte der Gruppe, über 1000 und bei 1600 Klafter abstehen, und so daß alle 36 Fallsstellen einen Flächenraum von nahe an 5 bis 6 Millionen Quadrat-Klafter einnehmen.* Die äußerste, höchst wahrscheinlich zu dieser Gruppe gehörige Fallsstelle gegen N. (Nr. 55) steht von der äußersten der vorigen Gruppe gegen S. (Nr. 61) über 1000 Klafter ab, so daß im elliptischen Felde zwischen diesen beiden Gruppen ein steinfreyer Zwischenraum von wenigstens 2 Millionen Ouadrat-Klafter auffällt. Die dritte Gruppe endlich findet sich gegen das südliche Ende des Feldes, zwischen und über den Orten Hungerleiden, Lang- und Klein-Pirnitz, und zeigt sich ebenfalls sehr beträchtlich an Zahl der Puncte und an Ausdehnung. Erstere beläuft sich auf 26, wovon wieder mehrere, zumahl 10, sich ziemlich nahe, nur auf 100, 200 Klafter Entfernung von einander liegen, so daß sie einen Flächenraum von kaum 2 bis 300,000 Quadrat-Klafter einschließen. Die übrigen liegen wieder mehr zerstreut und entfernter von einander, so daß alle zusammen einen Flächenraum von etwa 2 bis 3 Millionen Quadrat-Klafter einnehmen möchten. Diese Gruppe hat sich übrigens mehr in die Länge als in die Breite ausgedehnt,* denn der entfernteste Fallspunct gegen S. (Nr. 1) --- der überhaupt auch sehr weit, bei 1600 Klafter, vom wahrscheinlichen Mittelpuncte derselben sich befindet --- ist vom äußersten dieser Gruppe gegen N. (Nr. 11. b.) auf 2200 Klafter entfernt, indeß der äußerste gegen W. (Nr. 25) vom äußersten gegen O. (Nr. 18) nur 1300 Klafter absteht. Jener äußerste dieser Gruppe gegen N. (Nr. 11. b.) ist von dem äußersten der vorigen, mittleren Gruppe gegen S. (Nr. 62. b.) ebenfalls auf beinahe 1000 Klafter entfernt, so daß demnach auch hier, wie zwischen letzterer und der ersten Gruppe am Nordende, ein ähnlicher steinfreier Zwischenraum von beiläufig 2 Millionen Quadrat-Klafter bemerkbar wird.*
 
+*) Diese beträchtlichen Fallsentfernungen setzen eine, den einzelnen Bruchstücken mitgetheilte, horizontale Bewegung und eine Wurfkraft voraus, die sich, bei der Höhe in der jene Explosionen, welche selbe bewirken sollen, vorzugehen scheinen, einerseits mit dem specifischen Gewichte dieser Massen und der daraus resultirenden und jener entgegen wirkenden Schwerkraft, andererseits mit der leichten Zersprengbarkeit, dem lockern Cohäsions-Zustande, in welchem sie wenigsens zur Erde kommen, nicht wohl zusammen reimen lassen. Und noch mehr als diese beträchtlichen Fallsentfernungen der Steine sprechen für die Gewalt, welche die Explosionen der Masse bewirkt, die ausnehmende Stärke und die weite Ausdehnung des Getöses, das dieselben bezeichnet, und welches bei allen ähnlichen Ereignissen in einem ziemlich gleichen Grade und von auffallend gleichförmiger Art beobachtet wurde. So verbreitete sich bei diesem Ereignisse --- nach den Resultaten einer im Laufe desselben Jahres noch von dem Kreisamte zu Iglau einvernehmlich mit den angränzenden Kreisämtern von Znaim in Mähren, Czaslau und Tabor in Böhmen, und von Korneuburg und Krems in Oesterreich (deren so wie aller untergeordneten Behörden thätige Mitwirkung über hundert, mit Protokollen und andern Documenten belegte, Amtsberichte bewährten) in dieser Beziehung gepflogene Untersuchungsverhandlung --- das Getöse --- wenigstens jenes der Haupt-Detonationen --- von Stannern aus --- den Ort selbst als Mittelpunct angenommen --- in N. gegen Czaslau auf 4, in O. gegen Brünn auf 8, in S. gegen Stockerau und in W. gegen Tabor selbst bis auf 14 Meilen weit, und zwar mit solcher Stärke noch, daß mit demselben, wenigstens nach jenen weitern Richtungen hin, auf eine Entfernung von 8 bis 12 Meilen von jenem Mittelpuncte, eine Erschütterung der Gebäude und ein Klirren der Fenster bemerkt wurde. (Merkwürdig ist, daß die Gränzen des Flächenraumes, über welchen sich dieses Getöse ausgebreitet hatte, die ich nach den, mit den Berichten erhaltenen, sehr genauen Angaben und nach den bezeichneten Ortschaften auf eine Karte übertrug, eine ähnliche und jener des von den Steinen befallenen Flächenraumes entsprechende Ellipse gaben, deren größere Achse ebenfalls wie die von jener von N. N. W. gegen S. S. O. und derselben sehr parallel lief, und daß damit auch ganz auffallend die Richtung und Ausdehnung des in Begleitung des Phänomenes beobachteten und unbezweifelbar mit demselben zusammenhangenden Nebels überein kam, der nur auf engere Gränzen als das Getöse beschränkt war, indem sich derselbe in S. auf 8, in N. kaum auf 4, in W. nur wenig weiter, in O. nicht einmahl so weit erstreckte. Daß der Nebel sowohl als vorzüglich das Getöse sich bedeutend weiter gegen S. und W. als gegen N. und O. ausgedehnt haben, mag wohl Nebenumständen zuzuschreiben sein, die leicht darauf Einfluß gehabt haben konnten, z. B. dem Luftstrome --- obgleich während der Dauer des Ereignisses, so wie selbst den ganzen Tag über, wenigstens in der niederern Region, die Atmosphäre vollkommen ruhig war --- zum Theil auch dem Niveau des Terrains, das sich gegen O. und vorzüglich gegen N. beträchtlich erhebt --- obgleich diese Erhebung bei der Höhe, in welcher die Explosionen Statt gefunden zu haben scheinen, geradezu keinen großen Einfuß auf die Verbreitung des Schalles gehabt haben kann. ---)  
+Wenn man nun erwäget, daß der Umfang der bei diesem Erignisse niedergefallenen Masse im Ganzen (als Feuerkugel) --- deren Form als sphäroidisch sich gedacht und die physische Beschaffenheit ihrer Substanz in dem Zustande angenommen, in welchem die einzelnen Steine als Bruchstücke derselben zur Erde kommen --- nach dem wahrscheinlichen absoluten Gewichte von 150 Pfund im Vergleich mit dem specifischen von 3 : 1 des Wassers, kaum mehr als einen Schuh im Durchmesser (in Dampfgestalt --- bei gewöhnlicher Compression --- etwa 6000 Kubik-Schuh körperlichen Inhalt) gehabt haben konnte (und bei den meisten ähnlichen Ereignissen muß dieser noch ungleich kleiner gewesen sein, indem die theils im Ganzen theils in nur wenigen einzelnen Stücken herabgefallene Masse oft nur wenige Pfund betrug); so möchte man sich wohl bestimmt finden von der Idee, diese Gewalt als eine bloß mechanische zu betrachten, abzugehen und dieselbe vielmehr als die Wirkung einnes uns ganz fremden, großen chemischen Prozeses anzusehen, dessen Resultat vielleicht die Bildung der nächsten Bestandtheile, in welchen sich uns die meteorischen Massen, wenn sie einmahl zur Erde gekommen sind, zu erkennen geben, aus den uns zur Zeit noch unbekannten Urstoffen (Chladnis Ur-Materie) sein dürfte, und wobei die Explosion und Zertrümmerung der Masse nur Nebenwirkung wäre.
 
-### 0107
+*) Wahrscheinlich weil der Stein Nr. 1 ziemlich horizontal und der ursprünglichen Bewegung des Meteors entsprechend, folglich mit verstärkter Wurfkraft, vorwärts geschleudert wurde, daher die schiefste Richtung oder längste Parabel im Falle beschrieb und folglich am weitesten flog, wie dessen Fallsstelle denn auch in gerader Linie bei 1600 Klafter vom annehmbaren Centro dieser Gruppe entfernt liegt.
 
-92
-den nachträglich erhaltenen Notizen, keine Ursache davon abzugehen. Durch dieses Verzeichniß, das beynahe ein Jahr
-später zu Stande gebracht wurde -- nachdem zu zwei verschiedenen und den günstigsten Perioden (zur Schnitt- und
-Herbstbestellungszeit der Gründe) das sorgfältigste Aufsuchen der etwa verborgen liegenden Steine in der ganzen Gegend
-veranlaßt und alle Individuen, welche seit dem Momente des Ereignisses Steine aufgefunden hatten, oder auch nur um
-die Auffindung von welchen wußten, zu wiederhohlten Mahlen ämtlich vernommen worden waren --- erhielt ich vollends
-in jeder Beziehung die vollkommenste Bestätigung, und finde auch jetzt, nach einer Zwischenzeit von 12 Jahren, wäh-
-rend welcher ich nicht versäumte, mittel- und unmittelbar meine Nachforschungen über die Besitzverbreitung der Steine
-von diesem Ereignisse fortzusetzen, keinen Grund, jene Annahme auch nur im geringsten abzuändern (1).
-Wenn man nun bedenkt, daß jene 100 Steine einen Flächenraum von mehr denn zwölf -- oder wenn man streng
-sein und die steinfreyen Räume zwischen den Gruppen in Abrechnung bringen will -- doch wenigstens von acht Mil-
-lionen Quadrat-Klafter trafen, und daß, selbst da wo sie am dichtesten fielen, die einzelnen doch 100 bis300 Klafter von
-einander zu liegen kamen (2); so wird man es wohl nicht gar so sonderbar finden, daß bey solchen Ereignissen, wenn sich
-dieselben selbst bey Tage und in bewohnten Gegenden zutragen, so selten Menschen oder Vieh von den Steinen getroffen
-werden, so wie man wohl auch in dieser Hinsicht den Ausdruck Steinregen für nicht ganz passend erachten möchte.
-sprengten Pulver-Magazines angesehene) Steine und die Vergütung für die dabey bezeigte Willfährigkeit und Bemühung
-ss simlis t ,sie sds seälscisssk. .. einls. -n-tint
-dichenrenein- -dr heti is lei cse sis l e ssie n ii ii- ai--
-n z . z,"n n ,
-"rade ehrend des Berlanfes des den, en iefau-
-nen Flächenraum begränzenden Ortschaften auf den Gange ur Pfarrkirche nach, S. ., n,rn begrisen, grsßten Theils schon
-i dgens esclien, nn nn enene , enhh den nenein, meh de euiaeneren sn n. in s. äi s e ss ie sen
-Rücken dahin gekehrt war -- so daß folglich in jenem beschränkteren Bezirke die mestndi esällt er n, in ieder
-eeauen ein so ferne dieß an sich - wie wirklich mehrentheils -- der Fau war) seosachtet und daher gleich aufgehoben oder
-ah spater noch bald aufgefunden, in ersteren Gegenden dagegen nur wenige, von den zurack gebliebenen und zfauig gerade
-iißen ses uesnmenden Bewohnern, in san- benn-tt u daher nhentlelts ns äis mne sss eien s asihe-
-liches Aufsuchen, gefunden werden konnten. (Dieß bewährte sich auch in der Folge durch die pater aufgefundenen un eingetie-
-ferten Steine, die aue aus diesen Gegenden bersammten, s wie dinrs ncric. ä. . i. i ter gsscheneet-
-r dnnnlnsr n ceniche n nennins kamen, "ach- in elg- er aumahuichen Auftlärung und des gereitten Eigen-
-nutzes späterer Finder - auf Nebenwegen in fremden Besitz gerathen waren; und ohne Zweifel kommen, wo nicht alle, doch
-d. eiien Steine ienes Deitels der wahrscheinlichen Total-3ahl, die, "ernigsens den gnssr s,
-nicht mit Verläßlichkeit ausgemittelt werden konnten, dahin zu versetzen.) Ein dritter zu berücksichtigender umstand war end-
-lich jener, daß eben während und unmittelbar nach der Begebenheit die durch das Wunderbane un ärmende die ganze
-Gegend auf ziemlich weite Entfernung, wenigstens für den ersten Tag, in Angst und Staunen versetzte - mehrere eisend.
-auf der Poststraße ab und zu, und mehrere Fuhrleute des Weges von Willenz her, durch diese Gegend kamen, welche theils
-sebst aufgefundene, theils mitgetheilt erhaltene Steine, die ihnen denn doch mehr oder weniger sondersar (nd vieneiche niche
-ganz so wie angebrannte Mauerstucke) vorgekonmmen sein mochten, der Merkwurdigkeit wegen ind as er e-enynen
-ganz oder zum Theil beobachteten Erscheinung, mit sich fortnahmen. Einem dieser Reisenden desen Aufmerksamkeit glick-
-icheneie iehaer und von einer ichhigeen nscch aus angergt wurde, obgleih derses- deer An n sh oieni ecs oireneegeedes
-phanomenne, ondder Zeuge des einen einucesei, e-
-so beträchtlichen Strecke allgemein verbreitet hatte, und ein Bruchstück eines der gefauenen Steine migetheit eehieei - hatte
-man auch die erste, verläßliche und hinlänglich frühzeitige Nachricht von diesem Ereignisse zu verdanken, ohne elche die o-
-ti davon -- wie von so vielen ähnlichen - höchst wahrscheinlich auf iene Gegend und den schneul verlsschenden Eindruck be-
-schränkt, für die Geschichte und für die Wissenschaft unbenutzt geblieben wäre.
-(1) Unter mehr denn 40 ähnlichen Ereignissen, die sich in der neuesten Zeit, den letzten 30 Jahren, zutrugen und wovon wir nä-
-een- u lnichelchihhirn seen, e- - sodes
-eines der bedeutendsten und ergiebigsten; nur jenes, das 1790 in der Gegend von Barsotan, as vollends jenes, walches
-1803 bey Lzigle in Frankreich sich ergab, haben dasselbe in beyden Rücksicheen ubertrosen, und ien- die sich, 194zu Siena
-in Toskanischen, i8s, zu Weson in od-Amerika, 1812 zu Toulouse in Frantreich, 1813 z eimerik in Irland und 1814
-zu Agen in Frankreich zutrugen, möchten demselben gleich gesteut werden da.e
-( Diese weitschichtige Zerstreuung der Steine uber den befauenen Flächenraum bey Ereignissen der Art, wo deren mehrere und
-ss eas in großer Menge fielen, e . B. bey ienen von Euiale, wo zwichen io 3ooo iser einen Flächenraum
-von franz. Meilen in der Länge und von einer in der Breite vertheilt waren, scheine einerseits auf eine beträchtlicheHöhe,
-n eihe espossenen o- sch gehen, hinzudeuten, andererseits aber wohl auch die in Obigen vorausgesetzte, höchst man-
-nigfaltig und vielseitig wirkende Wurfkraft zu bestätigen.
+*) Die Gleichheit dieser steinfreien Räume zwischen den Gruppen, so wie die der Abstände dieser von einander, sowohl ihrem wahrscheinlichen Mittelpunete als ihren Endfallsstellen nach, ist meines Erachtens sehr merkwürdig, indem sie auf gleiche Intervalle zwischen den Explosionen schließen läßt, welche übrigens auch die Aussagen über das Vernehmen der drei Haupt-Detonationen der Dauer der Zwischenzeit nach, bestätigten.
 
+Jene durch die äußersten Fallsstellen in N. und S. --- nach Angabe des Planes --- der Länge nach durch das Feld gezogene Linie durchschneidet eben so wenig den als wahrscheinlich anzunehmenden Mittelpunct dieser Gruppen als jenen des Feldes im Ganzen; um diesen Forderungen zu entsprechen, müßte eine andere angenommen werden, welche in N. um einige Grade mehr westlich fiele, welches den, in mehrfacher Beziehung auch wirklich sehr wahrscheinlichen Umstand voraussetzen würde, daß am Nordende des Feldes noch einige Steine, gegen Willenz und Porenz zu, gefallen wären, die nicht zur Notiz kamen oder deren Fallsstellen wenigstens nicht ausgemittelt werden konnten.*
 
-### 0108
+*) Obgleich nach alle dem, was bereits über die Explosionen des Meteors und über die so mannigfach modificirte und complicirte Wurfs- und Fallsbewegung, mit welcher die von demselben weggeschleuderten Bruchstücke zur Erde kommen, als wahrscheinlich vorgebrach worden ist, es wohl unmöglich sein dürfte, den wahren Mittelpunct dieser Gruppen von Fallsstellen, und noch mehr jenen, diesen in senkrechter Höhe centrirenden der Explosionen selbst, mit voller Zuversicht zu bestimmen; so kann man doch mit aller Wahrscheinlichkeit erstern dort annehmen, wo die meisten Fallsstellen und diese im Durchschnitte am dichtesten beisammen liegen, letztern aber etwas hinter diesem Puncte, da wohl vorausgesetzt werden kann, daß die eigenthümliche Bewegung der Masse auf alle von ihr getrennten Bruchstücke mehr oder weniger Einfluß gehabt habe. Der Mittelpunct der mittlern Gruppe möchte demnach etwa 600 Klafter O. N. O. von der Kirche von Stannern und etwa 1000 Klafter N. von Sorez und 600 S. S. W. von Falkenau zu setzen sein; so daß der äußerste Stein dieser Gruppe in W. 15 bis 1600, der äußerste in O. 1000 bis 1100, der südlichste 12 bis 1600, der nördlichste etwa 800 Klafter davon entfernt zu liegen käme; Entfernungen die den denkbaren Wurfs- und Fallsbewegungen der dieser Gruppe angehörigen Bruchstücke ganz gut entsprechen möchten. Der Mittelpunet der dritten Gruppe könnte sich um die Fallsstelle Nr. 11 a. gedacht werden, etwa 400 Klafter N. von Lang-Pirnitz, 2800 Klafter vom Mittelpuncte der vorigen; so daß der äußerste Stein in W. etwa 800, der in O. 500, der südlichste 1600, der nördlichste 600 Klafter davon zu liegen käme. Zieht man nun eine gerade Linie durch diese beiden Puncte und verlängert sie bis ans Nordende des elliptischen Feldes; so würde ihr Endpunct hier gegen Willenz zu, etwa 600 Klafter östlich von diesem Orte, und ewa 200 Klafter W. N. W. von der Fallsstelle Nr. 60 fallen. Diese Linie --- welche etwa um 3 oder 4 Grade von der hier angegebenen Richtung des magnetischen Meridianes abwiche --- würde nun nicht nur die beiden in Hinsicht der gefallenen Steine am besten beobachteten und den Fallsstellen nach am genauesten ausgemittelten Gruppen in ihrem wahrscheinlichen Mittelpuncte durchschneiden, sondern auch die Zahl der Fallsstellen und selbst den befallenen Flächenraum --- obgleich letzteres von weniger Belang ist -- in zwei ziemlich gleiche Hälften theilen, und somit mit vieler Wahrscheinlichkeit als die wahre Bahn des Meteors bezeichnend angesehen werden können. Es würde dieselbe nur voraussetzen, daß auf jenen durch sie bezeichneten Punct, oder vielmehr noch mehr westlich, gegen Willenz oder Porenz zu, einige Steine mit der ersten Explosion innerhalb der Gränzen des elliptischen Feldes gefallen seien. Und dieß war höchst wahrcheinlich wirklich der Fall; denn nicht nur, daß von dieser Gruppe nur vier Steine ausgemittelt werden konnten, deren doch, im Verhältniß zur Zahl und Masse der übrigen, nicht gar so wenige gefallen sein können, und daß deren Fallsstellen so nahe beisammen und alle nach einer Seite hin liegen, so daß kaum ein Mittelpunct oder eine Durchschnittslinie, am wenigsten eine solche denkbar wäre, welche jener der übrigen Gruppen nur einiger Maßen entspräche; so ist es auch sehr möglich, daß in dieser Gegend mehrere Steine unbeobachter niederfelen oder nicht aufgefunden wurden, da diese Gegend weit weniger bevölkert ist und während der Momente des Ereignisses beinahe ganz von den Einwohnern verlassen war, die sich eben auf dem weiten Wege zur Kirche nach Stannern befanden; auch hat sich im Verfolg der Nachforschungen ergeben, daß hier nach der Hand wirklich noch einige Steine aufgefunden wurden, von welchen aber keine nähere Notiz erhalten werden könnte, so wie auch gleich Anfangs am Tage der Begebenheit selbst, mehrere Steine und Bruchstücke von Fuhrleuten, die gerade dieses Weges und nahmentlich von Willenz kamen und weiter zogen, von daher nach Stannern gebracht, daselbst gezeigt und weiter mitgenommen wurden, daher auch diese einer spätern Notiznehmung entgingen. Sowohl in diesem präsumtiven als in dem bestehenden Falle --- wie ihn inzwischen der Plan ausweiset --- würde der Mittelpunct dieser Gruppe von jenem der zweiten oder mittleren in einem ähnlichen Abstande, d. i. von beiläufig 2600 bis 2800 Klafter, wie der von dieser zu jenem der dritten Gruppe zu liegen kommen, was auch die oben bemerkte Gleichheit der steinfreien Räume zwischen denselben und des Abstandes der Gruppen _en masse_, so wie die Gleichheit des Zeit-Momentes im Vernehmen der, die Explosionen bezeichnenden Detonationen vermuthen ließen. Der von dem Meteore während diesen Explosionen, die jene Steingruppen als Product gaben, auf seinem Zuge zurückgelegte Raum, würde demnach eine Strecke von 5 bis 6000 Klafter in gerader Linie betreffen, und da nach einstimmigen Aussagen so vieler Augen- und Ohrenzeugen des Phänomenes, das begleitende Getöse im Ganzen 6 bis 8 Minuten dauerte, so bestimmt diese Dauer beiläufig den Zeitraum, welchen das Meteor brauchte, jene Strecke zurückzulegen; die Schnelligkeit der Bewegung scheint demnach nicht ausnehmend groß gewesen zu sein, man mag die Höhe auch als noch so beträchtlich und die Richtung des Zuges auch noch so schief oder parabolisch annehmen, auch wohl voraussetzen, daß die Zeitschätzung, wie kaum zu bezweifeln ist, um vieles zu hoch ausgefallen sein möchte.
 
-Erklärung der Titel-Vignette.
+Aus einer Uebersicht der dem Plane beigefügten Tabelle ergibt sich, daß die vier am nördlichen Ende des elliptischen Feldes niedergefallenen und die erste Gruppe bildenden Steine alle ansehnlich groß und gewichtig waren (der größte von 13 Pfund, der kleinste --- der wohl nur ein Bruchstück eines später im Falle zersprungenen Steines gewesen sein dürfte --- von 28 Loth), und zusammen bei 27 Pfund wogen. Die 36 Steine der mittleren oder zweiten Gruppe betragen dagegen am Gewichte zusammen nur etwas über 55 Pfund, und es waren meistens kleinere oder doch nur mittelgroße Steine, im Durchschnitte von 1 bis 3 Pfund (nur 8 von 2 Pfund und darüber, 3 von 3 und 2 von 4 Pfund, der größte von 4 1/2 Pfund; dagegen aber auch keiner unter 8 Loth, nur 8 unter 16 Loth, 13 unter einem Pfund). Jene, die dritte, südliche Gruppe bildenden 26 Steine endlich geben ein Gesammtgewicht von kaum mehr als 11 Pfund und waren fast durchgehends kleine und sehr kleine Steine, im Durchschnitte von 7 bis 12 Loth (12 davon unter 8, 7 unter 16 Loth, nur einer von 1 3/4, der größte etwas über 2 Pfund) der kleinste hier aufgezeichnete wog 3 1/2 Loth, und ohne Zweifel sind hier noch weit kleinere gefallen, die aber entweder nicht aufgefunden oder der Aufzeichnung nicht werth befunden wurden, wie dieß die beiden auf der fünften Tafel, Fig. 3 und 4 abgebildeten, der Anzeige nach aus dieser Gegend herstammenden und folglich zu dieser Gruppe gehörigen Steine bewähren, wovon der eine kaum 2 1/2 Quentchen, der andere kaum 56 Gran wiegt.*
 
-g gelt dieselbe einen massiven, rein aus einem Stücke von der Elbogner Meteor-Eisen-Masse geschnittenen, und
-ohne alle Hämmerung, bloß durch Feilen zu Stande gebrachten Siegel-Ring von antiker Form vor, dessen Obertheil oder
-Kranz eingedreht worden war, und der dann im Ganzen fein poliert und auf der Siegelfläche mit Salpetersäure auf eine
-solche Tiefe geätzt wurde, daß sich das bey solcher Behandlung zum Vorschein kommende krystallinische Gefüge der Me-
-tall-Masse nicht nur deutlich und vollkommen erkennen, sondern sich auch als Zeichnung im geschmolzenen Siegellacke
-gut abdrucken läßt. Als Devise ist auf jene Fläche ein Pfeil - das in der chemischen Bildersprache zur Bezeichnung
-des Eisens (dem Mars geweiht) übliche Symbol --- in Verbindung mit einem Sterne, in der Nichtung des Falles
-- als ein die Natur und zugleich den Ursprung der Masse bezeichnendes Sinnbild -- graviert worden.
-Diesem Ninge zur Seite sind zwei Würfel -- jeder von beyläufig 4 Linien Seite, und woran an dem einen
-noch eine der Ecken abgestumpft worden war --- dargestellt, welche ebenfalls rein aus einem Stücke jener Masse win-
-kelrecht geschnitten, eben und scharfkantig zugefeilt, fein poliert, und dann im Ganzen, auf allen Flächen und Kanten
-zugleich, auf einen ähnlichen Grad geätzt wurden, um die verhältnißmäßige Tiefe zu zeigen, auf welche die verschiede-
-nen, das Gefüge der Masse constituirenden Theile in dieselbe eindringen, und wie diese, auf einer bestimmten und
-im Ganzen gleichförmigen Tiefe von der Oberfläche, gegen einander gelagert, unter einander verbunden und von ein-
-ander geschieden sind. (Siehe Seite 81, Note 2.)
-  
-...
+Die Tabelle weiset übrigens 63 Finder und 66 Steine, und von letzteren ein Gesammtgewicht von 93 Pfund aus. Ich hatte bereits in der ersten von diesem Ereignisse gegebenen Nachricht, nach den Resultaten der an Ort und Stelle gepflogenen Untersuchung und nach Erwägung aller Umstände und Verhältnisse, die Total-Zahl der gefallenen Steine auf 100 Stück und das Gesammtgewicht derselben auf 150 Pfund geschätzt, ohgleich ich damahls nur von 40 aufgefundenen verläßliche Notiz, und trotz des angelegentlichsten Einsammelns der bereits aufgefunden gewesenen und der eifrigsten Betreibung des Aufsuchens der liegen gebliebenen Steine durch zwei Tage, nur 61 Stück (wovon die meisten nur Fragmente waren), am Gewichte zusammen bei 27 Pfund, aufbringen konnte,* und ich fand auch späterhin, nach den nachträglich erhaltenen Notizen, keine Ursache davon abzugehen. Durch dieses Verzeichniß, das beinahe ein Jahr später zu Stande gebracht wurde --- nachdem zu zwei verschiedenen und den günstigsten Perioden (zur Schnitt- und Herbstbestellungszeit der Gründe) das sorgfältigste Aufsuchen der etwa verborgen liegenden Steine in der ganzen Gegend veranlaßt und alle Individuen, welche seit dem Momente des Ereignisses Steine aufgefunden hatten, oder auch nur um die Auffindung von welchen wußten, zu wiederhohlten Mahlen ämtlich vernommen worden waren --- erhielt ich vollends in jeder Beziehung die vollkommenste Bestätigung, und finde auch jetzt, nach einer Zwischenzeit von 12 Jahren, während welcher ich nicht versäumte, mittel- und unmittelbar meine Nachforschungen über die Besitzverbreitung der Steine von diesem Ereignisse fortzusetzen, keinen Grund, jene Annahme auch nur im geringsten abzuändern.*
+
+*) Den sprechendsten Beleg für die Richtigkeit dieses merkwürdigen Umstandes, der sich uns bei der Untersuchung des Ereignisses an Ort und Stelle sogleich bemerkbar machte (so wie er bereits von dem französischen Physiker Biot --- bei Gelegenheit der wissenschaftlichen Untersuchung des Steinfalles bei L'Aigle --- bemerkt worden war) --- daß nähmlich an dem einen Ende der großen Achse der Ellipse, und zwar --- nach dem bei diesen beiden Ereignissen mit aller Verläßlichkeit beobachteten Zuge des Meteors und der ganzen Erscheinung --- mit der ersten Explosion, meistens große und darunter die größten Steine, am entgegen gesetzten dagegen, mit der letzten Explosion, meistens kleine und die kleinsten, im Mittel und als Product der zweiten Explosion, aber meistens mittelgroße Steine fielen (woraus allenfalls zu schließen wäre, daß die Masse Anfangs zäher und schwerer zersprengbar gewesen sein möchte) --- und zugleich für die Genauigkeit des Planes und der Tabelle (deren mittel- und unmittelbare Zustandebringer denn doch keine entfernte Ahndung dieses Umstandes hegen konnten), geben die wirklich vorhandenen, größten Theils lange vor der Zustandebringung jener und unmittelbar aus erster Hand erhaltenen, oben beschriebe nen unverbrochenen Steine von diesem Ereignisse, deren angegebene Fallsstellen genau den Erwartungen (so wie auch vollkommen den über manche persönlich eingehohlten Privat-Notizen) entsprachen, zu welchen das respective Volumen und Gewicht derselben in diesen Beziehungen berechtigten. So ist der auf der vierten Tafel abgebildete größte Stein zunächst der äußersten Fallsstelle am nördlichen Ende des Flächenraumes, als Glied der ersten Gruppe unter Nr. 59 angezeigt, so finden sich die Fig. 5 auf der fünften und Fig. 1 bis 4 auf der sechsten Tafel abgebildeten größeren Steine sämmtlich im Mittel des elliptischen Feldes, als Product der zweiten Explosion unter Nr. 45, 26, 35, 43 und 40; dagegen die kleinern Fig. 1. 2. der fünften Tafel, im südlichen Ende und unter der letzten Gruppe des Feldes unter Nr. 19 und 16 angedeutet, und die beiden kleinsten, Fig. 3. 4. derselben Tafel, wenigstens als in dieser Gegend, nähmlich in der Nähe von Lang-Pirnitz aufgefunden, angegeben.
+
+*) Die Umstände und Verhältnisse, welche damahls --- als noch von Seite des, weder durch besondere Neugierde, noch weniger durch Eigennutz gereitzten Landvolkes jener Gegend keine absichtliche Verheimlichung oder Zurückhaltung der aufgefundenen Steine zu besorgen war, indem man vielmehr das Förmliche der Verhandlung, das Angelegentliche des Aufsuchens und Eintreibens solcher an sich ganz werthloser (der vorherrschenden Meinung nach für angebrannte Mauerstücke eines in die Luft gesprengten Pulver-Magazines angesehene) Steine und die Vergütung für die dabei bezeigte Willfährigkeit und Bemühung höchst sonderlich fand --- bei jener Abschätzung Berücksichtigung heischten, waren: die physische und agronomische Beschaffenheit des Flächenraumes --- der zum Theil mit Gehölze und Waldungen bedeckt, größten Theils aber bebauet und in dieser Jahrszeit von der bereits [...] Saat bedeckt, das Auffinden der Steine schwierig machte --- ferner der Umstand, daß gerade während des Verlaufes des Begebenheit das gesammte Landvolk aus den umliegenden und gerade aus den, den befallenen Flächenraum begränzenden Ortschaften auf den Gange ur Pfarrkirche nach Stannern begriffen, größten Theils schon in dieser Gegend versammelt, und von ersterern, zumahl den entlegeneren in N. und S. schon ziemlich entfernt und mit dem Rücken dahin gekehrt war --- so daß folglich in jenem beschränkteren Bezirke die meisten der gefallenen Steine im Nieder- oder Auffallen (in so ferne dieß an sich --- wie wirklich mehrentheils --- der Fall war) beobachtet und daher gleich aufgehoben oder auch später noch bald aufgefunden, in ersteren Gegenden dagegen nur wenige, von den zurück gebliebenen und zufällig gerade im Freien sich befindenden Bewohnern, im Falle bemerkt und daher mehrentheils nach der Hand nur zufällig oder durch absichtliches Aufsuchen, gefunden werden konnten. (Dieß bewährte sich auch in der Folge durch die später aufgefundenen und eingelieferten Steine, die alle aus diesen Gegenden herstammten, so wie durch manche andere, die mir in dieser Zwischenzeit mittel- oder unmittelbar zu Gesicht und Kenntniß kamen, welche --- in Folge der allmählichen Aufklärung und des gereitzten Eigennutzes späterer Finder --- auf Nebenwegen in fremden Besitz gerathen waren; und ohne Zweifel kommen, wo nicht alle, doch die meisten Steine jenes Drittels der wahrscheinlichen Total-Zahl, die, wenigstens den Findern und den Fallstellen nach, nicht mit Verläßlichkeit ausgemittelt werden konnten, dahin zu versetzen.) Ein dritter zu berücksichtigender Umstand war endlich jener, daß eben während und unmittelbar nach der Begebenheit --- die durch das Wunderbane und Lärmende die ganze Gegend auf ziemlich weite Entfernung, wenigstens für den ersten Tag, in Angst und Staunen versetzte --- mehrere Reisende auf der Poststraße ab und zu, und mehrere Fuhrleute des Weges von Willenz her, durch diese Gegend kamen, welche theils sebst aufgefundene, theils mitgetheilt erhaltene Steine, die ihnen denn doch mehr oder weniger sonderbar (und vielleicht nicht ganz so wie angebrannte Mauerstücke) vorgekommen sein mochten, der Merkwürdigkeit wegen und als Beleg der von ihnen ganz oder zum Theil beobachteten Erscheinung, mit sich fortnahmen. Einem dieser Reisenden --- dessen Aufmerksamkeit glücklicherweise lehafter und von einer richtigern Ansicht aus angeregt wurde, obgleich derselbe weder Augen- noch Ohrenzeuge des Phänomenes, sondern nur Zeuge des ersten Eindruckes war, den dasselbe einige Stunden früher unter den Bewohnern einer so beträchtlichen Strecke allgemein verbreitet hatte, und ein Bruchstück eines der gefallenen Steine migetheilt erhielt --- hatte man auch die erste, verläßliche und hinlänglich frühzeitige Nachricht von diesem Ereignisse zu verdanken, ohne welche die Notiz davon --- wie von so vielen ähnlichen --- höchst wahrscheinlich auf jene Gegend und den schnell verlöschenden Eindruck beschränkt, für die Geschichte und für die Wissenschaft unbenutzt geblieben wäre.
+
+*) Unter mehr denn 40 ähnlichen Ereignissen, die sich in der neuesten Zeit, den letzten 30 Jahren, zutrugen und wovon wir nähere und verläßliche Nachrichten haben, war dieses --- sowohl der Masse im Ganzen als der Zahl der gefallenen Steine nach --- eines der bedeutendsten und ergiebigsten; nur jenes, das 1790 in der Gegend von Barbotan, as vollends jenes, welches 1803 bei L'Aigle in Frankreich sich ergab, haben dasselbe in beiden Rücksichten übertroffen, und jene die sich, 1794 zu Siena im Toskanischen, 1807 zu Weston in Nord-Amerika, 1812 zu Toulouse in Frankreich, 1813 zu Limerik in Irland und 1814 zu Agen in Frankreich zutrugen, möchten demselben gleich gestellt werden dürfen.
+
+Wenn man nun bedenkt, daß jene 100 Steine einen Flächenraum von mehr denn zwölf --- oder wenn man streng sein und die steinfreyen Räume zwischen den Gruppen in Abrechnung bringen will --- doch wenigstens von acht Millionen Quadrat-Klafter trafen, und daß, selbst da wo sie am dichtesten fielen, die einzelnen doch 100 bis 300 Klafter von einander zu liegen kamen*; so wird man es wohl nicht gar so sonderbar finden, daß bei solchen Ereignissen, wenn sich dieselben selbst bei Tage und in bewohnten Gegenden zutragen, so selten Menschen oder Vieh von den Steinen getroffen werden, so wie man wohl auch in dieser Hinsicht den Ausdruck Steinregen für nicht ganz passend erachten möchte.
+
+*) Diese weitschichtige Zerstreuung der Steine über den befallenen Flächenraum bei Ereignissen der Art, wo deren mehrere und wo sie selbst in großer Menge fielen, wie z. B. bei jenen von L'Aigle, wo zwischen 2- und 3000 über einen Flächenraum von 2 1/2 franz. Meilen in der Länge und von einer in der Breite vertheilt waren; scheint einerseits auf eine beträchtliche Höhe, in welcher die Explosionen vor sich gehen, hinzudeuten, andererseits aber wohl auch die im Obigen vorausgesetzte, höchst mannigfaltig und vielseitig wirkende Wurfkraft zu bestätigen.
+
+# Erklärung der Titel-Vignette.
+
+Es stellt dieselbe einen massiven, rein aus einem Stücke von der Elbogner Meteor-Eisen-Masse geschnittenen, und ohne alle Hämmerung, bloß durch Feilen zu Stande gebrachten Siegel-Ring von antiker Form vor, dessen Obertheil oder Kranz eingedreht worden war, und der dann im Ganzen fein poliert und auf der Siegelfläche mit Salpetersäure auf eine solche Tiefe geätzt wurde, daß sich das bei solcher Behandlung zum Vorschein kommende krystallinische Gefüge der Metall-Masse nicht nur deutlich und vollkommen erkennen, sondern sich auch als Zeichnung im geschmolzenen Siegellacke gut abdrucken läßt. Als Devise ist auf jene Fläche ein Pfeil --- das in der chemischen Bildersprache zur Bezeichnung des Eisens (dem Mars geweiht) übliche Symbol --- in Verbindung mit einem Sterne, in der Nichtung des Falles --- als ein die Natur und zugleich den Ursprung der Masse bezeichnendes Sinnbild --- graviert worden.
+
+Diesem Ninge zur Seite sind zwei Würfel --- jeder von beiläufig 4 Linien Seite, und woran an dem einen noch eine der Ecken abgestumpft worden war --- dargestellt, welche ebenfalls rein aus einem Stücke jener Masse winkelrecht geschnitten, eben und scharfkantig zugefeilt, fein poliert, und dann im Ganzen, auf allen Flächen und Kanten zugleich, auf einen ähnlichen Grad geätzt wurden, um die verhältnißmäßige Tiefe zu zeigen, auf welche die verschiedenen, das Gefüge der Masse constituirenden Theile in dieselbe eindringen, und wie diese, auf einer bestimmten und im Ganzen gleichförmigen Tiefe von der Oberfläche, gegen einander gelagert, unter einander verbunden und von einander geschieden sind. (Siehe Seite 81, Note 2.)
