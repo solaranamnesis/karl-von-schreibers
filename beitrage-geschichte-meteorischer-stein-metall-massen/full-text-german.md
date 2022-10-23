@@ -24,7 +24,7 @@ Horat.
 
 ### [Eichstädt.](#eichstädt-1)
 
-### [Siena.](#siena-1)
+### [Siena.](#siena-2)
 
 ## [Dritte Tafel.](#dritte-tafel-1)
 
@@ -32,37 +32,37 @@ Horat.
 
 ## [Vierte Tafel.](#vierte-tafel-1)
 
-### [Stannern.](#stannern-1)
+### [Stannern.](#stannern-3)
 
 ## [Fünfte Tafel.](#fünfte-tafel-1)
 
-### [Erste Figur.](#erste-figur-1)
+### [Erste Figur.](#erste-figur-2)
 
 ### [Zweite Figur. a. b.](#zweite-figur-a-b)
 
-### [Dritte Figur.](#dritte-figur)
+### [Dritte Figur.](#dritte-figur-2)
 
-### [Vierte Figur.](#vierte-figur)
+### [Vierte Figur.](#vierte-figur-2)
 
-### [Fünfte Figur.](#fünfte-figur)
+### [Fünfte Figur.](#fünfte-figur-2)
 
 ## [Sechste Tafel.](#sechste-tafel)
 
-### [Erste Figur.](#erste-figur-2)
+### [Erste Figur.](#erste-figur-3)
 
 ### [Zweite Figur.](#zweite-figur)
 
-### [Dritte Figur.](#dritte-figur-1)
+### [Dritte Figur.](#dritte-figur-3)
 
-### [Vierte Figur.](#vierte-figur-1)
+### [Vierte Figur.](#vierte-figur-3)
 
-### [Fünfte Figur.](#fünfte-figur-1)
+### [Fünfte Figur.](#fünfte-figur-3)
 
 ## [Siebente Tafel.](#siebente-tafel)
 
-## [Stannern.](#stannern-2)
+## [Stannern.](#stannern-4)
 
-## [Siena.](#siena-2)
+## [Siena.](#siena-3)
 
 ## [Benares.](#benares)
 
@@ -72,7 +72,7 @@ Horat.
 
 ## [Sales.](#sales)
 
-## [Stannern.](#stannern-3)
+## [Stannern.](#stannern-5)
 
 ## [Achte und neunte Tafel.](#achte-und-neunte-tafel)
 
