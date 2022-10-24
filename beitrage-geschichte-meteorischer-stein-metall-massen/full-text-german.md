@@ -38,7 +38,7 @@ Horat.
 
 ### [Erste Figur.](#erste-figur-2)
 
-### [Zweite Figur. a. b.](#zweite-figur-a-b)
+### [Zweite Figur. a. b.](#zweite-figur-a-b-1)
 
 ### [Dritte Figur.](#dritte-figur-2)
 
