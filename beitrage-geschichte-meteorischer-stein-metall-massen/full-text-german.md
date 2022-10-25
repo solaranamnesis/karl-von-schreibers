@@ -58,7 +58,7 @@ Horat.
 
 ### [Fünfte Figur.](#fünfte-figur-3)
 
-## [Siebente Tafel.](#siebente-tafel)
+## [Siebente Tafel.](#siebente-tafel-1)
 
 ## [Stannern.](#stannern-4)
 
