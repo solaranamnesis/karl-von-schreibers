@@ -186,9 +186,9 @@ Obgleich von diesen, im Vergleich zur Dicke der Masse, nur oberflächlichen Stel
 
 Die bildliche Darstellung zeigt diese merkwürdige Masse, von der konvexen Fläche betrachtet, in natürlicher Größe.
 
-## Zweite Tafel.
+# Zweite Tafel.
 
-### [Tabor.](https://cdn.solaranamnesis.com/Schreibers/Table2-Tabor.png)
+## [Tabor.](https://cdn.solaranamnesis.com/Schreibers/Table2-Tabor.png)
 
 Einer der größten Steine von dem sehr bekannten und ziemlich ergiebig gewesenen Steinregen,* der sich am 3. Julius 1753 um 8 Uhr Abends bei Tabor (eigentlich um Strkow, nächst Plan, einem zur Herrschaft Seltsch gehörigen, eine Stunde von Tabor entfernten Dorfe) in Böhmen ereignete, von beinahe 5 Pfund am Gewichte, und welcher im Momente der Begebenheit, vor einem, nach der Hand als Augenzeuge amtlich vernommenen Knechte (Math. Wondruschka) auf 30 Schritte Entfernung niederfiel, und ohne sich merklich zu versenken, bloß die Erde aufwarf, auch sogleich von dem Beobachter aufgehoben und der Ortsobrigkeit übergeben wurde.
 
@@ -222,7 +222,7 @@ An einigen Stellen, namentlich an drei Ecken der Grundfläche, und an einer der 
 
 Die Abbildung des Steines, welche die Versinnlichung der auffallend regelmäßigen Form und der Beschaffenheit seiner Oberfläche zum Zwecke hat, ist von einer Ansicht desselben genommen, in welcher sich erstere und ihre Ähnlichkeit mit einer bekannten Figur, insbesondere aber ihre Übereinstimmung mit andern ähnlich gestalteten Meteor-Steinen am deutlichsten ausspricht. Der Stein ist diesem zu Folge auf seiner Grundfläche (ihn als Pyramide betrachtend) liegend, von der einen breiten, konvexen Seitenfläche etwas gewendet vorgestellt, um den ganzen Umriss, eine zweite Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche ersichtlich zu machen.
 
-### [L'Aigle.](https://cdn.solaranamnesis.com/Schreibers/Table2-LAigle.png)
+## [L'Aigle.](https://cdn.solaranamnesis.com/Schreibers/Table2-LAigle.png)
 
 Einer von den größeren Steinen von dem besonders ergiebigen Steinregen,* der sich am 26. April 1803, Nachmittags gegen 1 Uhr, zu L'Aigle (Departement de l'Orne, der ehemaligen Normandie) in Frankreich (etwa 25 franz. Meilen westlich von Paris) ereignete, von beinahe 2 Pfund am Gewicht.
 
@@ -254,7 +254,7 @@ An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der
 
 Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, demnach sind dabei auch gleiche Rücksichten genommen, und derselbe auf seiner --- angenommenen --- Grundfläche liegend, von der einen breiteren, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriss, die andere breite konkave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht zu bringen.
 
-### [Eichstädt.](https://cdn.solaranamnesis.com/Schreibers/Table2-Eichstädt.png)
+## [Eichstädt.](https://cdn.solaranamnesis.com/Schreibers/Table2-Eichstädt.png)
 
 Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damaligen Direktors-Adjunkten des k. k. Mineralien-Kabinettes, Abbé Stütz, mitgeteilt wurde, der es daselbst niederlegte.*
 
@@ -282,7 +282,7 @@ Ihre Härte ist etwas geringer als die der Rinde der Steine von Tabor und L'Aigl
 
 Die Darstellung dieses Bruchstückes ist, der Absicht gemäß, und nach den bereits erwähnten Rücksichten, von den beiden mit Rinde bedeckten natürlichen Flächenresten, und von der gemeinschaftlichen Kante, in welche sie zusammenstoßen, genommen.
 
-### [Siena.](https://cdn.solaranamnesis.com/Schreibers/Table2-Siena.png)
+## [Siena.](https://cdn.solaranamnesis.com/Schreibers/Table2-Siena.png)
 
 Ein Bruchstück, oder vielmehr höchst wahrscheinlich (nach Größe, Form, Richtung und Ausdehnung der vorhandenen, natürlichen, mit Rinde bedeckten Flächen) wenigstens die Hälfte eines (ursprünglich etwa 3 bis 4 Loth schwer gewesenen) mittelgroßen Steines, von 7 Quäntchen am Gewichte, von dem am 16. Junius 1794, Abends nach 7 Uhr, bei Siena im Toskanischen Statt gehabten beträchtlichen Steinniederfalle.*
 
@@ -300,9 +300,9 @@ Die Rinde ist besonders zart und dünne, beinahe kohlschwarz, etwas ins Graue zi
 
 Die Abbildung zeigt diesen Stein auf die eine, als untere End- oder Grundfläche betrachtete Bruchfläche aufgestellt, von der gemeinschaftlichen Kante, in welche die einen zwei mit Rinde bedeckten Flächen zusammenstoßen, und auf welche die eine Zuspitzungsfläche aufgesetzt ist, die mit den beiden andern breiteren, welche schief auf den Seitenflächen aufsitzen, die kantige Endspitze bildet.
 
-## Dritte Tafel.
+# Dritte Tafel.
 
-### [Lissa.](https://cdn.solaranamnesis.com/Schreibers/Table3-Lissa.png)
+## [Lissa.](https://cdn.solaranamnesis.com/Schreibers/Table3-Lissa.png)
 
 Der größte und einzig ganz und vollkommen erhaltene von den vier bei Lissa (zwischen den Dörfern Strattow und Wustra, 4 bis 5 Meilen O. N. O. von Prag) im Bunzlauer Kreise in Böhmen am 3. September 1808, Nachmittags um halb 4 Uhr, gefallenen und im Falle beobachteten und aufgefundenen Steinen.
 
@@ -346,9 +346,9 @@ Ihre Härte ist kaum geringer als die der Rinde an den Steinen von Tabor und L'A
 
 Die Abbildung stellt den Stein nach der Ansicht und Haltung, nach welchen die Beschreibung genommen, auf der größeren End- oder Grundfläche liegend vor, so dass, mit dem ganzen Umrisse, die eine ausgezeichnetere, breitere, konkave Seitenfläche, die obere Endfläche, und zum Teil noch die zwei kleinen Seitenflächen, wovon die eine mit der vorderen die verlängerte Kante und vorspringende Ecke bildet, zu ersehen sind.
 
-## Vierte Tafel.
+# Vierte Tafel.
 
-### [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table4-Stannern.png)
+## [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table4-Stannern.png)
 
 Der größte* von den bei Stannern in Mähren, am 22. Mai 1808, Morgens gegen 6 Uhr, gefallenen Steinen,* welcher ganz erhalten wurde.
 
@@ -388,9 +388,9 @@ Es zeigt sich zwar allenthalben an diesem Steine, in den Furchen und Vertiefunge
 
 Der Stein ist, auf der Grundfläche liegend, so dargestellt, dass sich die eine Seitenfläche mit der aufsitzenden Zuspitzungsfläche in gerader, die zwei anstoßenden Seitenflächen aber, wovon die eine mit ersterer die etwas verlängerte Seitenkante und die vorspringende Ecke bildet, in schiefer Ansicht zeigen.
 
-## Fünfte Tafel.
+# Fünfte Tafel.
 
-### [Erste Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-1.png)
+## [Erste Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-1.png)
 
 Einer der kleineren, aber vollkommen ganz erhaltenen Steine von dem Ereignisse bei Stannern, der 5 Loth 1 Quäntchen wiegt, und sich durch eine besonders regelmäßige Form auszeichnet.
 
@@ -414,7 +414,7 @@ Von eingedrückter Erde zeigt sich an der schmählern, der gebogenen, breit gedr
 
 Die Abbildung, welche diesen Stein als Musterstück solcher von geringerer Größe bei vollkommener Integrität und von ausgezeichneter Form darstellen soll, zeigt denselben, auf einer Seitenfläche liegend und mit der Endspitze nach unten gekehrt, um mit dem so viel als möglich ganzen Umrisse die gewölbte Grundfläche, und die eine, breiteste, Seitenfläche --- gegen welche die Spitze gebogen ist --- mit ihren Seitenrändern --- wovon der eine die gebogene, breit gedrückte Kante bildet --- ersichtlich zu machen.
 
-### [Zweite Figur. a.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-2a.png) [b.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-2b.png)
+## [Zweite Figur. a.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-2a.png) [b.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-2b.png)
 
 Ebenfalls einer von den kleineren, bei Stannern gefallenen Steinen, 4 Loth 1 Quäntchen wiegend, welcher ganz erhalten worden ist, und eine auffallend regelmäßige Form zeigt.
 
@@ -440,7 +440,7 @@ Figur 2. a. stellt diesen merkwürdigen Stein, auf den beiden glatten Seitenflä
 
 Figur 2. b. zeigt denselben aber, auf jener Seitenfläche ruhend, von der gemeinschaftlichen, schneidend scharfen Kante, in welche die beiden andern Seitenflächen zusammenstoßen.
 
-### [Dritte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-3.png)
+## [Dritte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-3.png)
 
 Einer der kleinsten, und doch vollkommen überrindeten Steine von dem Ereignisse bei Stannern, von kaum 2 1/2 Quäntchen am Gewichte.
 
@@ -460,7 +460,7 @@ Sie bildet übrigens nirgendwo Säume oder Nähte, aber unvollkommen, und zwar i
 
 Dieser höchst merkwürdige Stein ist auf seiner Grundfläche liegend vorgestellt, um dessen obere Endfläche --- welche am regelmäßigsten ist, und seine Form am besten ausspricht --- die eine gewölbte Seitenfläche von vorne, und die schiefe von der einen Seite, zur Ansicht zu bringen.
 
-### [Vierte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-4.png)
+## [Vierte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-4.png)
 
 Der kleinste, und doch vollkommen ganze und durchaus überrindete, bei Stannern gefallene Stein, der kaum 56 Gran wiegt.
 
@@ -474,7 +474,7 @@ Die Rinde scheint auch an diesem Steine durchaus von einerlei Beschaffenheit zu 
 
 Die Abbildung zeigt den Stein im ganzen Umrisse auf der einen breiten, stärker überrindeten Fläche liegend, mit dem scharfen --- der schmalen Fläche entgegen gestellten --- Rande nach vorne gekehrt, um den Rindensaum auf der einen einiger Maßen ersichtlich zu machen.
 
-### [Fünfte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-5.png)
+## [Fünfte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table5-Stannern-5.png)
 
 Einer der größten Steine von dem Ereignisse bei Stannern, 3 Pfund 18 Loth wiegend.
 
@@ -506,9 +506,9 @@ Nur an diesen letzteren Flächen, auf welche der Stein auch wirklich aufgefallen
 
 Die Abbildung zeigt diesen besonders ausgezeichneten Stein, auf der konvexen Seitenfläche liegend (wie Figur 2. b. den ähnlichen), von den beiden glatten, konkaven Seitenflächen und ihrer gemeinschaftlichen Kante (nur gestürzt, die Grundfläche nach oben, und etwas gewendet), um den merkwürdigen Rindensaum, von der konvexen Fläche her, an einem Seitenrande (in das nötige Licht gebracht) ersichtlich zu machen.
 
-## Sechste Tafel.
+# Sechste Tafel.
 
-### [Erste Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-1.png)
+## [Erste Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-1.png)
 
 Einer von den großen Steinen von dem Steinfalle bei Stannern, 2 Pfund 12 Loth schwer.* Vollkommen ganz, und durchaus überrindet.
 
@@ -540,7 +540,7 @@ Die Abbildung stellt diesen ausgezeichneten Stein, auf der schmalen Seitenfläch
 
 *) In Gilberts Annalen Bd. 31 ist von diesem Steine Tafel 1 Fig. 2 bereits eine verkleinerte und skizzierte Abbildung, aber von einer der breiten Seitenflächen, gegeben worden; ich habe daher absichtlich hier eine andere Fläche zur Darstellung gewählt.
 
-### [Zweite Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-2.png)
+## [Zweite Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-2.png)
 
 Einer der größeren von den bei Stannern gefallenen Steinen, 1 Pfund 12 Loth wiegend. Vollkommen ganz und um und um mit Rinde bekleidet.
 
@@ -575,7 +575,7 @@ Dieser, durch die seltene Art von Überrindung besonders ausgezeichnete Stein, i
 
 *) In Gilberts Annalen Bd. 31, Tafel 2 Figur 1. 2., ist bereits von diesem Steine eine skizzierte Darstellung von zwei Ansichten gegeben worden, und zwar die eine von den beiden gewölbten Seitenflächen mit ihrer gemeinschaftlichen Kante, die andere von der Grundflache genommen.
 
-### [Dritte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-3.png)
+## [Dritte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-3.png)
 
 Ebenfalls einer der größeren von den bei Stannern gefallenen Steinen, von 1 Pfund 7 Loth am Gewichte, welcher am 29. Mai, auch nahe bei Stannern selbst, zwischen den Dörfern Sorez und Falkenau, demnach ebenfalls im Mittelpunkte des befallenen Flächenraumes (und zwar nur etwa 500° mehr nördlich als der letztbeschriebene, und etwa 300 östlich von der Kirche von Stannern) aufgefunden und der Kommission übergeben wurde. (Situations-Plan Nr. 43.)
 
@@ -611,7 +611,7 @@ Die Abbildung stellt diesen lehrreichen Stein auf seiner Grundfläche liegend un
 
 *) In Gilberts Annalen Bd. 31, Taf. 3, Fig. 2, ist bereits auch von diesem Steine eine Darstellung versucht worden, die aber durch die Kolorierung sehr verunstaltet worden ist.
 
-### [Vierte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-4.png)
+## [Vierte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-4.png)
 
 Ein mittelgroßer Stein von der Begebenheit bei Stannern, 1 Pfund 1 Loth wiegend, welcher am Tage des Ereignisses selbst, und zwar ebenfalls ganz nahe bei Stannern, auch zwischen den Dörfern Sorez und Falkenau, demnach ebenfalls im Mittelpunkte des befallenen Flächenraumes (und zwar kaum mehr als 100° südlich vom vorhin beschriebenen entfernt) aufgefunden, und dem Pater Caplan in Stannern überbracht wurde, der ihn am 29. Mai der Kommission überreichte. (Situations-Plan Nr. 40.)
 
@@ -643,7 +643,7 @@ Die Abbildung zeigt diesen belehrenden Stein, auf einer Seitenfläche aufgestell
 
 *) Auch von diesem Steine, und von derselben Ansicht genommen, findet sich in Gilberts Annalen Bd. 31, Taf. 3, Fig. 1, eine frühere Abbildung, die aber durch die Kolorierung gar sehr an Deutlichkeit verloren hat.
 
-### [Fünfte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-5.png)
+## [Fünfte Figur.](https://cdn.solaranamnesis.com/Schreibers/Table6-Stannern-5.png)
 
 Ein 3 1/2 Loth wiegendes Bruchstück eines großen, ursprünglich 4 Pfund schwer gewesenen Steines von Stannern, welcher am Tage der Begebenheit selbst, von dem Oberjäger von Iglau, gegen den Ort Teschen zu, am westlichen Teile des befallenen Flächenraumes von dessen Mittelpunkte, und zwar am entferntesten Punkte daselbst (etwa 1300° westlich von der Kirche von Stannern, und bei 3400° süd-westlich vom äußersten Punkte in N., und bei 4500° nord-westlich vom äußersten Punkte in S., wo die entferntesten Steine gefallen waren) gefunden, aber zerschlagen, und wovon nur die größere Hälfte, von 2 Pfund 12 Loth am Gewichte, am 29. Mai an die Untersuchungs-Kommission abgegeben wurde. (Situations-Plan Nr. 63.)
 
@@ -658,7 +658,7 @@ Die Größe und Gestalt dieser Flecke ist sehr verschieden, ihr Umriss ist aber 
 *) Obgleich ich mich zur Zeit außer Stande fühle, von der Bildung der Rinde an den Meteor-Steinen überhaupt, und insbesondere von der Entstehung derselben im Innern der Steinmasse, sowohl in Gestalt solcher Flecken (in welcher sie jedoch am seltensten, und wohl nie weit von der Oberfläche entfernt vorkommen, und füglich noch der Einwirkung des Rinde bildenden Agens von Außen her zuzuschreiben sein dürfte), als in Gestalt eingestreuter Punkte (in welcher sie inzwischen nur bei sehr lockeren Meteor-Steinen, z. B. bei jenen von Chassigny (Langres) deutlich, weniger bei den Steinen von Stannern, und bei beiden selbst höchst problematisch (ob nicht Chrom-Eisen oder Eisen-Oxyd?), bei Meteor-Steinen von festem Kohäsions-Zustande und dichtem Gefüge meinen Untersuchungen nach, selbst nicht als Spur erscheint), als vollends in Form von Adern, Gängen, Schichten und Lagen (deren Substanz man für einerlei mit jener der Rinde zu halten geneigt scheint, und von welcher bei Erklärung der nächsten Tafel die Rede sein wird), eine befriedigende Erklärung zu geben; so muss ich doch freimütig gestehen, dass ich der Ansicht meines Freundes Chladni, von der Bildung der Rinde überhaupt, und dieser im Innern (insofern ihr Vorkommen darin wirklich Statt findet) insbesondere, durchaus nicht beistimmen kann. Die Gegenwart des Schwefels (dessen Anwesenheit in der Steinmasse, wenigstens in gebundenem Zustande, übrigens nicht in Abrede gestellt werden kann), den Hr. Chladni als das Haupt-Material betrachtet, aus welchem die Rinde gebildet wurde, gibt sich in derselben auf keine Weise zu erkennen; weder durch die chemische Analyse, noch durch eine leichte Schmelzbarkeit (die im Gegenteile sehr schwer ist, da sie wenigstens 6 bis 9° Wedgwd. Hitze fordert, und die wohl, wenn man den Rindebildungs-Prozess durch Hitze geschehen lassen wollte, sehr gegen die, obgleich nur durch ein paar Fälle, in Anregung gebrachte Abfärbung der Steine, streiten möchte), weder durch den Geruch bei Erhitzung, noch durch den geringsten Grad von Wirkung auf das Elektrometer, wenn gerieben oder erwärmt; so wie andererseits die Mannigfaltigkeit der Rinde bei verschiedenen Meteor-Steinen, und die offenbare Abhängigkeit derselben von den Gemeng- und Bestandteilen der Steinmasse, gegen ein solches allgemeines Haupt-Material streitet. Die Gleichförmigkeit der Rinde, zumal hinsichtlich der Dicke, auf sonst gleichartigen, wenn gleich sich noch so sehr entgegen gesetzten Flächen, an ein und demselben Steine, und die Übereinstimmung hierin bei allen Meteor-Steinen im Augemeinen; die unwiderleglich von der Beschaffenheit der Oberfläche abhängigen Hauptverschiedenheiten derselben an ein und demselben Steine; die offenbare, allmähliche und stufenweise Ausbildung derselben; und der unverkennbare Übergang ihrer Massenteilchen in jene der Steinmasse, und umgekehrt, wo beide sich im Kontakte befinden (wie sich aus der mikroskopischen Betrachtung ergibt) u. s. w., lassen sich wohl schlechterdings nicht durch eine Übergießung oder Bespritzung von Außen her erklären. Endlich lasst sich das, nach meinen Beobachtungen nur höchst selten (meiner Überzeugung nach bisher nur an diesem einzigen beschriebenen Bruchstücke) und nie tief im Innern eines Steines sich zeigende wirkliche Vorkommen von Rinde in Gestalt von Flecken, deren Form, Beschaffenheit und Zusammenhang mit der Steinmasse (nach obigem), so wie die Art des mehr als problematischen Vorkommens derselben in Adern, Gängen und Lagen (wovon seines Ortes) wohl nicht mit der Idee einer Einknetung und Zusammenklebung vereinigen, als welche einerseits einen ziemlich tumultuarischen (Gährungs-) Prozess bei jedem einzelnen Steine nach dessen Individualisierung, Bildung und bereits schon ein Mahl vollendeter Inkrustierung, andererseits ein häufiges Zusammentreffen, Zusammenpassen und Wiedervereinen der bereits mit Gewalt losgetrennten und weit weg und aus einander geschleuderten Steine und Bruchstücke voraussetzen, mit welchen die Regelmäßigkeit und Übereinstimmung so vieler Steine in der Form (der Grund-Typus), die Beschaffenheit der Flächen und Kanten (welche beide Umstande schlechterdings keinen solchen Grad von Weichheit nach einmal geschehener Inkrustierung denken lassen), der entfernte Niederfall der einzelnen Steine voneinander (der meistens einen Zwischenraum von 2 bis 300, oft 1000 und mehr Klafter beträgt) u. s. w., im offenbarsten Widerspruch zu stehen scheinen.  
 Eher könne ich der Meinung meines Freundes, des Hrn. Prof. v. Scherer (welcher früher gleichzeitig und zum Teil gemeinschaftlich mit mir über diesen Gegenstand arbeitete, und seine Bemerkungen über die Beschaffenheit und wahrscheinliche Entstehung der Rinde an den Steinen von Stannern, in einem gleichzeitigen Aufsätze in Gilberts Annalen Bd. 31 bekannt machte), beipflichten, nach welcher die Rinde in einem Nu, und gleichsam mit Blitzesschnelle, und zwar im Momente der Vereinzelung, Individualisierung der Steine, über alle zugleich, und über deren ganzen Umfang auf ein Mahl, nur mit verschiedener Intensität der wirkenden Potenz, demnach mit einigen Modifikationen, gebildet wurde, und jene Potenz in der Elektrizität zu suchen sein mochte; wenn sich darnach einige Eigenheiten derselben, z. B. die vielen und auffallenden Hauptverschiedenheiten und häufigen stufenweisen Modifikationen und Übergänge der Rinde (deren, wie gezeigt worden ist, immer an einem und demselben, oft sehr kleinen Steine, mehrere, 2 bis 5, deutlich unterschieden, aber nicht wohl begreiflich von einer so vielfachen Verschiedenheit der Intensität, der sie auf ein Mahl erzeugenden Potenz, abgeleitet werden können), befriedigend erklären ließen; wenn ihr nicht ferner einige Erscheinungen bei dem Ereignisse selbst, z. B. das bei diesem, so wie überhaupt bei allen ähnlichen Ereignissen, wo viele Steine fielen, ganz einstimmig gleichartig beobachtete, fortgesetzte, einem kleinen Gewehr- oder Pelotonfeuer ähnliche Getose nach den Haupt-Detonationen (welches wohl nur von einem wiederholten, sukzessiven Zerplatzen und Zerspringen der einzelnen Steine während ihres Falles hergeleitet werden kann); das so ausnehmend schiefe und sanfte Auffallen mancher einzelner, ziemlich großer Steine, so dass sie kaum merklich die Erde streiften und eine Strecke fortrollten (welches eine horizontale Wurfbewegung voraussetzt, die sich mit der Höhe, auf welcher die Hauptzerplatzung vorging, der gegenwirkenden Schwerkraft wegen, schlechterdings nicht verträgt, daher eine spätere Zerplatzung eines einzelnen Steines im Falle, auf minderer Höhe, und die Lossprengung eines Stückes davon in solcher Richtung vorausgesetzt werden muss) u. s. f. --- in Wege stunden; und wenn es endlich nicht ganz an allen Wahrnehmungen fehlte (worauf insbesondere und mit Vorbedacht bei der Untersuchung der Begebenheit zu Stannern alle Rucksicht genommen wurde), die das Spiel oder den Einfluss der Elektrizität bei diesen Ereignissen nur einiger Massen bewahren konnten. Dagegen bin ich mit diesen beiden scharfsinnigen Physikern vollkommen einverstanden, wenn sie behaupten, die Rinde der Meteor-Steine sei das Produkt eines Prozesses, das mit keinem Produkte der uns bekannten natürlichen und künstlichen Schmelz-Prozesse (wenn jener Rinde bildende ja in die Reihe solcher zu stellen sein sollte) einige Ähnlichkeit habe, weshalb wir uns auch zur Zeit keinen richtigen Begriff von ihrer Bildung machen können.
 
-## Siebente Tafel.
+# Siebente Tafel.
 
 Die Abbildungen auf dieser Tafel haben die Darstellung und Versinnlichung der inneren Beschaffenheit der Steinmasse einiger, der in dieser Beziehung ausgezeichnetsten Meteor-Steine, des Aggregats-Zustandes derselben und ihrer wesentlichsten Gemengteile zum Zwecke, und in Hinsicht dieser letzteren insbesondere, die Darstellung des allgemeinsten, auffallendsten und sehr wesentlichen, nämlich des mehr oder weniger kugelichten, porphyrartig in der übrigen Steinmasse erscheinenden, erdigen Gemengteiles, und zwar in den verschiedenen Graden seiner Ausbildung, die von einer kaum erkennbaren Ausscheidung bis zu dessen ausgesprochenstem Zustande --- als olivinartige Substanz im sibirischen Eisen --- Übergänge nachweisen lassen, und deren sich oft mehrere, nicht nur in verschiedenen Steinen eines und desselben Niederfalles, sondern selbst in einem und demselben Bruchstücke, beisammen finden.*
 
@@ -875,7 +875,7 @@ Wo der Art Schichten, Lagen, Flecke oder Streifen dieser Masse durch Bruch oder 
 
 *) Es war zur Zeit nicht möglich, von dieser merkwürdigen Zustandsveränderung der Steinmasse der Meteor-Steine eine befriedigende bildliche Darstellung für gegenwärtige Bekanntmachung zu Stande zu bringen. Sie soll bei einer künftigen Veranlassung versucht werden.
 
-### [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table7-Stannern.png)
+## [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table7-Stannern.png)
 
 Ein, bei 4 Loth wiegendes, auf drei Seiten (den Resten von drei verbrochenen ursprünglichen Flächen) mit Rinde --- von der gewöhnlichsten Art und Beschaffenheit --- bedecktes, frisches Bruchstück eines --- allem Ansehen nach --- ursprünglich ziemlich groß gewesenen Steines von Stannern, welches mit unter denen war, die bei Gelegenheit der abgehaltenen Untersuchungs-Kommission von verschiedenen, gleich anfänglich in viele Stücke zerschlagenen Steinen, an Ort und Stelle erhalten, und welches, des ausgezeichneten Mengungszustandes der Steinmasse wegen, für die Sammlung bestimmt wurde.*
 
@@ -907,7 +907,7 @@ Zum Teil mit freiem Auge, mehr aber doch mit Hülfe einer Lupe, entdeckt man in 
 
 Von Adern und Gängen, oder von einer andern Zustandsverschiedenheit der Steinmasse (von welchen oben in der Einleitung zur Erklärung dieser Tafel die Rede war), zeigt sich an diesem Stücke ebenfalls keine Spur, und überhaupt zeigte, unter so vielen gesehenen Bruchstücken, nur eines das Vorkommen von ersteren in den Meteor-Steinen von Stannern.
 
-### [Siena.](https://cdn.solaranamnesis.com/Schreibers/Table7-Siena.png)
+## [Siena.](https://cdn.solaranamnesis.com/Schreibers/Table7-Siena.png)
 
 Dasselbe Stück von dem Steinfalle bei Siena in Italien, welches der ausgezeichneten Form wegen bereits auf der zweiten Tafel von einer andern Ansicht gegeben worden ist, von einer polierten frischen Bruchfläche dargestellt, die mit zwei Rändern an die Außenrinde stößt, und, auf etwa 1 Quadrat-Zoll Oberfläche, bei vollkommener Abglättung, aber etwas matter und ungleichförmiger eigentlicher Politur, die innere Beschaffenheit der Steinmasse zu erkennen gibt.
 
@@ -927,7 +927,7 @@ Von mechanisch eingemengtem Oxyde oder ähnlichen Partikelchen findet sich nur �
 
 Von Adern, Gängen oder einer anderweitigen Zustandsveränderung der Steinmasse findet sich aber, weder an diesem, noch an irgendeinem der mehreren von mir gesehenen Bruchstücke von Steinen dieses Herkommens, auch nur die entfernteste Andeutung.
 
-### [Benares.](https://cdn.solaranamnesis.com/Schreibers/Table7-Benares.png)
+## [Benares.](https://cdn.solaranamnesis.com/Schreibers/Table7-Benares.png)
 
 Ein ausgezeichnetes, 4 3/4 Loth schweres Bruchstück eines, wahrscheinlich ursprünglich ziemlich groß gewesenen Steines von jenen, welche am 19. Dezember 1798, Abends, bei Krakhut in der Nähe von Benares in Bengalen gefallen sind, und welches die kaiserl. Sammlung 1807 von dem jüngst verstorbenen Charles Greville aus London zum Geschenke erhielt.*
 
@@ -943,7 +943,7 @@ Der olivinartige Gemengteil, der beinahe fast die Hälfte der Steinmasse beträg
 
 Die Gediegeneisenteilchen zeigen sich beinahe noch sparsamer, aber in etwas gröberen Körnern und Zacken als an den Steinen von Siena, und ebenfalls von licht stahlgrauer, […] Silberweiße fallender Farbe und metallischem Glanze; die Kies-Partikelchen dagegen zwar ebenso sparsam in zerstreuten, zarten, glänzenden, meistens gelblichen Körnern, häufiger aber in größeren Partien feinkörnig, oder als größere Massen bröcklig (in etwas stumpskantigen, minder spröden und leicht zerreiblichen Stücken) angehäuft, und mehr von zinkgrauer, etwas ins Rötliche ziehender Farbe und schwächerem Glanze*. Von Rostflecken zeigt sich kaum eine Spur (obgleich doch, und zwar schon vor eilf Jahren, eine Fläche des Stückes abgeschliffen und poliert worden war), und eben so wenig von deutlich eingemengtem Oxyde. Auch von Adern und Gängen, oder einer sonstigen Zustandsveränderung der Steinmasse, findet sich durchaus keine Andeutung an diesem Stücke.
 
-### [Timochin.](https://cdn.solaranamnesis.com/Schreibers/Table7-Timochin.png)
+## [Timochin.](https://cdn.solaranamnesis.com/Schreibers/Table7-Timochin.png)
 
 Ein charakteristisches Stück, 4 Loth 3 Quäntchen wiegend, von dem am 13. März 1807 bei Timochin (im Juchnow'schen Kreise, im Smolensk'schen Gouvernement) in Russland einzeln niedergefallenen, bei 140 Pfund wiegenden Steine,* welches Klaproth von einem mir zur Ansicht mitgeteilten 18 Loth schweren Bruchstücke in seinem Besitze, abschneiden zu lassen gestattete, und der kaiserl. Sammlung gefälligst überließ.
 
@@ -977,7 +977,7 @@ Der Gehalt an mechanisch und sichtlich eingemengtem Gediegeneisen ist bei diesen
 
 Von Oxyd oder ähnlichen Partikelchen zeigt sich keine deutliche Spur; eben so wenig von Adern und Gängen oder einer andern Veränderung der Steinmasse.
 
-### [Charsonville.](https://cdn.solaranamnesis.com/Schreibers/Table7-Charsonville.png)
+## [Charsonville.](https://cdn.solaranamnesis.com/Schreibers/Table7-Charsonville.png)
 
 Ein großes, 1 Pfund schweres Stück von einem der am 23. November 1810 in der Gegend von Charsonville bei Orleans (Departement du Loiret) in Frankreich niedergefallenen Steine, welches während meiner Anwesenheit in Paris (1815) auf mein Ansuchen und mit Genehmigung der königlichen Administration des Museums der Naturgeschichte, von einem daselbst aufbewahrten Bruchstücke,* von 11 Pfund am Gewichte, abgeschnitten, und mir, nebst mehreren andern, für die kaiserliche Sammlung gefälligst mitgeteilt wurde.*
 
@@ -1015,7 +1015,7 @@ Alle diese Adern zeigen, sowohl auf der geschnittenen Fläche als an den, dieser
 
 *) An einem kleinen Stücke, dass ich selbst besitze, findet sich eine Absonderungsfläche mit metallischem, graphitähnlichen Anfluge, ganz von der Art, wie an den Steinen von York, Sigena, Laponas zc.
 
-### [Sales.](https://cdn.solaranamnesis.com/Schreibers/Table7-Sales.png)
+## [Sales.](https://cdn.solaranamnesis.com/Schreibers/Table7-Sales.png)
 
 Ein charakteristisches Stück, 2 1/2 Loth schwer, von dem am 12. März 1798 bei Sales (nicht weit von Ville Franche, Departement du Rhone) in Frankreich* einzeln gefallenen Steine, der ungefähr 20 bis 25 Pfund wog, welches die kaiserl. Sammlung der gefälligen Mitteilung des Marquis De Drée verdankt.
 
@@ -1037,7 +1037,7 @@ Kiesteilchen lassen sich nur äußerst wenige, höchst zart eingesprengt und fei
 
 *) Es ist dieser Kies sehr spröde, leicht zersprengbar, und lässt sich sehr leicht zum feinsten Pulver zerreiben, zeigt sich aber auch als solches ganz ohne Wirkung auf die Magnetnadel.
 
-### [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table7-Stannern-2.png)
+## [Stannern.](https://cdn.solaranamnesis.com/Schreibers/Table7-Stannern-2.png)
 
 Ein 13 1/2 Loth schweres Bruchstück von demselben großen, ursprünglich bei 4 Pfund schwer gewesenen Steine von Stannern, von welchem, durch Zerschlagen der davon erhaltenen Hälfte, auch das oben beschriebene und Fig. 5 der vorigen Tafel abgebildete Stück erhalten worden war.
 
@@ -1261,7 +1261,7 @@ Wenn man nun bedenkt, dass jene 100 Steine einen Flächenraum von mehr denn zwö
 
 *) Diese weitschichtige Zerstreuung der Steine über den befallenen Flächenraum bei Ereignissen der Art, wo deren mehrere und wo sie selbst in großer Menge fielen, wie z. B. bei jenen von L'Aigle, wo zwischen 2- und 3000 über einen Flächenraum von 2 1/2 franz. Meilen in der Länge und von einer in der Breite verteilt waren; scheint einerseits auf eine beträchtliche Höhe, in welcher die Explosionen vor sich gehen, hinzudeuten, andererseits aber wohl auch die im Obigen vorausgesetzte, höchst mannigfaltig und vielseitig wirkende Wurfkraft zu bestätigen.
 
-# Erklärung der Titel-Vignette.
+# Erklärung der [Titel-Vignette](https://cdn.solaranamnesis.com/Schreibers/Elbogen.jpeg).
 
 Es stellt dieselbe einen massiven, rein aus einem Stücke von der Elbogner Meteor-Eisen-Masse geschnittenen, und ohne alle Hämmerung, bloß durch Feilen zu Stande gebrachten Siegel-Ring von antiker Form vor, dessen Oberteil oder Kranz eingedreht worden war, und der dann im Ganzen fein poliert und auf der Siegelfläche mit Salpetersäure auf eine solche Tiefe geätzt wurde, dass sich das bei solcher Behandlung zum Vorschein kommende kristallinische Gefüge der Metall-Masse nicht nur deutlich und vollkommen erkennen, sondern sich auch als Zeichnung im geschmolzenen Siegellacke gut abdrucken lässt. Als Devise ist auf jene Fläche ein Pfeil --- das in der chemischen Bildersprache zur Bezeichnung des Eisens (dem Mars geweiht) übliche Symbol --- in Verbindung mit einem Sterne, in der Richtung des Falles --- als ein die Natur und zugleich den Ursprung der Masse bezeichnendes Sinnbild --- graviert worden.
 
