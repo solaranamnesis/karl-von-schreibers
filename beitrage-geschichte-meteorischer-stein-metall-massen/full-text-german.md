@@ -188,7 +188,7 @@ Die bildliche Darstellung zeigt diese merkwürdige Masse, von der konvexen Fläc
 
 ## Zweite Tafel.
 
-### Tabor.
+### [Tabor.](https://cdn.solaranamnesis.com/Schreibers/Table2-Tabor.png)
 
 Einer der größten Steine von dem sehr bekannten und ziemlich ergiebig gewesenen Steinregen,* der sich am 3. Julius 1753 um 8 Uhr Abends bei Tabor (eigentlich um Strkow, nächst Plan, einem zur Herrschaft Seltsch gehörigen, eine Stunde von Tabor entfernten Dorfe) in Böhmen ereignete, von beinahe 5 Pfund am Gewichte, und welcher im Momente der Begebenheit, vor einem, nach der Hand als Augenzeuge amtlich vernommenen Knechte (Math. Wondruschka) auf 30 Schritte Entfernung niederfiel, und ohne sich merklich zu versenken, bloß die Erde aufwarf, auch sogleich von dem Beobachter aufgehoben und der Ortsobrigkeit übergeben wurde.
 
@@ -222,7 +222,7 @@ An einigen Stellen, namentlich an drei Ecken der Grundfläche, und an einer der 
 
 Die Abbildung des Steines, welche die Versinnlichung der auffallend regelmäßigen Form und der Beschaffenheit seiner Oberfläche zum Zwecke hat, ist von einer Ansicht desselben genommen, in welcher sich erstere und ihre Ähnlichkeit mit einer bekannten Figur, insbesondere aber ihre Übereinstimmung mit andern ähnlich gestalteten Meteor-Steinen am deutlichsten ausspricht. Der Stein ist diesem zu Folge auf seiner Grundfläche (ihn als Pyramide betrachtend) liegend, von der einen breiten, konvexen Seitenfläche etwas gewendet vorgestellt, um den ganzen Umriss, eine zweite Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche ersichtlich zu machen.
 
-### L'Aigle.
+### [L'Aigle.](https://cdn.solaranamnesis.com/Schreibers/Table2-LAigle.png)
 
 Einer von den größeren Steinen von dem besonders ergiebigen Steinregen,* der sich am 26. April 1803, Nachmittags gegen 1 Uhr, zu L'Aigle (Departement de l'Orne, der ehemaligen Normandie) in Frankreich (etwa 25 franz. Meilen westlich von Paris) ereignete, von beinahe 2 Pfund am Gewicht.
 
@@ -254,7 +254,7 @@ An mehreren kleinen Stellen der Grundkanten, an den Kanten und an einer Ecke der
 
 Die Darstellung dieses Steines hat gleiche Zwecke, wie jene des vorhin beschriebenen Steines von Tabor, demnach sind dabei auch gleiche Rücksichten genommen, und derselbe auf seiner --- angenommenen --- Grundfläche liegend, von der einen breiteren, gewölbten Seitenfläche, etwas gewendet, vorgestellt worden, um den ganzen Umriss, die andere breite konkave Seitenfläche mit der verlängerten Kante und der vorspringenden Ecke, und die obere Endfläche zur Ansicht zu bringen.
 
-## Eichstädt.
+### [Eichstädt.](https://cdn.solaranamnesis.com/Schreibers/Table2-Eichstädt.png)
 
 Ein verschoben vierseitig pyramidales Bruchstück, 7 Loth schwer, von dem am 19. Februar 1785, nach 12 Uhr Mittags, bei Eichstädt in Franken, so viel bekannt, einzeln gefallenen Steine von 5 Pfund 22 Loth am Gewicht, welches um das Jahr 1789 von dem Domherrn v. Hompesch zu Eichstädt, dem damaligen Direktors-Adjunkten des k. k. Mineralien-Kabinettes, Abbé Stütz, mitgeteilt wurde, der es daselbst niederlegte.*
 
@@ -282,7 +282,7 @@ Ihre Härte ist etwas geringer als die der Rinde der Steine von Tabor und L'Aigl
 
 Die Darstellung dieses Bruchstückes ist, der Absicht gemäß, und nach den bereits erwähnten Rücksichten, von den beiden mit Rinde bedeckten natürlichen Flächenresten, und von der gemeinschaftlichen Kante, in welche sie zusammenstoßen, genommen.
 
-### Siena.
+### [Siena.](https://cdn.solaranamnesis.com/Schreibers/Table2-Siena.png)
 
 Ein Bruchstück, oder vielmehr höchst wahrscheinlich (nach Größe, Form, Richtung und Ausdehnung der vorhandenen, natürlichen, mit Rinde bedeckten Flächen) wenigstens die Hälfte eines (ursprünglich etwa 3 bis 4 Loth schwer gewesenen) mittelgroßen Steines, von 7 Quäntchen am Gewichte, von dem am 16. Junius 1794, Abends nach 7 Uhr, bei Siena im Toskanischen Statt gehabten beträchtlichen Steinniederfalle.*
 
@@ -302,7 +302,7 @@ Die Abbildung zeigt diesen Stein auf die eine, als untere End- oder Grundfläche
 
 ## Dritte Tafel.
 
-### Lissa.
+### [Lissa.](https://cdn.solaranamnesis.com/Schreibers/Table3-Lissa.png)
 
 Der größte und einzig ganz und vollkommen erhaltene von den vier bei Lissa (zwischen den Dörfern Strattow und Wustra, 4 bis 5 Meilen O. N. O. von Prag) im Bunzlauer Kreise in Böhmen am 3. September 1808, Nachmittags um halb 4 Uhr, gefallenen und im Falle beobachteten und aufgefundenen Steinen.
 
