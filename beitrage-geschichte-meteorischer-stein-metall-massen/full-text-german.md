@@ -1204,7 +1204,7 @@ Die Oberfläche jener Zacken, welche nur fein poliert, aber nicht geätzt wurde 
 
 Die zerstreut und mechanisch eingemengte, bröcklig-körnige Substanz (das Schwefeleisen) zeigt sich aber hier wie dort und so wie bei jenen derben Massen, sehr deutlich und häufig, so dass sie hier wenigstens den sechsten Teil des gesamten Metall-Anteiles dieser Masse ausmachen dürfte, von welchem sie sich durch ihr körniges oder doch rissiges Ansehen, durch eine Zinkweiße, schwach ins Rötliche ziehende Farbe und durch einen schwächeren Glanz auszeichnet. Sie findet sich teils in einzelnen kleinen und äußerst kleinen Körnern, teils in größeren bröcklig zusammen gehäuften Partien, teils in dichteren, zart rissigen Massen, und zwar meistens am Rande der Zellen, welche durch die Metall-Zacken gebildet werden und den Olivin einschließen, und die sie oft, entweder ganz oder stellenweise und abwechselnd mit dem Eisen und zwischen dieses gleichsam eingekeilt, gleich einer, obgleich ungleichförmigen Einfassung umgibt. Bisweilen bildet sie selbst ganze Nebenzacken, Seiten- oder Verbindungsäste von den Hauptzacken oder Stämmen des Eisens; in jedem Falle ist sie aber immer durch eine zarte Furche von diesem geschieden.
 
-# Zehnte Tafel.
+# [Zehnte Tafel.](https://cdn.solaranamnesis.com/Schreibers/Table10.png)
 
 ## Plan der Gegend um Stannern in Mähren,
 
