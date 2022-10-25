@@ -78,7 +78,7 @@ Horat.
 
 ## [Zehnte Tafel.](#zehnte-tafel)
 
-## [Erklärung der Titel-Vignette.](#erklärung-der-titel-vignette)
+## [Erklärung der Titel-Vignette.](#erklärung-der-titel-vignette-1)
 
 ---
 
