@@ -74,7 +74,7 @@ Horat.
 
 ## [Stannern.](#stannern-5)
 
-## [Achte und neunte Tafel.](#achte-und-neunte-tafel)
+## [Achte und neunte Tafel.](#achte-und-neunte-tafel-1)
 
 ## [Zehnte Tafel.](#zehnte-tafel-1)
 
