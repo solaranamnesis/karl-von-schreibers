@@ -979,7 +979,7 @@ Von Oxyd oder ähnlichen Partikelchen zeigt sich keine deutliche Spur; eben so w
 
 ## [Charsonville.](https://cdn.solaranamnesis.com/Schreibers/Table7-Charsonville.png)
 
-Ein großes, 1 Pfund schweres Stück von einem der am 23. November 1810 in der Gegend von Charsonville bei Orleans (Departement du Loiret) in Frankreich niedergefallenen Steine, welches während meiner Anwesenheit in Paris (1815) auf mein Ansuchen und mit Genehmigung der königlichen Administration des Museums der Naturgeschichte, von einem daselbst aufbewahrten Bruchstücke,* von 11 Pfund am Gewichte, abgeschnitten, und mir, nebst mehreren andern, für die kaiserliche Sammlung gefälligst mitgeteilt wurde.*
+Ein großes, 1 Pfund schweres Stück von einem der am 23. November 1810 in der Gegend von Charsonville bei Orléans (Departement du Loiret) in Frankreich niedergefallenen Steine, welches während meiner Anwesenheit in Paris (1815) auf mein Ansuchen und mit Genehmigung der königlichen Administration des Museums der Naturgeschichte, von einem daselbst aufbewahrten Bruchstücke,* von 11 Pfund am Gewichte, abgeschnitten, und mir, nebst mehreren andern, für die kaiserliche Sammlung gefälligst mitgeteilt wurde.*
 
 Es ist dasselbe, auf der zum Teil mit Rinde bedeckten, zum Teil verbrochenen, gewölbten Außenseite liegend, von der durch den Schnitt erhaltenen, ganz ebenen, aber noch unpolierten Fläche dargestellt, die das Innere der Steinmasse auf einer Ausdehnung von ungefähr 4 Quadrat-Zoll, und, wo am dicksten, in einer Tiefe von beinahe 1 1/2 Zoll von der äußern Oberfläche des Steines, zur Ansicht bringt.
 
