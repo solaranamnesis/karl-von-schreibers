@@ -46,11 +46,11 @@ Horat.
 
 ### [Fünfte Figur.](#fünfte-figur-2)
 
-## [Sechste Tafel.](#sechste-tafel)
+## [Sechste Tafel.](#sechste-tafel-1)
 
 ### [Erste Figur.](#erste-figur-3)
 
-### [Zweite Figur.](#zweite-figur)
+### [Zweite Figur.](#zweite-figur-1)
 
 ### [Dritte Figur.](#dritte-figur-3)
 
