@@ -118,7 +118,7 @@ Propert.
 
 Wien, im Julius 1820.
 
-# Erste Tafel.
+# [Erste Tafel.](https://cdn.solaranamnesis.com/Schreibers/Table1-Agram.png)
 
 Die Gediegeneisen-Masse
 
