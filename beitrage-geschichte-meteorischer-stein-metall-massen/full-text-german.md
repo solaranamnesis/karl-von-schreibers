@@ -64,13 +64,13 @@ Horat.
 
 ## [Siena.](#siena-3)
 
-## [Benares.](#benares)
+## [Benares.](#benares-1)
 
-## [Timochin.](#timochin)
+## [Timochin.](#timochin-1)
 
-## [Charsonville.](#charsonville)
+## [Charsonville.](#charsonville-1)
 
-## [Sales.](#sales)
+## [Sales.](#sales-1)
 
 ## [Stannern.](#stannern-5)
 
