@@ -1,4 +1,4 @@
-# Beiträge zur Geschichte und Kenntniss meteorischer Stein- und Metall-Massen, und der Erscheinungen, welche deren Niederfallen zu begleiten pflegen.
+# Beiträge zur Geschichte und Kenntnis meteorischer Stein- und Metall-Massen, und der Erscheinungen, welche deren Niederfallen zu begleiten pflegen.
 
 With the help of OCR4all:
 
