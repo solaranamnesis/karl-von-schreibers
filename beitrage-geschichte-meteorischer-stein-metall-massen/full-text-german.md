@@ -7,6 +7,8 @@
 ### Wien. 1820.
  
 #### Im Verlage von J. G. Heubner.
+
+![Cover](https://cdn.solaranamnesis.com/Schreibers/cover.png)
  
 Segnius irritant animos demissa per aures,  
 Quam quae sunt oculis subjecta fidelibus.  
