@@ -9,4 +9,4 @@ With the help of OCR4all:
 English - Plain Text  
 English - PDF  
 [German - Plain Text](beitrage-geschichte-meteorischer-stein-metall-massen/full-text-german.md)  
-[German - PDF] | [Biolinum] | [Fraktur] | [Schwabacher]  
+[German - PDF](https://cdn.solaranamnesis.com/Schreibers/schreibers_1820_beitrage_geschichte_meteorischer_stein_metall_massen_german_baskerville.pdf) | [Biolinum](https://cdn.solaranamnesis.com/Schreibers/schreibers_1820_beitrage_geschichte_meteorischer_stein_metall_massen_german_biolinum.pdf) | [Fraktur] | [Schwabacher]  
