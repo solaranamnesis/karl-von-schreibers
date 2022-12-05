@@ -30,10 +30,11 @@
 \usepackage[titles]{tocloft}
 \usepackage{sectsty}
 
-\sectionfont{\Huge}
-\subsectionfont{\LARGE}
-\subsubsectionfont{\LARGE}
-\paragraphfont{\LARGE}
+\allsectionsfont{\swabfamily}
+\sectionfont{\swabfamily\Huge}
+\subsectionfont{\swabfamily\LARGE}
+\subsubsectionfont{\swabfamily\LARGE}
+\paragraphfont{\swabfamily\LARGE}
 
 \usepackage{graphicx}
 \graphicspath{ {./} }
@@ -42,6 +43,11 @@
 \renewcommand{\contentsname}{
 \swabfamily{Inhaltsverzeichnis}
 }
+
+\renewcommand{\cftsecfont}{\frakfamily}
+\renewcommand{\cftsubsecfont}{\frakfamily}
+\renewcommand{\cftsubsubsecfont}{\frakfamily}
+
 % fix toc page numbers
 \let\origcftsecfont\cft
 \let\origcftsecpagefont\cftsecpagefont
@@ -56,6 +62,9 @@
 \let\origcftsubsubsecafterpnum\cftsubsubsecafterpnum
 \renewcommand{\cftsubsubsecpagefont}{\swabfamily{\origcftsubsubsecpagefont}}
 \renewcommand{\cftsubsubsecafterpnum}{\swabfamily{\origcftsubsubsecafterpnum}}
+
+\renewcommand\thefootnote{\frakfamily{\arabic{footnote}}}
+
 \begin{titlepage} % Suppresses headers and footers on the title page
 	\centering % Centre everything on the title page
 	%\scshape % Use small caps for all text on the title page
